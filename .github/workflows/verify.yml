@@ -1,0 +1,76 @@
+name: verify
+
+on:
+  schedule:
+    - cron: "0 12 * * 1" # Mondays 12:00 UTC
+  workflow_dispatch:
+
+permissions:
+  contents: write
+  issues: write
+
+jobs:
+  verify:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@11d5960a326750d5838078e36cf38b85af677262 # v4.4.0
+        with:
+          persist-credentials: false
+
+      # Deliberately no credentials: a source this job cannot reach anonymously
+      # is not public enough for this catalog. Outcomes land in the records
+      # themselves (last_check / verified / fail_since / fail_reason).
+      - name: Re-resolve all sources
+        run: python3 bin/verify.py | tee verify.log
+
+      - name: Lint, commit stamps, regenerate index
+        env:
+          GITHUB_TOKEN: ${{ github.token }}
+        run: |
+          set -euo pipefail
+          python3 bin/lint_index.py --check
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          PUSH="https://x-access-token:${GITHUB_TOKEN}@github.com/${GITHUB_REPOSITORY}.git"
+          if ! git diff --quiet catalog/; then
+            git add catalog/
+            git commit -m "verify: stamp check results $(date -u +%F)"
+          fi
+          SHA=$(git rev-parse HEAD)
+          DATE=$(date -u +%F)
+          # newly-failing sources are vanished-candidates; last_check stamps are
+          # deliberately not change events (they touch every record weekly)
+          grep '^FAIL ' verify.log | while read -r _ slug _rest; do
+            printf '{"date":"%s","slug":"%s","kind":"vanished-candidate","commit":"%s","diff_url":"https://github.com/%s/commit/%s"}\n' \
+              "$DATE" "$slug" "$SHA" "$GITHUB_REPOSITORY" "$SHA" >> exports/changes.jsonl
+          done || true
+          python3 bin/lint_index.py
+          if ! git diff --quiet INDEX.md index/ catalog.jsonl exports/changes.jsonl; then
+            git add INDEX.md index/ catalog.jsonl exports/changes.jsonl
+            git commit -m "index: regenerate"
+          fi
+          if [ "$(git rev-parse HEAD)" != "$(git rev-parse origin/main)" ]; then
+            git pull --rebase origin main
+            git push "$PUSH" HEAD:main
+          fi
+
+      - name: Open issue on failures
+        env:
+          GH_TOKEN: ${{ github.token }}
+        run: |
+          if grep -q '^FAIL ' verify.log; then
+            {
+              echo "The weekly verify pass could not reach these sources anonymously — each link opens the record (which now carries fail_since / fail_reason):"
+              echo
+              grep '^FAIL ' verify.log | while read -r _ slug rest; do
+                path=$(find catalog -name "${slug}.md" | head -1)
+                echo "- [\`$slug\`](https://github.com/${GITHUB_REPOSITORY}/blob/main/${path}) — ${rest}"
+              done
+              echo
+              echo "Repeated failures mean the record should move to \`status: vanished\` or the source should be re-pinned."
+            } > issue-body.md
+            gh issue create \
+              --title "verify: $(grep -c '^FAIL ' verify.log) unreachable source(s) — $(date -u +%F)" \
+              --body-file issue-body.md \
+              --label verify
+          fi

@@ -1,0 +1,58 @@
+name: feed-watch
+
+on:
+  schedule:
+    - cron: "0 12 * * 4" # Thursdays 12:00 UTC
+  workflow_dispatch:
+
+permissions:
+  contents: write
+
+jobs:
+  feed-watch:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@11d5960a326750d5838078e36cf38b85af677262 # v4.4.0
+        with:
+          persist-credentials: false
+
+      # The Thrillshare live-feed API is open JSON - fully credential-less,
+      # no proxy needed, unlike the YouTube caption path.
+      - name: Capture new live-feed posts
+        run: python3 bin/feed_watch.py | tee feed-watch.log
+
+      - name: Regenerate per-post export
+        run: python3 bin/export_feed_posts.py
+
+      - name: Lint, commit captures, regenerate index
+        env:
+          GITHUB_TOKEN: ${{ github.token }}
+        run: |
+          set -euo pipefail
+          python3 bin/lint_index.py --check
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          PUSH="https://x-access-token:${GITHUB_TOKEN}@github.com/${GITHUB_REPOSITORY}.git"
+          if [ -n "$(git status --porcelain catalog/ text/ exports/)" ]; then
+            git add catalog/ text/ exports/
+            git commit -m "feed-watch: new posts $(date -u +%F)"
+          fi
+          SHA=$(git rev-parse HEAD)
+          DATE=$(date -u +%F)
+          grep '^APPENDED ' feed-watch.log | sed 's/.*-> //; s/\.md$//' | sort -u | while read -r slug; do
+            printf '{"date":"%s","slug":"%s","kind":"changed","commit":"%s","diff_url":"https://github.com/%s/commit/%s"}\n' \
+              "$DATE" "$slug" "$SHA" "$GITHUB_REPOSITORY" "$SHA" >> exports/changes.jsonl
+          done || true
+          grep '^MINTED ' feed-watch.log | while read -r _ slug; do
+            printf '{"date":"%s","slug":"%s","kind":"added","commit":"%s","diff_url":"https://github.com/%s/commit/%s"}\n' \
+              "$DATE" "$slug" "$SHA" "$GITHUB_REPOSITORY" "$SHA" >> exports/changes.jsonl
+          done || true
+          python3 bin/lint_index.py
+          if ! git diff --quiet INDEX.md index/ catalog.jsonl exports/changes.jsonl; then
+            git add INDEX.md index/ catalog.jsonl exports/changes.jsonl
+            git commit -m "index: regenerate"
+          fi
+          if [ "$(git rev-parse HEAD)" != "$(git rev-parse origin/main)" ]; then
+            git pull --rebase origin main
+            git push "$PUSH" HEAD:main
+          fi

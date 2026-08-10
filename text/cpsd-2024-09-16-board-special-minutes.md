@@ -1,0 +1,5 @@
+Minutes of Board of Education Special Meeting Conway Public Schools Administration Building 2220 Prince Street September 16, 2024
+
+<u>Members Present</u>: Dr. David Naylor, Jr., Mr. Trip Leach, Mrs. Linda Hargis, Mr. Andre’ Acklin, Mrs. Sheila Franklin, Mr. Carl Barger <u>Members Absent</u>: None <u>Others Present</u>: Superintendent Jeff Collum; Deputy Superintendent Jason Black; Assistant Superintendent Dr. Karen Lasker; Director Eric King; Chief Legal Officer Shasta Wagner; Recording Secretary Donna Story Board President Naylor called the meeting to order at 5:32 p.m. The Board entered Executive Session at 5:32 p.m. for the purpose of considering a personnel matter. The Board exited Executive Session at 7:02 p.m. <u>Adjournment</u> **No further business to come before the Board, the meeting was unanimously adjourned at 7:03 p.m.** **on a motion made by Mr. Acklin and seconded by Mr. Leach.**
+
+Respectfully submitted, <u>/s/Dr. David Naylor, Jr. /s/Linda Hargis</u> President Board Secretary APPROVED: <u>October 8, 2024</u>

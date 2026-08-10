@@ -1,0 +1,240 @@
+### 2026-07-06 · Conway Athletics (id 12610029)
+
+Ruth Doyle 1st practice in the books.  2026 season, here we come!
+
+Tie dye day!
+
+### 2026-07-08 · Conway Athletics (id 12622049)
+
+Ruth Doyle volleyball got better today at Benton team camp.
+
+### 2026-07-08 · Conway Public Schools (id 12620113)
+
+CPSD 2026-2027 Returning Student Registration is LIVE!
+
+Snapcodes have been sent to the email addresses we have on file. If you have not received your student's Snapcode, please fill out this help form: conwayschools.org/returninghelp
+
+For more information on Returning Student Registration, please visit our website: conwayschools.org/returning
+
+We look forward to an amazing 2026-2027 school year! #TeamConway
+
+### 2026-07-09 · Conway Public Schools (id 12625587)
+
+Camp starts Monday July 13th!  3rd-7th grade girls! Come learn some volleyball and have some fun with the Lady Cats and the Conway Coaches.  July 13-15, 8am-12pm at the Conway High School Buzz Bolding Arena! Click the link to register now https://register.ryzer.com/camp.cfm?id=328041
+
+### 2026-07-11 · Conway Athletics (id 12630270)
+
+Ruth Doyle volleyball finished Benton team camp on a good note.  They won 7 games, tied 1.   Way to go ladies.  Keep learning and working hard.
+
+### 2026-07-14 · Conway Public Schools (id 12644230)
+
+CATS IN COMMUNITY FOOD DRIVE 
+
+Our Wampus Cat family is coming together to support Conway Public Schools students and families this summer!
+
+We're collecting non-perishable food items now through July 21 that will be distributed during our Cats in Community Food Giveaway on July 23 in the Conway High School roundabout between 10:00am till 1:00pm or until supplies last. Every donation helps provide food and resources to families in need during the summer months.
+
+ Donation Drop-Off Dates: Now till July 21
+
+ Drop-Off Locations:
+• Conway High School
+• Kroger (Prince Street)
+• Walmart (Highway 65)
+• United Way
+
+ Most Needed Items:
+• Peanut butter, canned tuna, canned chicken, soups, chili, canned beans, protein snacks
+• Mac & cheese, pasta, rice, pasta sauce, instant potatoes, ramen noodles, boxed meal kits
+• Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, oatmeal packets, pancake mix, breakfast bars
+
+Please ensure all food items are unopened, sealed, and within their expiration date.
+
+Together, we can make a difference for our school families. Thank you for helping us show what it means to be a Wampus Cat community! #CatsInCommunity #WampusCatsCare #ConwayPublic Schools #TeamConway See less
+
+### 2026-07-14 · Conway Public Schools (id 12646582)
+
+Check out our July 2026 School Board Meeting Recap! Back to School info, Long Range Strategic Plan 2026-2031, and more!! 
+https://conwaypublicschools.edurooms.com/newsletters/conway-public-schools/newsletters/july-2026-school-board-meeting-recap
+
+### 2026-07-19 · Conway Athletics (id 12663404)
+
+Ruth Doyle volleyball and basketball teams having fun during “white lies” practices.
+
+### 2026-07-21 · Rachel Fowler (id 12670819)
+
+Ruth Doyle Middle School
+Students and Families
+
+As the start of the 2026-2027 school year approaches, it is almost time for Schedule Pickup! 
+
+When? August 3, 4, & 5---9:00am - 5:30 pm
+Where? Ruth Doyle Middle School front office
+How? Use the link to sign up for a time. Come in during your assigned time to pickup your students schedule, rent a locker, and purchase Chromebook insurance (if needed).
+
+Lockers $5
+Chromebook Insurance (if needed) $20
+Cash and check are the only forms of payment accepted.
+
+We are so excited to see you and are looking forward to a great school year!
+
+Schedule Pickup Link: https://www.signupgenius.com/go/30E044CAAAD2BA0FB6-64844369-5th6th7th
+
+### 2026-07-21 · Conway Athletics (id 12675370)
+
+Ruth Doyle volleyball getting better today at Greenbrier camp.
+
+### 2026-07-22 · Rachel Fowler (id 12679828)
+
+Ruth Doyle Middle School Families!
+
+Want to make a difference and help create unforgettable experiences for our students? We're looking for PTO Representatives! 
+
+No experience? No problem! Whether you have lots of time or just a little, we'd love to have your ideas, enthusiasm, and support. Being a PTO representative is a fun way to:
+✨ Connect with other parents
+✨ Support our teachers and staff
+✨ Help plan exciting events and activities
+✨ Make a lasting impact on our school community
+
+It truly takes a village, and we'd love for YOU to be part of ours! 
+
+Interested or want to learn more? 
+Contact Principal Matt Kelly
+kellym@conwayschools.info
+(501) 450-6675
+
+Let's make this school year the best one yet... together! #WeAreRDMS
+
+### 2026-07-22 · Conway Public Schools (id 12662522)
+
+🍏 Free & Reduced Lunch Application Now Available!
+Hey Wampus Cat families! The free and reduced lunch application for the 2026-2027 school year is now open online. Filling this out takes just a few minutes, keeps our students fueled for learning, and helps secure vital funding for our classrooms. Let's make sure every single child on Team Conway has what they need to succeed this year. Fill out your form today: https://secure.ezmealapp.com/ApplicationScreen.aspx 🥪💪
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-07-23 · Conway Public Schools (id 12682382)
+
+All food boxes have been distributed! Another great day to be a Wampus Cat!! - Update at 12:20pm
+🐾 CATS IN COMMUNITY FOOD DRIVE🐾 This is
+
+### 2026-07-24 · Conway Public Schools (id 12662541)
+
+Planning out the upcoming school year? We have you covered. The official 2026-2027 school calendar is live on our website so you can map out breaks, holidays, and special events. Let's stay organized and ready to win together as Team Conway! Check out the full calendar here: https://www.conwayschools.org/page/school-calendar 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-07-26 · Conway Public Schools (id 12693256)
+
+Mark your calendar for our District Wide Wampus Cat Welcome Back Bash!
+
+Join us for some fun!
+
+🗓 When: August 8, 2026
+⏰ Time: 5:00 PM - 8:00 PM
+📍 Where: Conway High School
+
+What to Expect:
+
+	•	Meet your Administrators
+
+	•	Bounce houses
+
+	•	Interactive Games
+
+	•	Dunk Tank
+
+	•	Food Trucks (for purchase)
+
+	•	Free Hot Dogs 🌭
+
+We’re excited to see you there and kick off the 2026-2027 school year!
+
+### 2026-07-27 · Rachel Fowler (id 12697077)
+
+Ruth Doyle Middle School
+Parents, Guardians, and Incoming 5th Graders
+
+It is time for…
+CAT CAMP!! 🎉🎉
+
+Meet some teachers, learn about breakfast & lunch, tour the school, and more!!
+Get rid of those first day of school nerves before the first day even gets here!!
+
+✨When: Thursday, August 6--- 9:00 - 11:30
+✨Where: RDMS Cafeteria (enter through the doors at the bus loop)
+✨What to Bring: If possible, students bring a copy of your schedule.
+
+✨Parents/Guardians: You can drop off your student and pick them up at 11:30, or you can stay for the parent meeting that will begin at 9:15.
+
+The doors will open to the RDMS Cafeteria at 8:40 am. 
+
+We are so excited to see all of you at Cat Camp! #WeAreRDMS
+
+### 2026-07-28 · Conway Athletics (id 12708174)
+
+Ruth Doyle volleyball having fun at Morrilton team camp.
+
+### 2026-07-30 · Conway Public Schools (id 12720720)
+
+Attention Wampus Cat Families! 🐾🎉
+
+New student registration for Conway Public Schools is OPEN! We can’t wait to welcome our newest Wampus Cats to the family.
+
+Get all the details, check requirements, and complete your registration in just a few clicks.
+👉 Register today: conwayschools.org/registration
+
+#WampusCats #ConwayPublicSchools #CPS #BackToSchool #ConwayAR #RegistrationOpen
+
+### 2026-08-02 · Rachel Fowler (id 12731178)
+
+Ruth Doyle Middle School
+🎊🎊Schedule Pick-Up Reminders🎊🎊
+
+Make sure that you have signed up for a time to pick up your students schedule and come at the selected time.
+https://www.signupgenius.com/go/30E044CAAAD2BA0FB6-64844369-5th6th7th 
+
+Lockers $5
+Chromebook Insurance (if needed) $20
+Cash or Check only
+
+✨New Sign-In/Sign-Out Procedures: There is a new sign-in / sign-out system for the 2026-2027 school year. In order to get everyone set up in the system before the first day of school, please bring your photo ID with you when you come to pick up your student’s schedule.
+
+✨Nurse: If your student has medicine that will need to be taken at school, please bring it with you when you come to pick up your student’s schedule to give to the nurse to ensure a smooth first day of school.#WeAreRDMS
+
+### 2026-08-02 · Conway Athletics (id 12731559)
+
+Ruth Doyle volleyball girls having fun during “baggy” day practice.
+
+### 2026-08-03 · Rachel Fowler (id 12740490)
+
+🚨🚨 Update from School Nurse: 
+Any medication brought to school MUST be accompanied by a physician's order and/or an action plan. The medication label on the bottle or box alone is not sufficient.
+
+
+💉💉 Immunization Reminder: 
+Students who have turned or will turn 11 years old this school year must receive the required Tdap vaccine. If your student turns 11 before school starts, the vaccine is required BEFORE the first day of school.
+
+Meningococcal vaccination is required BEFORE entering 7th grade.
+
+
+📨📱Contact Nurse Harper if you have any questions.
+
+### 2026-08-04 · Rachel Fowler (id 12748491)
+
+📚🎉 Ruth Doyle Middle School Open House
+
+Join us on Tuesday, August 11, from 5:00–7:00 PM to meet your teachers, explore the school, find your classrooms, and get excited for an amazing school year! 🎒✨
+
+We can't wait to welcome our students and families. See you there! #WeAreRDMS
+
+### 2026-08-07 · Conway Public Schools (id 12778055)
+
+We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
+
+### 2026-08-08 · Conway Athletics (id 12780366)
+
+Conway 2026-2027 7th grade girls basketball team day.
+
+### 2026-08-09 · Conway Athletics (id 12782084)
+
+“Backwards” day at practice for Ruth Doyle volleyball
+

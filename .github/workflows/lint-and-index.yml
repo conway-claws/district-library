@@ -1,0 +1,48 @@
+name: lint-and-index
+
+on:
+  pull_request:
+  push:
+    branches: [main]
+
+permissions:
+  contents: read
+
+jobs:
+  # PR path: read-only — it executes the PR's own lint code, so it gets no token
+  lint-pr:
+    if: github.event_name == 'pull_request'
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@11d5960a326750d5838078e36cf38b85af677262 # v4.4.0
+        with:
+          persist-credentials: false
+      - name: Lint catalog
+        run: python3 bin/lint_index.py --check
+
+  index-push:
+    if: github.event_name == 'push'
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+    steps:
+      - uses: actions/checkout@11d5960a326750d5838078e36cf38b85af677262 # v4.4.0
+        with:
+          persist-credentials: false
+
+      - name: Lint and regenerate index surfaces
+        run: python3 bin/lint_index.py
+
+      - name: Commit regenerated surfaces if changed
+        env:
+          GITHUB_TOKEN: ${{ github.token }}
+        run: |
+          set -euo pipefail
+          if ! git diff --quiet INDEX.md index/ catalog.jsonl; then
+            git config user.name "github-actions[bot]"
+            git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+            git add INDEX.md index/ catalog.jsonl
+            git commit -m "index: regenerate"
+            git pull --rebase origin main
+            git push "https://x-access-token:${GITHUB_TOKEN}@github.com/${GITHUB_REPOSITORY}.git" HEAD:main
+          fi

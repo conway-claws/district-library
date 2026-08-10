@@ -1,0 +1,30 @@
+name: transcript-probe
+
+# Diagnostic: can a GitHub-hosted runner fetch YouTube auto-captions?
+# YouTube blocks many datacenter IPs; this measures ours instead of assuming.
+# Deliberately given no secret, no checkout, and no permissions, so the
+# verbose set -x output can't leak anything.
+
+on:
+  workflow_dispatch:
+
+permissions: {}
+
+jobs:
+  probe:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Install yt-dlp
+        run: pipx install yt-dlp==2026.07.04
+
+      - name: Try caption fetch
+        run: |
+          set -x
+          yt-dlp --skip-download --write-auto-subs --sub-langs en --sub-format vtt \
+            -o probe "https://www.youtube.com/watch?v=k2OxdpWEvl4" && ls -la probe* || true
+          if ls probe*.vtt > /dev/null 2>&1; then
+            echo "RESULT: caption fetch WORKS from this runner"
+            head -c 400 probe*.vtt
+          else
+            echo "RESULT: caption fetch BLOCKED or failed from this runner"
+          fi

@@ -1,0 +1,44 @@
+name: Add resource
+description: Propose a district resource for the catalog
+title: "add: <short name of the resource>"
+labels: [intake]
+body:
+  - type: input
+    id: url
+    attributes:
+      label: Link
+      description: Direct URL (or Google Drive link) to the resource
+      placeholder: https://...
+    validations:
+      required: true
+  - type: dropdown
+    id: type
+    attributes:
+      label: Type
+      options:
+        - policy
+        - minutes
+        - finance
+        - statute
+        - news
+        - site
+        - drive
+        - form
+        - dataset
+        - media
+    validations:
+      required: true
+  - type: textarea
+    id: why
+    attributes:
+      label: Why it belongs in the library
+      description: One or two sentences
+    validations:
+      required: true
+  - type: checkboxes
+    id: public
+    attributes:
+      label: Access
+      options:
+        - label: This resource opens without any login (public records only — see README)
+          required: true

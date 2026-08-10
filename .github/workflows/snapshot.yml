@@ -1,0 +1,44 @@
+name: snapshot
+
+# Monthly checksummed dataset release: a versioned "the library as of date X"
+# artifact that archives, researchers, and mirrors can take without a git
+# clone, and an evidence point that outlives any single commit's reachability.
+
+on:
+  schedule:
+    - cron: "0 13 1 * *" # 1st of the month, 13:00 UTC (after the weekly writers)
+  workflow_dispatch:
+
+permissions:
+  contents: write
+
+jobs:
+  snapshot:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@11d5960a326750d5838078e36cf38b85af677262 # v4.4.0
+        with:
+          persist-credentials: false
+
+      - name: Build snapshot artifact
+        run: |
+          set -euo pipefail
+          TAG="v$(date -u +%Y.%m)"
+          ZIP="district-library-${TAG}.zip"
+          zip -qr "$ZIP" catalog.jsonl text/ exports/ schema.md AGENTS.md LICENSE
+          shasum -a 256 "$ZIP" > SHA256SUMS
+          echo "TAG=$TAG" >> "$GITHUB_ENV"
+          echo "ZIP=$ZIP" >> "$GITHUB_ENV"
+
+      - name: Create release
+        env:
+          GH_TOKEN: ${{ github.token }}
+        run: |
+          set -euo pipefail
+          if gh release view "$TAG" > /dev/null 2>&1; then
+            echo "release $TAG already exists — skipping"
+            exit 0
+          fi
+          gh release create "$TAG" "$ZIP" SHA256SUMS \
+            --title "Dataset snapshot $TAG" \
+            --notes "Checksummed snapshot of the library as of $(date -u +%F): catalog.jsonl, all extractions, the per-post feed export, and the schema. Verify with \`shasum -a 256 -c SHA256SUMS\`. Commit: ${GITHUB_SHA}."

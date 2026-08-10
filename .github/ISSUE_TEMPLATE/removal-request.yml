@@ -1,0 +1,38 @@
+name: Removal request
+description: Ask for captured live-feed content to be removed from the library.
+title: "removal request: "
+labels: [removal-request]
+body:
+  - type: markdown
+    attributes:
+      value: |
+        The library honors removal of **live-feed captures** (school social posts):
+        they are transient communications, and a post the district deletes upstream
+        is redacted here on the next weekly reconcile pass — this form covers
+        anything that pass missed or that needs to move faster. Board minutes,
+        policies, contracts, and financial reports are the permanent public record
+        and are not subject to removal. Redaction applies going forward: the
+        repository's history is an evidence trail and is never rewritten, so
+        earlier commits retain what they captured. Prefer email?
+        privacy@conwaypto.org reaches the same people.
+  - type: input
+    id: what
+    attributes:
+      label: What should be removed
+      description: A link to the file in this repository, a post date and school, or the text itself — enough to find it.
+    validations:
+      required: true
+  - type: textarea
+    id: why
+    attributes:
+      label: Why
+      description: E.g. the district deleted the post, a parent revoked consent, the content identifies a minor. No documentation required to ask.
+    validations:
+      required: true
+  - type: checkboxes
+    id: scope
+    attributes:
+      label: Scope
+      options:
+        - label: This request concerns live-feed content (not board minutes, policies, contracts, or financial reports)
+          required: true

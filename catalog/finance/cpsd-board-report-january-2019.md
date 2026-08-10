@@ -1,0 +1,21 @@
+---
+title: board_report_-_january_2019
+org: conway-public-schools
+unit:
+type: finance
+format: pdf
+location: drive
+url:
+drive_id: 1jLR1J8fk9Tvb2r2VX-hM__1dBJfB2UAb
+drive_kind: file
+rights: public-record
+text: text/cpsd-board-report-january-2019.md
+retrieved: 2026-08-09
+verified: 2026-08-09
+status: current
+tags: [finance, monthly-financial-reports, 2018-2019]
+date: 2019-01-31
+sha256: b32c913ad1eff5527d0697a3601561e9263312955e20b3bca3a7371689a534ee
+extractor: pdftotext@26.08.0+finance-table
+---
+Source file 'board_report_-_january_2019.pdf' from the [cpsd-monthly-financial-reports-2018-2019] container; extracted with anydoc.

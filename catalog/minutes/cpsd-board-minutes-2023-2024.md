@@ -1,0 +1,19 @@
+---
+title: CPSD School Board Minutes, 2023-24 (Drive folder)
+org: conway-public-schools
+unit:
+type: minutes
+format: folder
+location: drive
+url:
+drive_id: 1SbnI5-lI2t-IfewLV6R25htDUxbwA2SP
+drive_kind: folder
+rights: public-record
+text:
+retrieved:
+verified: 2026-08-09
+status: current
+tags: [school-board, minutes, 2023-2024]
+---
+Board meeting minutes for the 2023-24 school year, the earliest year the district
+publishes this way. Pointer-only container.

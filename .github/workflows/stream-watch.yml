@@ -1,0 +1,53 @@
+name: stream-watch
+
+on:
+  schedule:
+    - cron: "0 12 * * 3" # Wednesdays 12:00 UTC
+  workflow_dispatch:
+
+permissions:
+  contents: write
+
+jobs:
+  stream-watch:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@11d5960a326750d5838078e36cf38b85af677262 # v4.4.0
+        with:
+          persist-credentials: false
+
+      # RSS is reachable credential-less from GitHub; caption fetching is not
+      # (YouTube walls off datacenter IPs — measured by transcript-probe), so
+      # this job only discovers and mints. Transcripts are made host-side by
+      # bin/seed_youtube.py — no secrets in this repo, none permitted.
+      - name: Discover new streams
+        run: python3 bin/stream_watch.py | tee stream-watch.log
+
+      - name: Lint, commit records, regenerate index
+        env:
+          GITHUB_TOKEN: ${{ github.token }}
+        run: |
+          set -euo pipefail
+          python3 bin/lint_index.py --check
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          PUSH="https://x-access-token:${GITHUB_TOKEN}@github.com/${GITHUB_REPOSITORY}.git"
+          if [ -n "$(git status --porcelain catalog/ text/)" ]; then
+            git add catalog/ text/
+            git commit -m "stream-watch: new streams and transcripts $(date -u +%F)"
+          fi
+          SHA=$(git rev-parse HEAD)
+          DATE=$(date -u +%F)
+          grep '^MINTED ' stream-watch.log | while read -r _ slug; do
+            printf '{"date":"%s","slug":"%s","kind":"added","commit":"%s","diff_url":"https://github.com/%s/commit/%s"}\n' \
+              "$DATE" "$slug" "$SHA" "$GITHUB_REPOSITORY" "$SHA" >> exports/changes.jsonl
+          done || true
+          python3 bin/lint_index.py
+          if ! git diff --quiet INDEX.md index/ catalog.jsonl exports/changes.jsonl; then
+            git add INDEX.md index/ catalog.jsonl exports/changes.jsonl
+            git commit -m "index: regenerate"
+          fi
+          if [ "$(git rev-parse HEAD)" != "$(git rev-parse origin/main)" ]; then
+            git pull --rebase origin main
+            git push "$PUSH" HEAD:main
+          fi

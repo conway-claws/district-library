@@ -1,0 +1,46 @@
+{
+  "@context": "https://schema.org",
+  "@type": "Dataset",
+  "name": "district-library: Conway Public Schools public record",
+  "description": "One searchable, continuously verified catalog of Conway Public Schools' (Conway, Arkansas) public record: school board minutes, the board policy manual, the personnel policy library, superintendent contracts, salary schedules, monthly financial reports back to 2018, school improvement plans, handbooks, calendars, board meeting-stream transcripts, and live-feed captures. Pointer records plus plain-text extractions; originals stay at the district's own URLs.",
+  "url": "https://github.com/conway-claws/district-library",
+  "sameAs": "https://github.com/conway-claws/district-library",
+  "creator": {
+    "@type": "Organization",
+    "name": "Conway CLAWS",
+    "url": "https://conwaypto.org"
+  },
+  "publisher": {
+    "@type": "Organization",
+    "name": "Conway CLAWS",
+    "url": "https://conwaypto.org"
+  },
+  "license": "https://github.com/conway-claws/district-library/blob/main/LICENSE",
+  "isAccessibleForFree": true,
+  "keywords": ["Conway Public Schools", "school board", "public records", "board minutes", "board policy", "school district finance", "Arkansas", "civic data"],
+  "spatialCoverage": {
+    "@type": "Place",
+    "name": "Conway, Arkansas, United States"
+  },
+  "temporalCoverage": "2018/..",
+  "distribution": [
+    {
+      "@type": "DataDownload",
+      "name": "catalog.jsonl — one JSON object per record",
+      "encodingFormat": "application/jsonl",
+      "contentUrl": "https://raw.githubusercontent.com/conway-claws/district-library/main/catalog.jsonl"
+    },
+    {
+      "@type": "DataDownload",
+      "name": "git repository (full catalog, extractions, and history)",
+      "encodingFormat": "application/x-git",
+      "contentUrl": "https://github.com/conway-claws/district-library.git"
+    },
+    {
+      "@type": "DataDownload",
+      "name": "monthly checksummed snapshot releases (vYYYY.MM)",
+      "encodingFormat": "application/zip",
+      "contentUrl": "https://github.com/conway-claws/district-library/releases"
+    }
+  ]
+}

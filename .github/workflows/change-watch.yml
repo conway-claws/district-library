@@ -1,0 +1,105 @@
+name: change-watch
+
+on:
+  schedule:
+    - cron: "0 12 * * 2" # Tuesdays 12:00 UTC
+  workflow_dispatch:
+
+permissions:
+  contents: write
+  issues: write
+
+jobs:
+  change-watch:
+    runs-on: ubuntu-latest
+    steps:
+      # persist-credentials off: the extract step runs third-party code (anydoc)
+      # over untrusted documents and must not have a push token in .git/config;
+      # the commit step re-authenticates explicitly.
+      - uses: actions/checkout@11d5960a326750d5838078e36cf38b85af677262 # v4.4.0
+        with:
+          persist-credentials: false
+
+      # poppler (pdftotext/pdfinfo/pdftoppm) and tesseract: the finance layout
+      # path, the thin-output guard, and the OCR fallback all need them
+      - name: Install extraction dependencies
+        run: sudo apt-get update && sudo apt-get install -y poppler-utils tesseract-ocr
+
+      # anydoc runs locally on the runner via npx (pinned in bin/) — no API key,
+      # which keeps this job credential-less like verify.
+      - name: Refetch and re-extract all tier-1 sources
+        run: python3 bin/change_watch.py | tee change-watch.log
+
+      - name: Lint, commit captures, regenerate index
+        env:
+          GITHUB_TOKEN: ${{ github.token }}
+        run: |
+          set -euo pipefail
+          # the gate the bot itself must pass: invalid records fail the run red
+          python3 bin/lint_index.py --check
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          PUSH="https://x-access-token:${GITHUB_TOKEN}@github.com/${GITHUB_REPOSITORY}.git"
+          if ! git diff --quiet catalog/ text/; then
+            git add catalog/ text/
+            git commit -m "change-watch: fresh captures $(date -u +%F)"
+          fi
+          # change events and issue links reference the CONTENT commit (the one
+          # whose diff holds the captures), not the index commit that follows
+          SHA=$(git rev-parse HEAD)
+          echo "CAPTURE_SHA=$SHA" >> "$GITHUB_ENV"
+          DATE=$(date -u +%F)
+          grep '^CHANGED ' change-watch.log | while read -r _ slug _rest; do
+            anchor=$(printf 'text/%s.md' "$slug" | shasum -a 256 | cut -d' ' -f1)
+            printf '{"date":"%s","slug":"%s","kind":"changed","commit":"%s","diff_url":"https://github.com/%s/commit/%s#diff-%s"}\n' \
+              "$DATE" "$slug" "$SHA" "$GITHUB_REPOSITORY" "$SHA" "$anchor" >> exports/changes.jsonl
+          done || true
+          python3 bin/lint_index.py
+          if ! git diff --quiet INDEX.md index/ catalog.jsonl exports/changes.jsonl; then
+            git add INDEX.md index/ catalog.jsonl exports/changes.jsonl
+            git commit -m "index: regenerate"
+          fi
+          if [ "$(git rev-parse HEAD)" != "$(git rev-parse origin/main)" ]; then
+            git pull --rebase origin main
+            git push "$PUSH" HEAD:main
+          fi
+
+      - name: Open issue on changes or failures
+        env:
+          GH_TOKEN: ${{ github.token }}
+        run: |
+          if grep -qE '^(CHANGED|SUSPECT|FAIL|RETRY-EXHAUSTED) ' change-watch.log; then
+            SHA="${CAPTURE_SHA:-$(git rev-parse HEAD)}"
+            {
+              echo "The weekly change-watch pass found source documents that changed (or could not be safely re-extracted)."
+              echo
+              if grep -q '^CHANGED ' change-watch.log; then
+                echo "Changed — each link opens that document's diff in the capture commit:"
+                echo
+                # GitHub anchors a file's diff by the SHA-256 of its repo path
+                grep '^CHANGED ' change-watch.log | while read -r _ slug; do
+                  anchor=$(printf 'text/%s.md' "$slug" | shasum -a 256 | cut -d' ' -f1)
+                  echo "- [\`$slug\`](https://github.com/${GITHUB_REPOSITORY}/commit/${SHA}#diff-${anchor})"
+                done
+                echo
+              fi
+              if grep -q '^SUSPECT ' change-watch.log; then
+                echo "Suspect — fresh extraction refused (empty, shrunken, or an error page); the committed text was left alone:"
+                echo
+                echo '```'
+                grep '^SUSPECT ' change-watch.log
+                echo '```'
+              fi
+              if grep -qE '^(FAIL|RETRY-EXHAUSTED) ' change-watch.log; then
+                echo "Failed to refetch or extract:"
+                echo
+                echo '```'
+                grep -E '^(FAIL|RETRY-EXHAUSTED) ' change-watch.log
+                echo '```'
+              fi
+            } > issue-body.md
+            gh issue create \
+              --title "change-watch: $(grep -c '^CHANGED ' change-watch.log) changed, $(grep -cE '^(SUSPECT|FAIL|RETRY-EXHAUSTED) ' change-watch.log) flagged — $(date -u +%F)" \
+              --body-file issue-body.md \
+              --label change-watch
+          fi

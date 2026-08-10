@@ -1,0 +1,14 @@
+## 8.37—CLASSIFIED PERSONNEL DUTIES AS MANDATED REPORTERS
+
+It is the statutory duty of classified school district employees to report:
+
+- If the employee has reasonable cause to suspect child abuse or maltreatment, then the employee shall directly and personally report these suspicions to the Arkansas Child Abuse Hotline, by calling 1-800-482-5964 or by submitting a report through the online reporting system. Failure to report suspected child abuse, maltreatment, or neglect through the Hotline can lead to criminal prosecution and individual civil liability of the person who has this duty. Notification of local or state law enforcement does not satisfy the duty to report; only notification by means of the Child Abuse Hotline discharges this duty.
+- If the employee has a good faith belief that there is a serious and imminent threat to the public based on a threat made by an individual regarding violence in or targeted at a school that has been communicated to the employee in the ordinary course of his/her professional duties, then the employee shall make every attempt to immediately notify law enforcement of the serious and imminent threat to the public and have notified law enforcement within twenty-four (24) hours of learning of the serious and imminent threat to the public. The duty of mandated reporters to report suspected child abuse or maltreatment or serious and imminent threats to the public is a direct and personal duty and cannot be assigned or delegated to another person. There is no duty to investigate, confirm or substantiate statements a student may have made which form the basis of the reasonable cause to believe that the student may have been abused or subjected to maltreatment by another person or that form the basis of the serious and imminent threat to the public; however, a person with a duty to report may find it helpful to make a limited inquiry to assist in the formation of a belief that child abuse, maltreatment, or neglect has occurred; that a serious and imminent threat to the public exists; or to rule out such a belief. Employees and volunteers who notify the Child Abuse Hotline or who report serious and imminent threats to the public to law enforcement in good faith are immune from civil liability and criminal prosecution. By law, no school district or school district employee may prohibit or restrict an employee or volunteer who is a mandated reporter from directly reporting suspected child abuse, maltreatment, or a serious and imminent threat to the public, or require that any person notify or seek permission from any person before making a report to the Child Abuse Hotline or law enforcement.
+
+Legal References: A.C.A. § 6-18-110
+
+A.C.A. § 12-18-107
+A.C.A. § 12-18-201 et seq.
+A.C.A. § 12-18-302
+A.C.A. § 12-18-402
+Date Adopted: May 12, 2009 Last Revised: April 9, 2024
