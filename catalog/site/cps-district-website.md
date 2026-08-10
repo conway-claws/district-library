@@ -11,9 +11,12 @@ drive_kind:
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [district, entry-point]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 The district's front door; the entry point for locating board, policy, and finance pages
 that get their own records. Pointer-only: a live site is not a snapshot target.

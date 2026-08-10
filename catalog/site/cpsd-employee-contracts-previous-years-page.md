@@ -11,9 +11,12 @@ drive_kind:
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [finance, employee-contracts, state-required]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Index of the per-year contract subpages (20-21 through 24-25) under
 [cpsd-employee-contracts-page]. Each year's documents are cataloged individually.

@@ -11,9 +11,12 @@ drive_kind:
 rights: public-web
 text: text/cpsd-pfmes-live-feed-2023-2024.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [live-feed, 2023-2024]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Append-only capture of the school's live feed (official day-to-day
 communications), maintained by bin/feed_watch.py from the open Thrillshare

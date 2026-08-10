@@ -11,9 +11,12 @@ drive_kind:
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-08
+verified: 2026-08-10
 status: current
 tags: [arkansas-code, api-pointer]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 The state's designated public access point for the Arkansas Code - the URL the
 "Arkansas Code and Constitution of 1874" link on arkleg.state.ar.us opens. An

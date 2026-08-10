@@ -11,9 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-eoy-dyslexia-information-2025-2026.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [notice, dyslexia, state-required, 2025-2026]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 The district's end-of-year dyslexia reporting notice under Act 1039 of 2017 (Ark. Code
 Ann. § 6-41-606(b)): programs used and student counts for 2025-2026. Contains no

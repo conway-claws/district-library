@@ -11,10 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-2025-12-11-board-special-minutes.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [school-board, minutes, 2025-2026]
 date: 2025-12-11
 sha256: 20bc335283cc6aeb0b853fa6aa7a1ce07de5fb87a7ab8e49502a15c40f30cfb0
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Source file '2025.12.11 Board Special Minutes' from the [cpsd-board-minutes-2025-2026] container; extracted with anydoc.

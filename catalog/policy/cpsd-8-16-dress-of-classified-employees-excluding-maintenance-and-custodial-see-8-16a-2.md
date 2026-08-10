@@ -11,10 +11,13 @@ drive_kind: file
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-09
+verified: 2026-08-10
 status: superseded
 tags: [school-board, policy, classified-personnel]
 superseded_by: cpsd-8-16-dress-of-classified-employees-excluding-maintenance-and-custodial-see-8-16a
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Source file '8.16 Dress of Classified Employees-Excluding Maintenance and Custodial (See 8.16a).pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.
 Byte-identical duplicate posting of [cpsd-8-16-dress-of-classified-employees-excluding-maintenance-and-custodial-see-8-16a]; retired to a pointer record, the asset URL stays watched.

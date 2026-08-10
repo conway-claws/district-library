@@ -11,9 +11,12 @@ drive_kind:
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-08
+verified: 2026-08-10
 status: current
 tags: [federal-law, rulemaking, api-pointer]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Keyless API pointer to Department of Education rulemaking: rules, proposed
 rules, and notices as they publish. This is the upstream watch point for

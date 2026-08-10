@@ -11,8 +11,11 @@ drive_kind: folder
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [school-board, school-improvement-plan, 2026-2027]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Per-school action/improvement plans for 2026-27, the running year.

@@ -11,8 +11,11 @@ drive_kind: folder
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [finance, monthly-financial-reports, 2022-2023]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Monthly financial reports for 2022-2023.

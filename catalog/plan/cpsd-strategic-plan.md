@@ -11,9 +11,12 @@ drive_kind:
 rights: public-record
 text: text/cpsd-strategic-plan.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [school-board, strategic-plan]
 sha256: 45883f6f5abc0b24dfd9edf1a504ad8f60b865cc92176efa323b2fb55b8ae922
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 The district's five-year strategic plan (no year span stated in the document itself). Extracted with anydoc from the district's published PDF.

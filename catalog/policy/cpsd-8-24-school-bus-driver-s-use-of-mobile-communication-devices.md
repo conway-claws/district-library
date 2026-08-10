@@ -11,10 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-24-school-bus-driver-s-use-of-mobile-communication-devices.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2020-05-12
 sha256: 39294497580cce7a35f73702045705d2915f2e338ddbff453054ad6c0c5e5508
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Source file '8.24 School Bus Driver's Use of  Mobile Communication Devices.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

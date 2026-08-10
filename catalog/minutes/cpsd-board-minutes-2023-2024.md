@@ -11,9 +11,12 @@ drive_kind: folder
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [school-board, minutes, 2023-2024]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Board meeting minutes for the 2023-24 school year, the earliest year the district
 publishes this way. Pointer-only container.

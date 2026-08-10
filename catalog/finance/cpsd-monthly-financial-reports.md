@@ -11,8 +11,11 @@ drive_kind: folder
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [finance, monthly-financial-reports]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Parent folder of the district's monthly financial reports, one year subfolder per school year back to 2018-19.

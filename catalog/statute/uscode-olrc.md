@@ -11,9 +11,12 @@ drive_kind:
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-08
+verified: 2026-08-10
 status: current
 tags: [federal-law, us-code, api-pointer]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Keyless pointer to the Office of the Law Revision Counsel's US Code: per-title
 XML/XHTML at every release point from the download page, and a constructible

@@ -11,8 +11,11 @@ drive_kind: folder
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [ppc, personnel-policy-committee, minutes]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Parent folder of the Personnel Policy Committee's minutes, one year subfolder per school year. The PPC is the statutory committee for licensed/classified personnel policy, distinct from the school board.

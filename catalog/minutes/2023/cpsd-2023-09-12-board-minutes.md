@@ -11,10 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-2023-09-12-board-minutes.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [school-board, minutes, 2023-2024]
 date: 2023-09-12
 sha256: b2af208081d5433fa77a1370f950f2cff500956d449facc262f5b77eefec693f
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Source file '2023.09.12 Board Minutes' from the [cpsd-board-minutes-2023-2024] container; extracted with anydoc.

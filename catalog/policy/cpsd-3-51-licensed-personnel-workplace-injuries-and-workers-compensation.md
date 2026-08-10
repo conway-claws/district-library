@@ -11,10 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-51-licensed-personnel-workplace-injuries-and-workers-compensation.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2013-04-09
 sha256: f20f56a4c484deda6baafee304e2b50aceac44acc39f7af46dbfc8b983fd4243
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Source file '3.51 Licensed Personnel Workplace Injuries and Workers' Compensation.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

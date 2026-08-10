@@ -11,8 +11,11 @@ drive_kind:
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [finance, employee-contracts, state-required]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 The district CMS page listing published employee contracts. Source page for the contract records; new postings appear here first.

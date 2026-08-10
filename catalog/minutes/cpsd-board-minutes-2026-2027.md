@@ -11,9 +11,12 @@ drive_kind: folder
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [school-board, minutes, 2026-2027]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 The district's public folder of board meeting minutes for the 2026-2027 school year, the
 running year. Pointer-only container: individual meetings graduate to their own tier-1

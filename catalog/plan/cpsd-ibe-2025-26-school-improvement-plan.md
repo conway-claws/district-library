@@ -11,9 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-ibe-2025-26-school-improvement-plan.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [school-board, school-improvement-plan, 2025-2026]
 sha256: 011da0a422432aa14ffb4c637d05f2ad9c27f458a7f9d0d376ee0ffd6a197645
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Source file 'IBE 2025-26 School Improvement Plan.pdf' from the [cpsd-school-action-plans-2025-2026] container; extracted with anydoc.

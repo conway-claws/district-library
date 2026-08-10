@@ -11,10 +11,13 @@ drive_kind:
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-09
+verified: 2026-08-10
 status: superseded
 tags: [finance, employee-contracts, state-required, 2023-2024]
 superseded_by: cpsd-superintendent-contract-collum-fragment-a
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Byte-identical to [cpsd-superintendent-contract-collum-fragment-a]; second posting of the same partial scan on the 23-24 contracts page.
 Source file 'Superintendent_Contract_2.pdf' from the district CMS page https://www.conwayschools.org/documents/state-required-information/financial-state-required-information/cpsd-employee-contracts/previous-year-contracts/23-24-contracts.

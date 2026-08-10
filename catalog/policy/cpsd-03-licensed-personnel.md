@@ -11,10 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-03-licensed-personnel.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [school-board, policy]
 sha256: 2f2898b57b61684f44ecaa07ce9ae69b8898de8ac50d88d5a87d031950fbd687
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Source file '03 Licensed Personnel.pdf' from the [cpsd-board-policies-folder] container; extracted with anydoc.
 

@@ -11,10 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-marguerite-vann-elementary-family-engagement-plan-2024-2025.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [school-board, family-engagement-plan, 2024-2025]
 sha256: 086c0046a37201ba961fbeed262491b76c456caabc922863ffbea1b708f65367
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Source file 'Marguerite Vann.pdf' from the [cpsd-family-engagement-plans-2024-2025]
 container. Pointer-only: the PDF is a Sharp copier scan with no text layer (13 pages of

@@ -11,9 +11,12 @@ drive_kind:
 rights: public-record
 text: text/cpsd-licensed-employee-contract-21-22.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [finance, employee-contracts, state-required, 2021-2022]
 sha256: ab4206966f2d12d8bd682440d3342e873a6ccf99190793a4ccba97adb5470f19
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Source file 'Licensed_Employee_Contract_21-22.pdf' from the district CMS page https://www.conwayschools.org/documents/state-required-information/financial-state-required-information/cpsd-employee-contracts/previous-year-contracts/21-22-contracts.

@@ -11,9 +11,12 @@ drive_kind:
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-08
+verified: 2026-08-10
 status: current
 tags: [federal-law, cfr, api-pointer]
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Keyless API pointer covering the whole CFR; point-in-time text and amendment
 history per title (`/api/versioner/v1/versions/title-34.json`,

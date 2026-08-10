@@ -11,9 +11,12 @@ drive_kind:
 rights: public-record
 text: text/cpsd-web-classified-hourly-employee-contract-info-2021-2022.md
 retrieved: 2026-08-09
-verified: 2026-08-09
+verified: 2026-08-10
 status: current
 tags: [finance, employee-contracts, state-required, 2021-2022]
 sha256: 6c99e59d06d7a2fffd6080bdb5a7713e9da4e6ddc6c886f4a2b9bb4a134f0203
+last_check: 2026-08-10
+fail_since:
+fail_reason:
 ---
 Source file 'Web_-_Classified_Hourly_Employee_Contract_Info.pdf' from the district CMS page https://www.conwayschools.org/documents/state-required-information/financial-state-required-information/cpsd-employee-contracts/previous-year-contracts/21-22-contracts.
