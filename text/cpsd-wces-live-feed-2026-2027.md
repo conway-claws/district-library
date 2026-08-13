@@ -366,3 +366,55 @@ Thank you for partnering with us to help keep our Little Cats safe. We can't wai
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-11 · Woodrow Cummins Elementary (id 12779024)
+
+🎉👕 SHOW YOUR WOODROW CREW SPIRIT! 👕🎉
+
+Back-to-school is the perfect time to grab your Woodrow Crew T-Shirt! 💙💛❤️ These fun shirts are perfect for students, families, and staff who want to show their Little Cats pride!
+
+👕 COTTON
+• Youth Small–Adult XL — $15
+• Adult 2XL — $16
+• Adult 3XL — $17
+
+💨 DRI FIT
+• Youth Small–Adult XL — $17
+• Adult 2XL — $18
+• Adult 3XL — $19
+
+📅 Orders will be accepted through August 31st!
+
+📲 Ready to order? Scan the QR code on the flyer or go to https://bit.ly/4xniddP to place your order!
+
+💵 Payment Options:
+• Cash
+• Check made payable to WCE PTO  *please put your child's name in the memo
+• Venmo: @Woodrow-CumminsPTO-1  *put your child's name in the, "what is this for" section
+
+Let's start the school year in style! 🎒📚✨
+
+Show your school spirit. Show your Little Cat pride. Be part of the WOODROW CREW! 🐾💙
+
+### 2026-08-11 · Woodrow Cummins Elementary (id 12800765)
+
+We are so sorry that the QR code on the previous graphic is not working correctly.  Please see the updated QR code on the graphic below or use this link to go directly to the Google Order Form: https://forms.gle/NChGb9GXdfHGWTad6
+
+👕 COTTON
+• Youth Small–Adult XL — $15
+• Adult 2XL — $16
+• Adult 3XL — $17
+
+💨 DRI FIT
+• Youth Small–Adult XL — $17
+• Adult 2XL — $18
+• Adult 3XL — $19
+
+📅 Orders will be accepted through August 31st!
+
+📲 Ready to order? Scan the QR code on the flyer or go to https://bit.ly/4xniddP to place your order!
+
+💵 Payment Options:
+• Cash
+• Check made payable to WCE PTO  *please put your child's name in the memo
+• Venmo: @Woodrow-CumminsPTO-1  *put your child's name in the, "what is this for" section
+

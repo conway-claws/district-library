@@ -101,3 +101,12 @@ Get all the details, check requirements, and complete your registration in just 
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-09 · Ellen Smith Elementary (id 12782839)
+
+The Ellen Smith front office will be closed Monday morning until 10am for staff training.
+It will again be closed Wednesday until 1pm to allow all staff members to attend the district-wide convocation.
+
+### 2026-08-10 · Ellen Smith Elementary (id 12793085)
+
+Are your students ready to meet their teacher?  Make sure you don't miss our open house this Thursday!  Doors open at 5pm. Kindergarten parents will meet with Mr. Coatney in the cafeteria at 5:15. All other grades can visit their classrooms at 5:30.  See you then!
+

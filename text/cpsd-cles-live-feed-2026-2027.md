@@ -679,3 +679,47 @@ Our visitor check-in process helps us know who is in the building at all times a
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-10 · Carolyn Lewis Elementary (id 12622709)
+
+📣 This Week is CLE Open House! 🐾
+
+The wait is almost over! We can't wait to welcome our CLE families to CLE Open House this week. Come meet your child's teacher, visit the classroom, and get ready for an amazing school year!
+
+📅 Tuesday, Aug. 11 | 5:00–6:30 PM
+🍎 Kindergarten Only
+
+📅 Thursday, Aug. 13 | 5:00–6:30 PM
+📚 First through Fourth Grades
+
+Bring your smiles and school spirit—we're excited to kick off another fantastic year together! 💙🤍
+
+See you at CLE! 🐾
+
+### 2026-08-10 · Carolyn Lewis Elementary (id 12793515)
+
+❤️ CLE teachers and staff were welcomed back today for their first day, and we are so thankful for the amazing community support!
+
+A HUGE thank you to Misty Givens Agency, LLC for providing breakfast, Harps for donating fresh fruit, and Landon Sanders with Sanders Law Firm for providing Tacos 4 Life for lunch! 🌮🍓☕️
+
+We are so grateful for everyone who helped make our first day back extra special! 🐾
+
+#WeAreCLE
+
+### 2026-08-11 · Carolyn Lewis Elementary (id 12804030)
+
+💙 What a great night at CLE! We loved welcoming our newest Little Wampus Cats to Kindergarten Open House tonight! 🐾📚 We can’t wait to see all the learning, growing, and fun this school year will bring!
+
+#WeAreCLE
+
+### 2026-08-12 · Carolyn Lewis Elementary (id 12804058)
+
+📚✨ What a great day of learning at CLE! Our teachers and staff spent the day growing, learning, and preparing for an amazing school year. A special THANK YOU to Krispy Kreme for the delicious breakfast treat! 🍩💙
+
+#WeAreCLE
+
+### 2026-08-12 · Carolyn Lewis Elementary (id 12804146)
+
+🍗💙 A BIG thank you to David Moore, Sandra Shaffer, and Central Baptist Church for providing a delicious Chick-fil-A lunch for our CLE teachers and staff! We are so grateful for your kindness and support of our school family! 🐾
+
+#WeAreCLE
+

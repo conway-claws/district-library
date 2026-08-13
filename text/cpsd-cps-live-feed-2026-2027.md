@@ -261,3 +261,7 @@ The Board Member Candidate Interviews started with Zone 4 Board position with th
 For more information about the meeting, visit:
 https://conwaypublicschools.edurooms.com/newsletters/conway-public-schools/newsletters/august-7-special-school-board-meeting
 
+### 2026-08-11 · Conway Public Schools (id 12804878)
+
+We had a great School Board Meeting  as the Board of Education held their regular August meeting tonight! Check out the recap! More highlights to come! https://conwaypublicschools.edurooms.com/newsletters/conway-public-schools/newsletters/august-2026-school-board-meeting-recap
+

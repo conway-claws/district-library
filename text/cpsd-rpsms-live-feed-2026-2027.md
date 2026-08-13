@@ -208,3 +208,63 @@ Let's make it a great year!
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-11 · Karon Branch (id 12803045)
+
+🏫 SMS OPEN HOUSE IS TONIGHT! 🐾
+
+We're excited to welcome our families to Simon Middle School Open House! As you tour the building, we've set up several key stations to help you get ready for a great school year.
+
+📍 FRONT OFFICE
+• 📚 Schedule Pick-Up
+• 🪪 Visitor Aware Registration (ID required)
+• 🩺 Nurse
+
+📍 1ST FLOOR HUB
+• 👕 Simon T-Shirts — $15
+• 💻 Chromebook Insurance — $20
+• 🔐 Lockers — $5
+
+📍 CAFETERIA
+• 🍎 Assistance with Free & Reduced Lunch Applications
+• 💳 Add money to your child's meal account
+
+📍 FOYER
+• 🐾 PTO Sign-Ups
+• 👩‍🏫 Substitute Teacher Sign-Ups
+
+Take a moment to stop by the stations that apply to your family, meet our staff, and explore your child's school!
+
+We can't wait to see you tonight! 💜
+
+Simon Middle School | Raise the Standard
+#SimonStrong #RaiseTheStandard
+
+### 2026-08-11 · Karon Branch (id 12804323)
+
+8.12.26, Wednesday
+8:00 AM
+Breakfast
+CHS Arena (Wear you black, District T-shirt)
+All staff
+
+9-11 AM
+Convocation 
+
+CHS Arena (Arena section, check the PD schedule)
+
+11:00 AM-
+12:30 PM
+Lunch on your own
+
+### 2026-08-12 · Karon Branch (id 12809106)
+
+Please be back by 1 pm, in the cafeteria to continue with PD. Thanks.
+
+### 2026-08-12 · Karon Branch (id 12809125)
+
+From Kaitlyn Ryals:
+
+Can you let principals know this and let their staff know?
+
+Hey there! Great job! I meant to text earlier but the Travelin Toms coffee truck will be in the parking lot of Ida burns for teachers wanting to grab drinks with their wristband! We thought that would be the most central location to the schools! Can you text to them know?
+

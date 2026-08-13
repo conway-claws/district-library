@@ -276,3 +276,63 @@ We can't wait to see everyone and kick off another fantastic year at Marguerite 
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-10 · Audrey Cooper (id 12777658)
+
+Attention, Kindergarten Families! 
+
+We can't wait to welcome our newest Marguerite Vann Elementary students.  Kindergarten is such an exciting milestone, and we are thrilled to begin this journey with you and your little one!
+
+ Kindergarten students begin Monday, August 17,  at 9:00 A.M.
+Parents are welcome to walk their students to class.
+
+Stop by our BOO HOO Breakfast from 9:00–9:30 A.M.! This special breakfast is just for parents—a chance to take a breath, connect with other families, and remind yourself that we're here to support you every step of the way. 💙
+
+We are SO excited for an amazing year together!
+Welcome to Marguerite Vann Elementary, Kindergarten families!
+
+### 2026-08-10 · Audrey Cooper (id 12791913)
+
+🎮✨ Marguerite Vann Staff Kicked Off Professional Development Week in STYLE! ✨
+
+GAME ON! 🎯 Let’s LEVEL UP! 🚀
+
+Our MVE team is ready to level up our learning, sharpen our skills, and get ready for an amazing school year! 📚💡
+
+This week is all about learning, collaborating, growing, and preparing to make a difference for every student who walks through our doors. 💙
+
+The game is on, and our team is ready!
+
+#WeAreMVE
+
+### 2026-08-11 · Audrey Cooper (id 12795540)
+
+We are so grateful for the incredible community partners who continue to support our staff at Marguerite Vann Elementary!
+
+A special THANK
+
+### 2026-08-12 · Audrey Cooper (id 12805365)
+
+🎨✨ Thank You, Misty Givens! ✨🎨
+
+A huge thank you to Misty Givens for leading our staff in an engaging and insightful Crayola Understanding Creativity Workshop! 💡🖍️
+
+Our staff had the opportunity to explore their personal creative styles, recognize the strengths and perspectives within our teams, and discover how different ways of thinking can lead to stronger collaboration, better decision-making, and a more inclusive school culture.
+
+We’re excited to take what we learned and apply it in our classrooms, teams, and school community.
+
+Thank you, Misty, for helping us understand that our differences make our team stronger! 💙🎨
+
+### 2026-08-12 · Audrey Cooper (id 12814459)
+
+📣 REMINDER, WAMPUS CAT FAMILIES! 🐾💙
+
+We can't wait to see everyone at Open House at Marguerite Vann Elementary! 🎉
+
+📅 Thursday, August 13
+⏰ 5:30–7:00 PM
+🏫 All families will meet in the cafeteria at 6:30 PM.
+
+Come meet your child's teacher, get ready for an amazing school year, and join us as we kick off 2026–2027! 💙🤍
+
+🐾 We can't wait to see you, Wampus Cat Families!
+

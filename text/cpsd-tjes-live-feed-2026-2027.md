@@ -109,3 +109,13 @@ Get all the details, check requirements, and complete your registration in just 
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-10 · Theodore Jones Elementary (id 12786207)
+
+To help avoid the first-day rush, please call or email Nurse Alicia today to schedule a time this week to bring in any medications or required documentation your child may need at school. Thank you for helping us get everything ready for a smooth start to the school year!
+Email: wimberlya@conwayschools.info
+Ph: 501-450-6645  Option 1
+
+### 2026-08-11 · Theodore Jones Elementary (id 12802769)
+
+Kindergarten open house today. 1st session at 4:30. Second session at 6:30. Please have your drivers license out and ready to check in. Thank you
+

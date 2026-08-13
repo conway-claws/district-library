@@ -286,3 +286,31 @@ Don't forget—Cat Camp is TOMORROW!  All incoming 5th graders are invited to jo
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-10 · Carl Stuart Middle School (id 12768528)
+
+Immunization Reminder:
+The Arkansas State Board of Health Rules and Regulations Pertaining to Immunization Requirements states that every child attending a public school in the state shall receive a series of immunizations in order to enter school. Religious, Medical, and Philosophical exemptions can be obtained through the Arkansas Department of Health. However, proof of exemption letters must be obtained each year and provided to the school for their records. (AR Code Annotated 20-7-109, 6-18-702, 6-60-504, 20-78-206).
+
+If your child is already 11 years old or will turn 11 yrs. before September 1, 2025, he/she will need the Tdap and the MCV4 vaccines before returning to school this year. If your child is entering 7th grade and has not received the MCV4 vaccine, he/she must have this before returning to school this year. 
+
+The deadline for receiving these immunizations is October 1, 2025. If your child does not have the required immunizations by this date, he/she will be sent home until immunizations are updated. There will be NO exceptions! 
+
+All updated records must be turned in to Nurse Siegel. 
+
+Any questions or concerns should be sent to Nurse Siegel at siegelh@conwayschools.info. Or, please call 501-329-2782 with any questions. Thank you!
+
+### 2026-08-10 · Carl Stuart Middle School (id 12791927)
+
+🏫🐾 Open House is TOMORROW! 
+
+Join us Tuesday, August 11, from 5–7 PM for our 2026–2027 Back-to-School Open House! This is a free-flow event, so stop by anytime to:
+
+✨ Meet your teachers and administrators
+📚 Walk through classrooms and hallways
+🗓️ Pick up your schedule if you still need one
+💻 Get help accessing Rooms or Schoology in the library
+
+We can’t wait to welcome our Wampus Cats back to Carl Stuart! 💙🐾
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+

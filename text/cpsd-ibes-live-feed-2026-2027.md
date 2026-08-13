@@ -136,3 +136,24 @@ Get all the details, check requirements, and complete your registration in just 
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-12 · Ida Burns Elementary (id 12816020)
+
+🎪💙 **TOMORROW NIGHT IS OPEN HOUSE!** 💙🎪
+
+We can’t wait to welcome our Ida Burns families tomorrow night, **Thursday, August 13**, for Open House! 🐾✨
+
+📚 **Kindergarten:** 5:00–5:30
+Our kindergarten students will meet in the cafeteria! 
+
+🏫 **1st–4th Grade:** 5:30–6:30
+Students will have the opportunity to meet their teachers and get ready for an amazing new school year!
+
+🍧 **BONUS FUN!** 🍧
+**Kona Ice will be available for purchase**, so come a little early or stay a little longer and enjoy a sweet treat!
+
+We are SO excited to see our Wampus Cats and kick off an incredible school year together! 💙🐾
+
+🎉 **Tomorrow night! August 13! We’ll see you there!** 🎉
+
+#IdaBurnsElementary #OpenHouse #WampusCats #BackToSchool
+

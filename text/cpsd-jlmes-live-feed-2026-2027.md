@@ -195,3 +195,42 @@ We are excited to announce that Anita Mathis will be joining Julia Lee Moore as 
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-10 · Julia Lee Moore Elementary (id 12782835)
+
+🔔 JLM PARENT QUICK REFERENCE GUIDE! 🔔
+
+Got questions about arrival, dismissal, snacks, or tardies for the upcoming school year? We’ve got you covered!
+
+Check out this infographic for a quick breakdown of everything you need to know for the 2026–2027 school year.
+
+We can't wait for an amazing year together! 💙
+
+#CultureOfCaring #JuliaLeeMoore  #BackToSchool
+
+### 2026-08-11 · Julia Lee Moore Elementary (id 12782717)
+
+⏰ REMINDER: Kindergarten Open House is TOMORROW! ⏰
+
+📅 Date: Tomorrow, Wednesday, August 12th
+⏰ Time: 5:00 PM – 6:30 PM
+📌 Important: Please plan to arrive promptly so you are seated inside by 5:00 PM!
+
+🩺  Nurse Jennifer will also be on site to collect all required student health forms and medications. Please bring these with you tomorrow evening!
+
+Meet us there—it’s going to be a great evening! 🐾✨
+
+#CultureOfCaring #JuliaLeeMooreElementary #KindergartenOpenHouse #BackToSchool
+
+### 2026-08-12 · Julia Lee Moore Elementary (id 12782777)
+
+✏️ REMINDER: 1st–4th Grade Open House is TOMORROW! 🐾
+
+📅 Date: Tomorrow, Thursday, August 13th
+⏰ Time: 5:00 PM – 6:30 PM
+🚶‍♂️ Format: Drop-in! Feel free to come and go anytime between 5:00 and 6:30 PM to tour classrooms and meet teachers.
+🩺 Nurse's Station: Nurse Jennifer will also be available to collect student medications and required health forms! 📋
+
+We can't wait to see you all tomorrow evening! 💙
+
+#CultureOfCaring #JuliaLeeMooreElementary #OpenHouse #BackToSchool
+

@@ -162,3 +162,19 @@ See you there, Jim Stone families!
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-10 · Barbara Clardy (id 12713286)
+
+📣 Kindergarten Families! 📣
+
+Our Boo Hoo & Woo Hoo Breakfast is just ONE WEEK AWAY on the first day of school — Monday, August 17th! ☕️🍩
+
+Whether you're teary-eyed or cheering that summer's through, join us in the parent lunchroom from 9:00-9:30 AM for coffee, treats, and smiles! 💙
+
+Hosted by our PTO — we can't wait to see you there!
+
+#WeAreJSE
+
+### 2026-08-12 · Barbara Clardy (id 12815208)
+
+JSE teachers, staff, and former students 🎉 celebrated 🎉 the new school year at today's Convocation. We are proud Wampus Cats! 💙🐱
+

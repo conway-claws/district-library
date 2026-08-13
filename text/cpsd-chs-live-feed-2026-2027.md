@@ -532,3 +532,244 @@ Please join CHS Tennis at our annual Stoby's fundraiser Sunday August 9th anytim
 
 Meet the Cats/Volleyball Showcase
 
+### 2026-08-10 · Conway High School (id 12754498)
+
+🎉 Welcome to CHS, Roger Rasico!
+
+Please join us in welcoming Roger Rasico to the Conway High School family!
+
+Mr. Rasico is joining our Career and Technical Education Department as a Criminal Justice Teacher and is excited for the opportunity to work with our students and become part of the CHS community. He looks forward to sharing his knowledge and helping students explore opportunities in the field of criminal justice.
+
+Outside of the classroom, Mr. Rasico enjoys spending time with his family, including his granddaughters, Tenlee and Tyler Cate, traveling with his wife, staying active, and tending to his "amateur" flower garden. At home, he enjoys life with his dogs, Bruno and Stella, and cats, Blue and Bella.
+
+We're excited to have Mr. Rasico join the Wampus Cat family and can't wait to see the experience, enthusiasm, and sense of humor he'll bring to our students and staff.
+
+💙 Welcome to CHS, Mr. Rasico!
+
+#ConwayHighSchool #WampusCats #CTEatCHS
+
+### 2026-08-10 · Katy Gorden (id 12787671)
+
+📣✨ CONWAY CHEER & DANCE MINI CLINIC 2026! ✨📣
+
+We’re so excited to announce that Conway Cheer & Dance are hosting our 2026 Mini Clinic 💙🐾
+
+Clinic: September 26th, 2026
+Game performance: October 2nd, 2026
+
+Come learn, dance, cheer, stunt, and have a TON of fun with us! We can’t wait to see all of our future Wampus Cats! 🐾💙
+
+SIGN UP HERE:
+[GoFan Registration](https://gofan.co/event/6794667?schoolId=AR4663&utm_source=chatgpt.com)
+
+Tag a friend & share this post! 📣
+We’ll see you September 26th! 💙✨
+
+### 2026-08-10 · Conway High School (id 12754622)
+
+🎉 Welcome to CHS, Dr. Anne Holder!
+
+Please join us in welcoming Dr. Anne Holder to the Conway High School family!
+
+Dr. Holder is joining our campus as the Science Instructional Coach and is excited to support our science teachers as they continue to grow their instructional practices. She looks forward to collaborating with teachers, supporting student learning, and being a positive light in our campus community.
+
+Dr. Holder and her husband moved to Conway from Texas in 2023. Outside of school, she enjoys spending time outdoors with her husband and their sweet pup, cycling, and cheering on all things purple. She recently completed 44 miles in the Wampoo Rodeo and is always ready for a good taco!
+
+We're excited to have Dr. Holder join the Wampus Cat family and look forward to the knowledge, energy, and encouragement she'll bring to CHS.
+
+💙 Welcome to CHS, Dr. Holder!
+
+#ConwayHighSchool #WampusCats #ScienceAtCHS
+
+### 2026-08-11 · Katy Gorden (id 12787702)
+
+📣✨ CONWAY CHEER & DANCE MINI CLINIC 2026!✨📣 📅 **September 26th, 2026** Come learn, dance, cheer, stunt, and have a TON of fun with us! We can’t wait to see all of our future Wampus Cats! 🐾💙 🎟️ 
+
+SIGN UP HERE: https://gofan.co/event/6794667?schoolId=AR4663
+
+Tag a friend & share this post!📣 We’ll see you September 26th! 💙✨
+
+### 2026-08-11 · Conway High School (id 12754780)
+
+🎉 Welcome to CHS, Justin McEntire!
+
+Please join us in welcoming Justin McEntire to the Conway High School family!
+
+Mr. McEntire is joining our History Department as an 11th Grade U.S. History Teacher and is excited to help students explore the events, ideas, and perspectives that have shaped modern United States history. He looks forward to helping students build historical thinking skills, make connections to the world around them, and better understand how the past influences our present.
+
+Outside of the classroom, Mr. McEntire enjoys spending time outdoors, hiking through Arkansas state parks, and camping during the fall and spring months.
+
+We're excited to have Mr. McEntire join the Wampus Cat family and can't wait to see the curiosity and engagement he'll inspire in our students this year.
+
+💙 Welcome to CHS, Mr. McEntire!
+
+#ConwayHighSchool #WampusCats #HistoryAtCHS
+
+### 2026-08-11 · Conway High School (id 12796795)
+
+🏫 CHS OPEN HOUSE IS TOMORROW! 🐾
+
+Conway High School families, join us Wednesday, August 12, from 4:00–7:00 p.m. for Open House! Come meet your student's teachers and take care of several important back-to-school items.
+
+Here's what will be available:
+
+💻 CHROMEBOOKS
+• $5 Chromebook chargers available while supplies last
+• Chromebook insurance available for $20
+
+🔐 LOCKERS
+• Lockers available to rent for $5
+
+🪪 STUDENT IDs
+• Juniors and seniors may continue using last year's ID
+• Initial ID: FREE
+• Replacement ID: $5
+
+🚗 PARKING PASSES
+Parking passes will be sold first-come, first-served during Schedule Pickup. If passes remain, they may also be purchased at Open House from 4:00–7:00 p.m. or during the school year through the main office.
+
+To purchase a parking pass, students must bring:
+• $25 cash or check (no credit/debit cards)
+• Valid driver's license
+• Current proof of insurance
+• Vehicle information: license plate number, make/model, and color
+
+🎓 INTERESTED IN DUAL ENROLLMENT?
+
+Students and families interested in Dual Enrollment or earning an Associate Degree while still in high school are invited to an informational meeting during Open House.
+
+📅 Wednesday, August 12
+⏰ 6:00–7:00 p.m.
+📍 CHS Cafeteria
+
+Representatives from UACCM and Conway High School will discuss eligibility, coursework, scheduling, tuition savings, credit transfer, and answer your questions.
+
+📧 Students and parents, be sure to check your email for additional details and the event flyer.
+
+We can't wait to see our Wampus Cat families tomorrow! 🐾
+
+### 2026-08-11 · Beth Fluesmeier (id 12799768)
+
+Friday is our annual Booster Club Fundraiser!  Come out and support our fall athletes!
+
+Employee Badges and passes do NOT work for admission.
+
+### 2026-08-11 · Beth Fluesmeier (id 12799846)
+
+Passes for athletic events will be available for purchase soon at GoFan.co
+
+### 2026-08-11 · Conway High School (id 12754806)
+
+🎉 Welcome to CHS, Ms. Canaan Groesbeck!
+
+Please join us in welcoming Canaan Groesbeck to the Conway High School family!
+
+Ms. Groesbeck is joining our Wampus Cat Athletics program as an Assistant Volleyball Coach and is excited for the opportunity to build relationships with our students and become part of the CHS community. With her background as a former track athlete at Arkansas State University, she brings a passion for athletics, teamwork, and helping student-athletes grow both on and off the court.
+
+Outside of coaching, Ms. Groesbeck enjoys spending time with her husband, Preston, and their 2-year-old daughter, Ava.
+
+We're excited to have Ms. Groesbeck join the Wampus Cat family and look forward to the energy, dedication, and positive relationships she'll bring to our volleyball program.
+
+💙 Welcome to CHS, Coach Groesbeck!
+
+#ConwayHighSchool #WampusCats #WampusCatAthletics
+
+### 2026-08-11 · Conway High School (id 12755183)
+
+🎉 Welcome to CHS, Kate Duggan!
+
+Please join us in welcoming Kate Duggan to the Conway High School family!
+
+Ms. Duggan is joining our Science Department and is excited to help students explore the fascinating worlds of biology and environmental science. She looks forward to creating meaningful learning experiences and supporting students as they build a deeper understanding of the world around them.
+
+Outside of the classroom, Ms. Duggan enjoys baking, trying new foods and recipes, and sharing her love of music. She played the flute throughout high school and college and continues to appreciate the creativity that comes with the arts.
+
+This year, Ms. Duggan is also looking forward to experiencing Wampus Cat pride and cheering on Conway High School football!
+
+We're excited to have Ms. Duggan join the Wampus Cat family and can't wait to see the curiosity and enthusiasm she'll bring to our students.
+
+💙 Welcome to CHS, Ms. Duggan!
+
+#ConwayHighSchool #WampusCats #ScienceAtCHS
+
+### 2026-08-12 · Conway High School (id 12754276)
+
+🎉 Welcome to CHS, Madison Gray!
+
+Please join us in welcoming Madison Gray to the Conway High School family!
+
+Mrs. Gray is joining our Counseling Department this year and will be working with students whose last names begin with A through C. She brings a wealth of experience to her new role after spending 10 years as an English teacher at Conway High School. She is excited to get to know her students and help them make the most of their high school experience.
+
+Outside of school, Mrs. Gray enjoys reading, traveling, and learning new things. She is currently learning to embroider and counts Scotland as her favorite travel destination so far!
+
+We're excited to have Mrs. Gray continue her journey at CHS in this new role and look forward to the positive impact she'll have on our students and families.
+
+💙 Welcome to CHS, Mrs. Gray!
+
+#ConwayHighSchool #WampusCats #StudentSuccess
+
+### 2026-08-12 · Conway High School (id 12754318)
+
+🎉 Welcome to CHS, Dr. Alicia Dittrich!
+
+Please join us in welcoming Dr. Alicia Dittrich to the Conway High School family!
+
+Dr. Dittrich is joining our Health Sciences Department and is excited to continue growing opportunities for students interested in healthcare careers. She is passionate about helping students develop the skills, knowledge, and compassion needed to become the next generation of healthcare professionals and make a difference in the lives of others.
+
+Although Dr. Dittrich recently moved to Conway from Houston, Texas, this community already feels like home. She previously played volleyball at the University of Central Arkansas and considers Conway her second home. Outside of school, she enjoys staying active and traveling with her family.
+
+We're excited to have Dr. Dittrich join the Wampus Cat family and can't wait to see the impact she'll make on our students and future healthcare leaders.
+
+💙 Welcome to CHS, Dr. Dittrich!
+
+#ConwayHighSchool #WampusCats #HealthSciences
+
+### 2026-08-12 · Conway High School (id 12756236)
+
+🎉 Welcome to CHS, Dr. Cody Jackson!
+
+Please join us in welcoming Dr. Cody Jackson to the Conway High School family!
+
+Dr. Jackson is joining the English Department this year and is passionate about helping students discover their voices through writing. He believes everyone is a writer and that the stories we tell ourselves and one another help shape who we are and the communities we build together. He's also excited to learn from his students and the unique perspectives they'll bring to the classroom.
+
+Outside of school, Dr. Jackson enjoys playing video games on his PS5, thrifting and antiquing, exploring historic buildings, and is one of seven siblings.
+
+We're excited to have Dr. Jackson as part of the Wampus Cat family and can't wait to see the impact he'll make on our students this year.
+
+💙 Welcome to CHS, Dr. Jackson!
+
+#ConwayHighSchool #WampusCats #EnglishAtCHS
+
+### 2026-08-12 · Sara Flenor (id 12811433)
+
+🥎 LADY CAT SOFTBALL SKILLS & DRILLS 🥎
+
+Calling all current Conway 6th-8th grade softball players!
+
+Come sharpen your skills this fall with our Lady Cat coaching staff and players! Whether you're looking to improve your hitting, fielding, throwing, or overall game, these sessions are a great way to prepare for the next level.
+
+📅 Wednesdays: September 2, 9, 16, 23, 30  ⏰ 4:00 PM – 5:00 PM 📍 Conway High School Softball Field 💰 $10 per player, per session
+
+Bring your glove, bat, helmet, water, and a great attitude—we'll take care of the rest!
+
+💙 Build confidence. Improve your skills. Have fun. 
+🐾 Go Lady Cats!
+
+Sign Up Here! https://forms.gle/fsy8RHgrBxFuA7eA6
+
+### 2026-08-12 · Conway High School (id 12815210)
+
+🎓 SAVE THE DATE, SENIORS! 🎓
+
+The countdown to graduation is officially on! 🎉
+
+The Conway High School Class of 2027 Graduation Ceremony is scheduled for the evening of Monday, May 17, 2027.
+
+📅 Graduation: Monday, May 17, 2027 — Evening
+📚 Graduation Rehearsal: Monday, May 17 — Morning
+🌧️ Inclement Weather Date: Tuesday, May 18, 2027
+
+Mark your calendars now, and get ready for a very special night! 💙🐾 More details will be shared as we get closer to the big day.
+
+Class of 2027 — your moment is coming! 🎓✨
+

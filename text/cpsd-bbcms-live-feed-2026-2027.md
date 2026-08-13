@@ -170,3 +170,7 @@ Please remember that lockers and Chromebook insurance are cash or check only. #W
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-11 · Courtway Middle School (id 12801079)
+
+We can't wait to see you at CMS Open House tonight from 5–7 PM!
+

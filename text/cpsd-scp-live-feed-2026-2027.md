@@ -131,3 +131,11 @@ We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back B
 
 Be sure to stop by the Sallie Cone Preschool table and say hello to ou
 
+### 2026-08-10 · Marci Martin (id 12790069)
+
+🪪 Friendly Reminder: For the safety of all our students, a photo ID is required each day when signing your child out at dismissal.
+
+Please be sure to have your ID with you and ready to show each day at pick-up.
+
+Thank you for helping us keep our Little Cats safe! 💙🐾
+

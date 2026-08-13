@@ -249,3 +249,83 @@ Come watch some great high school golf and cheer on your Wampus Cats!
 LET’S GO WAMPUS CATS! 
 #CompeteEveryDay
 
+### 2026-08-09 · Marquis Rogers (id 12782502)
+
+Good afternoon, everyone!
+
+Just a reminder that our Professional Development Week begins tomorrow! I'm excited to have everyone back together and to officially kick off the 2026–2027 school year.
+
+Tomorrow's Schedule:
+
+Professional Development | 12:00–7:00 PM
+We will begin promptly at 12:00 PM in the auditorium. Sign-in sheets will be available, so please arrive early enough to sign in, find your seat, and be ready to begin right at noon.
+
+Important: Your name will only appear on the sign-in sheet if you have registered in ESCWorks. If you have not registered yet, please take care of that before tomorrow:
+
+https://www.escweb.net/ar_esc/catalog/session.aspx?session_id=581276
+
+Staff Photo | 3:15 PM – Football Field
+For our staff photo, please wear your blue staff shirt and blue jeans. You will receive your staff shirt tomorrow.
+
+Blue connects directly to our theme for this year: Purposeful Impact. It represents trust, unity, stability, wisdom, and confidence - qualities that help make a strong school community.
+
+We'll talk more about Purposeful Impact during our opening session tomorrow.
+
+Dinner | 3:30–4:30 PM
+Dinner will be served out of Room 118.
+
+Open House | 5:00–7:00 PM
+
+You can view the full PD schedule here:
+
+https://docs.google.com/presentation/d/1J68BpLLLkApHFmR5t5sodgpyKt5GOSSDgU7ipQf3Mt8/edit?usp=sharing
+
+I'm looking forward to seeing everyone tomorrow and getting our year started together. Let's make a Purposeful Impact!
+
+### 2026-08-10 · Marquis Rogers (id 12790768)
+
+CJHS Staff,
+
+Just a few reminders for this afternoon:
+
+📸 Staff Photo – 3:15 PM
+Please meet on the football field at 3:15 for our staff photo. Wear the blue staff shirt you received today.
+
+🍽️ Dinner – 3:30 PM
+Dinner will be served out of Room 118 beginning at 3:30.
+
+🏫 Open House – 5:00–7:00 PM
+Once you finish dinner, you can begin setting up and getting ready for Open House. Doors will open at 5:00 PM, and Open House will run until 7:00 PM.
+
+Thank you for a great start to the week! I appreciate everyone's help in making tonight a great experience for our students and families.
+
+### 2026-08-11 · Marcus Kordsmeier (id 12794073)
+
+WAMPUS CAT INVITATIONAL — RESULTS
+
+What a day for Wampus Cat Golf!
+
+🏆 *BOYS — 1ST PLACE
+🥈 *GIRLS — 2ND PLACE
+
+Proud of the way both teams competed, battled through tough conditions, and represented Conway High School with effort and composure.
+
+A huge THANK YOU to Conway Country Club for hosting, all our sponsors and to everyone who came out to support our teams and helped make the 2026 Wampus Cat Invitational a success!
+
+GO WAMPUS CATS!!
+#CompeteEveryDay
+
+### 2026-08-11 · Marquis Rogers (id 12804347)
+
+Please see the attached seating chart, and remember to wear your black shirt tomorrow.
+
+### 2026-08-12 · Marquis Rogers (id 12807987)
+
+Travelin' Tom's Coffee Truck will be in the parking lot of Ida Burns after convocation for teachers wanting to grab drinks with their wristband.
+
+### 2026-08-12 · Marquis Rogers (id 12808873)
+
+Staff, you will still have your full hour and a half for lunch today. Please make sure you are back on campus by 1:00 p.m.
+
+Enjoy your lunch!
+

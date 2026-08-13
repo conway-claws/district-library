@@ -238,3 +238,50 @@ Conway 2026-2027 7th grade girls basketball team day.
 
 “Backwards” day at practice for Ruth Doyle volleyball
 
+### 2026-08-10 · Rachel Fowler (id 12788883)
+
+Ruth Doyle Middle School
+🎉🎉Open House Reminder🎉🎉
+
+Tuesday, August 11
+5:00 - 7:00 pm
+
+📚Meet the Teachers
+📚Find your Classrooms
+📚Explore the School
+
+✨✨We are excited to start an amazing year✨✨
+
+#WeAreRDMS #TeamConway
+
+### 2026-08-10 · Rachel Fowler (id 12789955)
+
+RDMS administration, teachers, and staff gearing up for the 2026-27 season!!🎉🎉
+
+Thank you to Natasha Flowers for the amazing sports balloon arch and Angela Rogers for the decals for the clipboards!!
+
+First Quarter...Here We Come!! 🏆🏆
+
+#WeAreRDMS 
+#TeamConway
+
+### 2026-08-11 · Rachel Fowler (id 12801290)
+
+🚨🚨 Update from Ruth Doyle School Nurse: 
+Any medication brought to school MUST be accompanied by a physician's order and/or an action plan. The medication label on the bottle or box alone is not sufficient.
+
+
+💉💉 Immunization Reminder: 
+Students who have turned or will turn 11 years old this school year must receive the required Tdap vaccine. If your student turns 11 before school starts, the vaccine is required BEFORE the first day of school.
+
+Meningococcal vaccination is required BEFORE entering 7th grade.
+
+Immunization Exemption Letters are also due BEFORE the first day of school.
+
+
+📨📱Contact Nurse Harper if you have any questions.
+
+### 2026-08-12 · Rachel Fowler (id 12810333)
+
+🎉🎉 Coach Holloway representing Ruth Doyle in a dance off and as Teacher of the Year at the 2026-27 Conway Schools Convocation!! 🎊🎊
+
