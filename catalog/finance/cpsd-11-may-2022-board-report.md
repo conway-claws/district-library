@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-11-may-2022-board-report.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [finance, monthly-financial-reports, 2021-2022]
 date: 2022-05-31
 sha256: 04dee40bffce2c0b49e8e9930b4e775fd68d06ccfaf46f91dc87812a1e692425
 extractor: pdftotext@26.08.0+finance-table
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

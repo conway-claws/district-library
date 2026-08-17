@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-46-licensed-personnel-responsibilities-in-dealing-with-sex-offenders-on-campus-2.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: superseded
 tags: [school-board, policy, licensed-personnel]
 date: 2009-05-12
 sha256: fec6b013894f2e5c0034d75bcae616738ae2b3b38a5900a1265a717efa058119
 superseded_by: cpsd-3-46-licensed-personnel-responsibilities-in-dealing-with-sex-offenders-on-campus
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

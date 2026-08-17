@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-2026-02-10-board-minutes.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [school-board, minutes, 2025-2026]
 date: 2026-02-10
 sha256: f73fb871b2837003173a42ee2d56e5b2ddaaf4d8835bcf81e2ab1acda24f7d37
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

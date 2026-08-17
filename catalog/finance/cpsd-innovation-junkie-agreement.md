@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-innovation-junkie-agreement.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [finance, employee-contracts, state-required, ocr-extracted]
 sha256: f4539a5911fcdfd02abc326126e954e48043da12206f70fe8ec1e2e194b0b4b8
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

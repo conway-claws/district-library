@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-43-written-code-of-conduct-for-employees-child-nutrition.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: superseded
 tags: [school-board, policy, classified-personnel]
 date: 2016-04-19
 sha256: 101dc2a801e8c22489cd9eca0055ba9af7d6f80e35bcd1c704e5b73ef3e35816
 superseded_by: cpsd-8-43-written-code-of-conduct-for-employees-child-nutrition-05-23-2019
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

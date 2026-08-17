@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-board-report-november-2018.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [finance, monthly-financial-reports, 2018-2019]
 date: 2018-11-30
 sha256: 76828b8767d0fd0556393ce1de2e4c05b07b32e37afc7a52ec4c5bf9b66b7c0e
 extractor: pdftotext@26.08.0+finance-table
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

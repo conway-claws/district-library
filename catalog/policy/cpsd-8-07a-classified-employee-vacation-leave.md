@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-07a-classified-employee-vacation-leave.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2007-06-12
 sha256: 62768460dd09ef46db3fb52b1d5eb430917d62ab39bda3949f04a3902a0dd3d7
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

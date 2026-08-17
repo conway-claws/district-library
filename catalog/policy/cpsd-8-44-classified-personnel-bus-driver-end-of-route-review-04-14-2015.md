@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-44-classified-personnel-bus-driver-end-of-route-review-04-14-2015.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2015-04-14
 sha256: f722b6306009a31880d5cf8631e94fec81a97123c89286699689857555dc1eb7
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

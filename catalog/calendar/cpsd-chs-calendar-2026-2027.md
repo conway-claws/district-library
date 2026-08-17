@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-chs-calendar-2026-2027.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [calendar, 2026-2027]
 sha256: fd5d87ddad4c4c068984bd37c555467045e0b3e9b62d8e992853d8df2b8eddc8
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

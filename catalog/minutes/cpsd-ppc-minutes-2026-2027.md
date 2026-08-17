@@ -11,10 +11,10 @@ drive_kind: folder
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [ppc, personnel-policy-committee, minutes, 2026-2027]
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

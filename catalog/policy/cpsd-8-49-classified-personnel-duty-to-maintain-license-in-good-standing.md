@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-49-classified-personnel-duty-to-maintain-license-in-good-standing.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2024-04-09
 sha256: 50fcab3d2c24d2bcb9989d74627fd1b4488822fc86a54834c8bef66c92501212
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

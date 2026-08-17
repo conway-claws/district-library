@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-tje-2025-26-school-improvement-plan.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [school-board, school-improvement-plan, 2025-2026]
 sha256: 0a4bf008b176bc6f9ffd8c1f51f0701c0e4eaa476da36c53ac2fee0fb6ae2178
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

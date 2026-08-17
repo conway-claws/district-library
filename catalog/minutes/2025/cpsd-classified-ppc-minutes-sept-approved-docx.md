@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-classified-ppc-minutes-sept-approved-docx.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [ppc, personnel-policy-committee, minutes, 2025-2026]
 sha256: 4fd691730329b8216878fa15afe925cd175684387989f3cce7956139c87d7e3c
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

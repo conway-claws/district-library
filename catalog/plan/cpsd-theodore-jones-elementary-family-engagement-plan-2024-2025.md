@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-theodore-jones-elementary-family-engagement-plan-2024-2025.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [school-board, family-engagement-plan, 2024-2025]
 sha256: 2512949ddda9d67235672ae3bfe7f882ed99b742ed198bc3a02921b125953a05
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

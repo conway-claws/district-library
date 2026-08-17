@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-65-licensed-personnel-name-title-or-pronoun.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2024-04-09
 sha256: 15466d5ea5123b616ac630413ca9ffa534659056a457cf071c482abb735e6bce
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

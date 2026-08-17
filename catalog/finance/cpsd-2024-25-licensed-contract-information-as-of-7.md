@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-2024-25-licensed-contract-information-as-of-7.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [finance, employee-contracts, state-required, 2024-2025]
 sha256: 5ec90cb09be8ba305ec57fc4055d96c5387a5a5d887b9e4b6b5d96ae0715193d
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---

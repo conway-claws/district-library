@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-web-classified-hourly-employee-contract-info-2021-2022.md
 retrieved: 2026-08-09
-verified: 2026-08-10
+verified: 2026-08-17
 status: current
 tags: [finance, employee-contracts, state-required, 2021-2022]
 sha256: 6c99e59d06d7a2fffd6080bdb5a7713e9da4e6ddc6c886f4a2b9bb4a134f0203
-last_check: 2026-08-10
+last_check: 2026-08-17
 fail_since:
 fail_reason:
 ---
