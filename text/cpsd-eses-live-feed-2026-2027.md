@@ -110,3 +110,39 @@ It will again be closed Wednesday until 1pm to allow all staff members to attend
 
 Are your students ready to meet their teacher?  Make sure you don't miss our open house this Thursday!  Doors open at 5pm. Kindergarten parents will meet with Mr. Coatney in the cafeteria at 5:15. All other grades can visit their classrooms at 5:30.  See you then!
 
+### 2026-08-13 · Ellen Smith Elementary (id 12819868)
+
+Families, please familiarize yourself with the flow of traffic for our car line. This will be our system for both drop off and pick up.
+
+### 2026-08-13 · Conway Public Schools (id 12662623)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Matthew Coatney (id 12836870)
+
+The guys of Ellen Smith are ready for the first day of school! 
+
+Enjoy your weekend and rest up! Can't wait to see everyone on Monday!
+
+### 2026-08-15 · Matthew Coatney (id 12838409)
+
+As we begin a new school year Monday, our commitment is simple: Every student will be known, loved, and challenged.
+
+This is not a phrase that will just be said, but lived out each day inside Ellen Smith. Our goal as a staff is to know them deeply, love them intentionally, and challenge them relentlessly to grow and give their best while attending ESE. 
+There will be days that are challenging, but our commitment to your children will never change. We will celebrate progress, learn from mistakes, and continue moving forward together.
+Monday is the beginning of something special at Ellen Smith. Let’s make it an incredible year together!-Mr. Coatney
+
+### 2026-08-15 · Matthew Coatney (id 12838414)
+
+Ellen Smith Elementary is where you are KNOWN, LOVED, & CHALLENGED. The staff will know students deeply, love them intentionally, and challenge them relentlessly to grow and give their best. Monday is Day 1 of a special journey for ESE students this year.
+
+### 2026-08-16 · Conway Public Schools (id 12841076)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-18 · Ellen Smith Elementary (id 12854981)
+
+Here is a list of PTO meetings for the 26-27 school year.  We hope many of you can join us to support our students and staff!
+

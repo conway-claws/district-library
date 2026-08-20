@@ -139,3 +139,66 @@ Please be sure to have your ID with you and ready to show each day at pick-up.
 
 Thank you for helping us keep our Little Cats safe! 💙🐾
 
+### 2026-08-13 · Conway Public Schools (id 12662616)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-16 · Marci Martin (id 12839568)
+
+We are excited to welcome our Sallie Cone Preschool students tomorrow! 💙🐾 We know the first day comes with lots of excitement (and maybe a few nerves!), so here are a few important reminders to help make arrival and dismissal go smoothly.🌞 Morning Drop-Off: 7:45–8:10 a.m.Park in the large parking lot located off Robins Street.Walk your child to the cafeteria using the sidewalks and crosswalks.You will use your 4-digit Procare code to sign your child in with their teacher.📝 Did NOT Make It to Open House?Please allow yourself a little extra time tomorrow morning. Before signing your child in at the cafeteria, you will need to stop by the parent entrance to complete your child’s Emergency Contact Form and and sign the Parent Handbook Form.📱 Have You Set Up Your Procare Account?Procare is very important! You will use it to sign your child in and out each day and to communicate/message with your child’s teacher.New Procare users:Please use the link that was sent to your email to set up your account.Returning Procare users:If you have used Procare in previous years, you will use the same account. There is no need to create or verify a new account.If you have had a Procare account before but cannot access it:Procare recommends going to the login screen and signing in with your email address and password. If needed, reset your password. Please do not create an additional account.If you have never had a Procare account before, the Parent Help Guide below may help you with setup:Parents: How to Sign Up for a Procare AccountIf you are still having trouble accessing or setting up your account, or if you never received an email invitation, come to the parent entrance tomorrow morning, and we will be happy to help you troubleshoot.🚗 Afternoon Dismissal: 2:55–3:15 p.m.Park in the large parking lot located off Robins Street.Enter through the parent entrance and walk to your child’s classroom.Use your 4-digit Procare code to check your child out.Please have a photo ID with you and be prepared to show it at dismissal.We are looking forward to a wonderful first day and an amazing school year with Conway Public Schools’ Littlest Cats! 💙🐾
+
+### 2026-08-16 · Conway Public Schools (id 12841069)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-18 · Marci Martin (id 12863394)
+
+Dear Sallie Cone Preschool Families,
+
+Now that we are getting settled into the school year, we want to share a few important reminders from our Parent Handbook regarding arrival and dismissal procedures. Thank you for helping us keep our school day safe and running smoothly! 💙
+
+🌅 Morning Drop-Off | 7:50–8:10 a.m.
+Morning drop-off is 7:50–8:10 a.m.
+If you arrive after 8:10, you must check your child in at the parent entrance and breakfast will not be provided.
+A picture ID is required before entering the building to check in your child.
+
+⏰ Arrivals After 9:00 a.m.
+
+Students may NOT be checked in after 9:00 a.m. without appropriate documentation for the late arrival.
+
+Acceptable documentation may include a doctor’s note, therapy appointment note, court documentation, or other official documentation.
+
+Students arriving after 9:00 a.m. without documentation will not be permitted to attend school for the remainder of the day.
+
+Late arrivals impact classroom instruction, lunch counts, and the required teacher-to-student ratios for our preschool classrooms. We appreciate your help in minimizing these disruptions.
+
+🚗 Transportation Changes | Before 2:00 p.m.
+
+Need to change how your child is going home? Please message your child’s teacher through Procare before 2:00 p.m.
+
+Transportation changes cannot be made by phone or after 2:00 p.m.
+
+🚫 No Checkouts | 2:40–2:55 p.m.
+
+For student safety and to allow us to complete our dismissal procedures, students may NOT be checked out between 2:40 and 2:55 p.m.
+
+🏠 Afternoon Pickup | 2:55–3:15 p.m.
+
+Dismissal ends at 3:15 p.m.
+
+After 3:15, you will be required to show a picture ID before your child is released. Parents and emergency contacts will be contacted for students who have not been picked up. If no one can be reached, the School Resource Officer will be contacted.
+
+Thank you for your cooperation and for helping us keep our littlest Wampus Cats safe! 💙🐾
+
+### 2026-08-19 · Marci Martin (id 12863461)
+
+Please check your email and/or Procare for a reminder about the arrival and dismissal procedures outlined in our Parent Handbook. 💙🐾
+
+We want to make sure everyone is familiar with our procedures—whether you were unable to attend Open House or the first week of school has simply been a blur! 😊
+
+Every family received a copy of the Parent Handbook at Open House. If you were unable to attend, you received a copy when finalizing your child's paperwork this week.
+
+Thank you for taking a few minutes to review these important procedures! 💙
+

@@ -314,3 +314,48 @@ We can’t wait to welcome our Wampus Cats back to Carl Stuart! 💙🐾
 
 #WeAreCarlStuart #WeAreConway #ChampionsforKids
 
+### 2026-08-13 · Conway Public Schools (id 12662629)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Carl Stuart Middle School (id 12824527)
+
+✨ We’re excited to introduce Kylee Arizmendi, who is joining Carl Stuart Middle School as our new 7th Grade ELA Resource & 6th Grade ELA Inclusion Teacher!
+
+Mrs. Arizmendi is a Conway native and graduated in 2018. She holds a Bachelor of Science in K–12 Special Education and is currently pursuing her Master’s in School Counseling. She recently married her husband, Giovanni Arizmendi.
+
+We’re so glad to have Mrs. Arizmendi joining the Carl Stuart family! Take a moment to welcome her in the comments and help us give her a warm Carl Stuart welcome! 💙🐾 
+
+#WeAreCarlStuart #WeAreConway #ChampionsForKids
+
+### 2026-08-14 · Carl Stuart Middle School (id 12829786)
+
+🎉 WELCOME BACK, WAMPUS CATS! 🎉
+
+We are SO excited to kick off the 2026–2027 school year! 🐾📚 We can’t wait to see our students back in the building and make this an amazing year at Carl Stuart!
+
+📅 Be sure to check out our bell schedule so you know what to expect each day.
+
+🔐 Lockers will be available for purchase through the first week of school for $5.
+
+💻 Chromebook insurance is still available in the library for $20.
+
+🚗 And be on the lookout for a drop-off video from Officer Slayton to make sure you know exactly how drop-off works at Carl Stuart!
+
+Let’s have a GREAT first day! 🐾💙
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-08-16 · Conway Public Schools (id 12841085)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-18 · Carl Stuart Middle School (id 12861238)
+
+Girls on the Run is coming to Carl Stuart Middle School! 💜📅 Season: September 14–November 22🏃‍♀️ Days: Tuesdays & Thursdays⏰ Time: 3:31–5:00 PM📍 Location: Carl Stuart Middle School💰 Registration: FREE with code CSMS2026Girls on the Run inspires girls to be joyful, healthy, and confident through a fun curriculum that combines running and movement. 💪✨Register today: https://www.pinwheel.us/register/index/Fall-2026GOTR?sid=88e117103c6d4d72a3cc4f0434edfbc8&fh=0#WeAreCarlStuart #GirlsOnTheRun
+
+### 2026-08-18 · Carl Stuart Middle School (id 12861269)
+
+Just a quick clarification: Girls on the Run is open to 5th grade girls only. 🏃‍♀️💜
+

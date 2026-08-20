@@ -268,3 +268,32 @@ Can you let principals know this and let their staff know?
 
 Hey there! Great job! I meant to text earlier but the Travelin Toms coffee truck will be in the parking lot of Ida burns for teachers wanting to grab drinks with their wristband! We thought that would be the most central location to the schools! Can you text to them know?
 
+### 2026-08-13 · Conway Public Schools (id 12662628)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-16 · Conway Public Schools (id 12841083)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-16 · Karon Branch (id 12841323)
+
+Good evening, 
+Please wear your blue SMS shirts tomorrow as we kick off the first day of school! A light breakfast and lunch will be provided .
+Let's start the year strong, support one another, and make it a great first day at Simon! 💙🐾
+
+### 2026-08-17 · Karon Branch (id 12848944)
+
+Car Rider & Dismissal Safety Reminder 🚗
+
+To help keep our students safe during dismissal, please remember:
+
+• In the car rider lane, students may only enter vehicles in front of the crosswalk.
+• If you are picking up your child in the staff parking lot, please back into a designated parking space to increase visibility and allow you to see students more clearly when leaving.
+• Vehicles will not be allowed to stop in the driving lane to pick up students. You must be parked in a designated parking space.
+• Students will frequently cross through the parking lot, so please proceed slowly and use extra caution when leaving your parking space.
+
+Thank you for following these procedures and helping us keep our students safe!
+

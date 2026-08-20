@@ -336,3 +336,64 @@ Come meet your child's teacher, get ready for an amazing school year, and join u
 
 🐾 We can't wait to see you, Wampus Cat Families!
 
+### 2026-08-13 · Conway Public Schools (id 12662625)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Macaela Seabolt (id 12828006)
+
+🏁Our teachers tackled an Amazing Race style challenge during PD today, cracking puzzles and racing to track down our elusive school manne
+
+### 2026-08-14 · Audrey Cooper (id 12828431)
+
+We had a wonderful Open House last night at Marguerite Vann! ✨ 
+
+It was a great evening connecting with families and getting to know some of our amazing staff. We’re so grateful for everyone who came out and helped make the night such a success! 💙
+
+We can't wait to see you on Monday!
+
+#WeAreMVE!
+
+### 2026-08-16 · Audrey Cooper (id 12840487)
+
+📸 **BACK-TO-SCHOOL PICTURES!** 🐾💙
+
+💙🐾 We want to celebrate our amazing students as they begin a brand-new school year! 🎉📚
+
+Parents, please send us your first day of school pictures so we can help capture and celebrate these special moments. We can’t wait to see all those smiling faces! 🥰📸
+
+Let’s make it a GREAT year! 💙🐾
+
+#WeAreMVE!
+
+### 2026-08-16 · Audrey Cooper (id 12840480)
+
+🚀🐾 **LEVEL UP, WAMPUS CATS!** 🐾🚀
+
+We are so excited to welcome our students and families back to Marguerite Vann Elementary! As we get ready to kick off an AMAZING school year, here are some important morning arrival reminders:
+
+⏰ 1st–4th Grade: Classroom doors will open at  7:45 AM. Teachers will be ready to welcome students and families at that time.
+
+🚪 Before 7:45 AM:  Doors open at  7:30 AM , but parents/guardians will not be allowed to enter the building before 7:45 AM.  Please do not leave your vehicle unattended in the car line. If you need to come into the building, please park in a designated parking spot. All students who are being dropped off before 7:45 must report to the cafeteria. 
+
+🎒 Kindergarten: Classroom doors will open at 9:00 AM. The 7:45 AM drop-off time is also available for Kindergarten families who are unable to make the 9:00 AM time.
+
+☕ Kindergarten Parents — Boo Hoo Breakfast!
+Join us for Boo Hoo Breakfast from 9:00–9:30 AM after you drop your student off in class. We would love to spend a few minutes with you as we celebrate this BIG first step! 💙
+
+🚶 After the first day of school:  Students are expected to enter the building independently.
+
+🚗 Car Riders — Important Reminders:
+• Please remain in your vehicle during morning drop off and afternoon pick up. This helps ensure that arrival is safe, smooth, and efficient for everyone.  
+• Parents/guardians should not enter the building before the designated arrival time.
+
+We would LOVE to see all of our students on time, ready to learn, and ready to LEVEL UP!** 🎮📚
+
+💙🐾 Let’s make this the BEST LEVEL YET! 🐾💙
+
+### 2026-08-16 · Conway Public Schools (id 12841079)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+

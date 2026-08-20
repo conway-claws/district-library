@@ -101,3 +101,33 @@ Get all the details, check requirements, and complete your registration in just 
 
 We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back Bash!Join us for some fun! Map included!  When: August 8, 2026 Time: 5:00 PM - 8:00 PM Where: Conway High School - Indoor Facility What to Expect: • Meet your Administrators • Bounce houses • Interactive Games • Food Trucks (for purchase) • Free Hot Dogs We’re excited to see you there and kick off the 2026-2027 school year!
 
+### 2026-08-13 · Conway Public Schools (id 12662621)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-16 · Conway Public Schools (id 12841074)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-18 · Melissa Spence (id 12857017)
+
+Dear Mattison Families,
+
+Thank you for helping us get into the swing of things and off to a great start! It’s Game Time at Mattison, and we appreciate our families for being such an important part of our team! 💙🤍
+
+As we continue getting into our school-day routine, here are a few important reminders to help our mornings run smoothly:
+
+🕢 Doors open at 7:35 AM. School staff will be outside beginning at 7:35 to welcome our students.
+
+🏫 Please do not leave students unattended on the front porch before staff members are present.
+
+🔒 For the safety of all students and staff, parents and family members are no longer permitted to walk students into the building. Our staff is ready to help students get where they need to go!
+
+⏰ The tardy bell rings at 8:00 AM. Please make sure your child arrives with enough time to enter the building and get to class.
+
+Thank you for helping us start the year strong! When our school and families work as a team, everyone wins!
+
+It’s Game Time at Mattison! 🏆💙🤍
+

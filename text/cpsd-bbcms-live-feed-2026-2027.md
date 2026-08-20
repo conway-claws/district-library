@@ -174,3 +174,37 @@ We can't wait to see you tomorrow at our District Wide Wampus Cat Welcome Back B
 
 We can't wait to see you at CMS Open House tonight from 5–7 PM!
 
+### 2026-08-13 · Conway Public Schools (id 12662626)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Courtway Middle School (id 12828305)
+
+We’re excited to welcome Ms. Katie Camargo to the Courtway family! Katie is joining the 5th grade team as an ELA teacher and is beginning her 13th year in education. She loves helping students find their voice, build confidence in their writing, and discover they are capable of more than they may realize. Katie is excited to be a Wampus Cat, and we’re excited to have her at CMS! 💙
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-08-14 · Courtway Middle School (id 12835365)
+
+Monday is the first day of school, and we’re ready to welcome our Wampus Cats back! 💙🐾
+
+Here’s a look at our 2026–2027 bell schedule so everyone knows what to expect. The entry bell rings at 7:50 AM, and 1st period begins at 7:55 AM.
+
+We can’t wait to see everyone Monday and kick off a great year at Courtway! 🧩💙 #WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-08-16 · Conway Public Schools (id 12841080)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-18 · Courtway Middle School (id 12854827)
+
+Immunization Reminder:
+
+The Arkansas State Board of Health Rules and Regulations Pertaining to Immunization Requirements states that every child attending a public school in the state shall receive a series of immunizations in order to enter school. Religious, Medical, and Philosophical exemptions can be obtained through the Arkansas Department of Health. However, proof of exemption letters must be obtained each year and provided to the school for their records. (AR Code Annotated 20-7-109, 6-18-702, 6-60-504, 20-78-206).
+
+If your child is already 11 years old or will turn 11 before September 1, 2026, he/she will need the Tdap and the MCV4 vaccines before returning to school this year. If your child is entering 7th grade and has not received the MCV4 vaccine, he/she must have this before returning to school this year.
+
+The deadline for receiving these immunizations is October 1, 2026. If your child does not have the required immunizations by this date, he/she will be sent home until immunizations are updated. There will be NO exceptions!All updated records must be turned in to Nurse Smithpeters.Any questions or concerns should be sent to Nurse Smithpeters at smithpetersc@conwayschools.info. Or, please call 501-450-4832 with any questions. Thank you!
+

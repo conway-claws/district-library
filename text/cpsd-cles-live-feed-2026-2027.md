@@ -723,3 +723,79 @@ We are so grateful for everyone who helped make our first day back extra special
 
 #WeAreCLE
 
+### 2026-08-13 · Carolyn Lewis Elementary (id 12819539)
+
+A huge THANK YOU to Tucker Creek Veterinary Clinic for their generous donation toward classroom supplies for our Teachers! 💙 Your support means so much to our CLE teachers and staff! We are so grateful for our amazing community partners! 🐾🍎 #WeAreCLE
+
+### 2026-08-13 · Carolyn Lewis Elementary (id 12821806)
+
+A huge THANK YOU to New Life Church for providing breakfast from Cross Creek, Summit Church for providing lunch from Cross Creek, and our amazing CLE PTO for treating our teachers and staff to specialty coffee drinks this morning! ☕️ We are so grateful for the love and support shown to our CLE family! ❤️ #WeAreCLE
+
+### 2026-08-13 · Carolyn Lewis Elementary (id 12823117)
+
+CLE Teachers and Staff enjoyed a sweet treat today thanks to Ms. Brittany McBride! 🍬💗 We appreciate you thinking of our staff and helping make their day a little sweeter! Thank you, Ms. Brittany! 🥰
+
+#WeAreCLE
+
+### 2026-08-13 · Conway Public Schools (id 12662620)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Carolyn Lewis Elementary (id 12821219)
+
+We are so proud of Keyleigh and Laci. They represented CLE  at our district convocation! We are thankful for Mrs. Richardson and all she does for our music program! 🎶🎤 #WeAreCLE
+
+### 2026-08-14 · Carolyn Lewis Elementary (id 12821854)
+
+What an incredible week of support for our CLE teachers and staff! 💙 A HUGE thank you to all of our amazing sponsors for the meals, treats, coffee, and encouragement throughout Back to School PD Week. We are so grateful for each of you and the way you invest in our staff, our school, and our students! 🐾💙 #WeAreCLE
+
+### 2026-08-14 · Carolyn Lewis Elementary (id 12387435)
+
+🌿 Friendly Friday Reminder! 🌞 Don’t forget—Summer Learning in the CLE Garden is happening tomorrow from 9–10am! Join us behind the school to dig in, learn, and grow together. 🌱🌼 See you there!
+
+### 2026-08-15 · Carolyn Lewis Elementary (id 12838639)
+
+📚🐾 First Day Reminder, Little Cats! 🐾📚
+We can’t wait to welcome our students back to CLE! Classroom doors will open at 7:45 a.m. on the first day of school. If you’re walking your child to class, please plan to enter the classroom at 7:45 a.m.
+Thank you for helping us have a smooth start to a great school year! 💙
+#WeAreCLE
+
+### 2026-08-16 · Carolyn Lewis Elementary (id 12838642)
+
+🐾💙 TOMORROW IS THE BIG DAY, LITTLE CATS! 💙🐾
+We are so excited to welcome our CLE students back for the first day of school tomorrow! 🎉
+A quick reminder: Classroom doors will open at 7:45 a.m. If you are walking your child to class, please plan to enter the classroom at 7:45 a.m.
+Let’s have a smooth start to an amazing school year! We can’t wait to see you! 🐾📚💙
+
+### 2026-08-16 · Conway Public Schools (id 12841073)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-17 · Conway Public Schools (id 12847963)
+
+CLE families, 
+
+We experienced a brief power outage that temporarily affected all systems, including phones and internet service. Power has been fully restored, and all systems are back online.
+
+Normal activities are continuing as scheduled. Thank you for your patience and understanding!
+
+### 2026-08-19 · Carolyn Lewis Elementary (id 12857679)
+
+CLE Teachers and Staff were caught having a BLAST at Convocation last week! 🎉💙 We’re pretty sure this much fun is a sure sign that it’s going to be a GREAT year at CLE! We’re ready to make it an amazing one! 🐾
+
+#WeAreCLE
+
+### 2026-08-19 · Carolyn Lewis Elementary (id 12860087)
+
+A big THANK YOU to Tina Congine and McDonald’s for treating our CLE teachers and staff to delicious cookies and sausage biscuits! 🍪🥐 Your kindness and generosity helped make our day extra special! We appreciate you! ❤️
+
+#WeAreCLE
+
+### 2026-08-20 · Carolyn Lewis Elementary (id 12860620)
+
+A huge THANK YOU to our amazing CLE PTO for all of your help at Open House! 💙 From helping things run smoothly to making our families feel welcome, we appreciate everything you do to support our school! We are so thankful for you! 🐾
+
+#WeAreCLE
+

@@ -178,3 +178,136 @@ Hosted by our PTO — we can't wait to see you there!
 
 JSE teachers, staff, and former students 🎉 celebrated 🎉 the new school year at today's Convocation. We are proud Wampus Cats! 💙🐱
 
+### 2026-08-13 · Barbara Clardy (id 12713215)
+
+🎉 TODAY is the day! 🎉
+
+The Back to School Bash is happening TODAY, and our Spirit Shop will be open!
+
+Stop by to grab your Jim Stone Elementary gear — T-shirts, yard signs, stickers, and car decals are all available! 💙🐱
+
+Cash and Venmo accepted.
+
+See you soon, Little Cat families!
+
+#WeAreJSE
+
+### 2026-08-13 · Barbara Clardy (id 12805004)
+
+🎤 We've been busy getting ready for the new school year, but we took a little break to play a musical game. 🎶 Team 2 took home the win! 🥇
+#WeAreJSE
+
+### 2026-08-13 · Barbara Clardy (id 12824222)
+
+During our Convocation yesterday, we recognized Jim Stone's fabulous Teacher and Employee of the year! Donna Philpott and Martha Drennan are the BEST! 💙
+#WeAreJSE
+
+### 2026-08-13 · Conway Public Schools (id 12662624)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Barbara Clardy (id 12791182)
+
+Great news! Starting after Labor Day, families are welcome to join their students for lunch in our guest lunch room! Feel free to bring outside food and enjoy quality time together. We can't wait to see you! 🎉
+
+### 2026-08-14 · Barbara Clardy (id 12826207)
+
+First grade fun at Open House! We are so excited to see all of our students on Monday! 📚🚌📓
+
+### 2026-08-16 · Barbara Clardy (id 12839872)
+
+🎉BACK TO SCHOOL IS TOMORROW!🎉 
+
+We can’t wait to welcome our little cats back for an AMAZING first day! 🐾💙 
+
+📅 Monday, August 17 
+
+🚗 Student Drop-Off: 
+• Drop-off begins at 7:30 AM at the front of the building or in the South Loop. 
+• Please do not drop students off before 7:30 — there will not be adult supervision available yet. 
+• Want your student to enjoy FREE breakfast? Please arrive by 7:45 AM. 🍎🥛 
+• Families are welcome to walk your little cat to class on the first day! 🥰 
+
+Teachers will be ready to welcome students beginning at 7:45 AM. 
+
+🚦 A little reminder for this first week: Please be patient with traffic as everyone gets back into our arrival and dismissal routines. Our MOST important job is getting every single one of our little cats home safely! 💙 Safety will always come first, and we appreciate your patience and understanding as we work through those first few days together. 
+
+We are SO excited to see those smiling faces and kick off a wonderful school year together! 🐾💙 Let’s make it a GREAT first day! 🎉
+
+### 2026-08-16 · Barbara Clardy (id 12713327)
+
+☕️ TOMORROW MORNING! ☕️
+
+Kindergarten families, don't forget about our Boo Hoo & Woo Hoo Breakfast tomorrow — the first day of school!
+
+When: Tomorrow, Monday, August 17th, 9:00-9:30 AM
+Where: Parent lunchroom
+
+Whether you're celebrating or shedding a few tears, we'll be there with coffee, treats, and friendly faces! 💙🍩
+
+See you in the morning!
+
+#WeAreJSE
+
+### 2026-08-16 · Conway Public Schools (id 12841077)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-17 · Barbara Clardy (id 12846257)
+
+Thoughtful co-workers are the BEST! 💙 Thank you, Mrs. Z, for the yummy treat to celebrate the first day of school! 🥮 
+#WeAreJSE
+
+### 2026-08-17 · Barbara Clardy (id 12849582)
+
+📢 Attention JSE Families!
+
+Dismissal Procedures:
+
+🚗 Kindergarten students and any older siblings who are car riders will be picked up from the front of the building.
+
+🚗 Grades 1-4 will be picked up in the back of the building.
+
+🏷️ Please make sure to have your car tag visible to help dismissal run smoothly!
+
+As always, thank you for your patience during these first few days of school. Dismissal may take a bit longer than usual, but we'll have everyone back in the swing of things soon! 💙
+
+#WeAreJSE
+
+### 2026-08-18 · Barbara Clardy (id 12856966)
+
+🎒✨ FIRST WEEK OF SCHOOL TREAT BAGS! ✨🎒
+
+Help us make the end of the first week extra special for your child!
+
+🍬 What: Fun treat bags with a sweet surprise
+📅 When: Friday, August 22nd (end of first week!)
+💵 Cost: Just $2 per bag
+
+How to Order:
+1️⃣ Venmo: @JSE-PTO (last 4 digits: 9371) - scan the QR code on the flyer!
+
+2️⃣ Cash: Send EXACT cash in a labeled envelope to school
+
+📝 In the memo, include:
+
+"First Day of School Treat"
+Your child's name
+Add "EXTRA" if you'd like to donate bags for other students 💙
+
+🥜 All treats are peanut free!
+
+#WeAreJSE
+
+### 2026-08-19 · Conway Public Schools (id 12868833)
+
+Out of an abundance of caution, Jim Stone Elementary was placed on a “hold” following a statement made by a student.
+
+Conway Public School District administrators and School Resource Officers conducted a thorough investigation, and the statement was determined to be unfounded.
+
+Students and staff have been given the all-clear, and everyone is safe. Normal activities have resumed at Jim Stone Elementary.
+
+Thank you to our students, staff, and families for their cooperation and understanding as we worked to ensure the safety of our school community.
+

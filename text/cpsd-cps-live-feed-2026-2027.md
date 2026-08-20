@@ -265,3 +265,50 @@ https://conwaypublicschools.edurooms.com/newsletters/conway-public-schools/newsl
 
 We had a great School Board Meeting  as the Board of Education held their regular August meeting tonight! Check out the recap! More highlights to come! https://conwaypublicschools.edurooms.com/newsletters/conway-public-schools/newsletters/august-2026-school-board-meeting-recap
 
+### 2026-08-13 · Tim McMahan (id 12821428)
+
+Don't forget to sign payroll tomorrow. Celebrate your hard work with us from 9 to 10 and get your Kona ice.
+Thanks
+T-Mac
+
+### 2026-08-13 · Conway Public Schools (id 12662615)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Tim McMahan (id 12827086)
+
+Payroll today
+Thanks
+
+### 2026-08-14 · Tim McMahan (id 12829687)
+
+Please make sure all areas of the building are clean and ready for school on Monday. Thank you for all your hard work getting this thing ready for the new school year.
+T-Mac
+
+### 2026-08-14 · Tim McMahan (id 12832379)
+
+All custodians will resume normal hours on Monday morning.
+Thanks
+
+### 2026-08-16 · Conway Public Schools (id 12841068)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-17 · Conway Public Schools (id 12662799)
+
+WELCOME BACK, WAMPUS CATS! 🎉 Today marks the official start of the 2026-2027 school year! Every classroom, every school, and every student is an essential part of Team Conway. Let’s lace up, support one another, and make this a championship year for learning! 🏆
+
+ Drop your first-day photos in the comments below! 👇💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-18 · Conway Public Schools (id 12856121)
+
+Congratulations to our new interventionists who recently completed their Take Flight Year 1 training, embarking on a rigorous two-year professional learning program developed by the Luke Waites Center for Dyslexia and Learning Disorders at Scottish Rite for Children. Grounded in the science of reading, this training equips interventionists with the knowledge and skills to provide explicit, systematic, and multisensory structured literacy instruction for students with dyslexia and other reading difficulties. Their dedication to advancing their expertise strengthens Conway Public Schools’ commitment to evidence-based literacy practices and expands the district’s capacity to ensure every student receives the specialized support needed to become a successful, lifelong reader.#TeamConway
+
+### 2026-08-19 · Conway Public Schools (id 12872737)
+
+Conway, AR — August 18, 2026 — Conway High School (CHS) has earned a “Best Schools” award in the 2026-2027 U.S. News & World Report rankings. CHS is now 35th in Arkansas and 2,879th nationally.  Conway currently stands at the 84th percentile nationally.Data HighlightsAP Participation & Success: The percentage of students taking at least one Advanced Placement (AP) exam was 49%, while AP pass rates rose from 28% to 31%.Graduation Rate: CHS saw stability in graduation rates at 91%.Areas of FocusThe district’s commitment to strong core academic instruction and focus on reading, math, and science proficiency as part of its ongoing strategic improvement plan has resulted in Conway High School experiencing significant gains in 10th grade reading as recently as this year. The 2026-2027 USNWR rankings are based on 2023-2024 academic performance data.  View the complete CHS score card here, and for more details on USNWR’s methodology, click here.
+

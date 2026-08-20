@@ -285,3 +285,50 @@ Immunization Exemption Letters are also due BEFORE the first day of school.
 
 🎉🎉 Coach Holloway representing Ruth Doyle in a dance off and as Teacher of the Year at the 2026-27 Conway Schools Convocation!! 🎊🎊
 
+### 2026-08-13 · Conway Public Schools (id 12662627)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Conway Athletics (id 12836333)
+
+Ruth Doyle volleyball shining bright at the Showcase.
+
+### 2026-08-16 · Rachel Fowler (id 12839695)
+
+🚨🚨Important Bus Change Information🚨🚨
+ 2026-2027 school year
+
+
+Bus 99 will no longer be a double route; it will be 2 separate routes. 
+
+
+Pickup time will be start around 6:45 each morning. 
+
+
+For more information on your student's specific route, you can go to the CPSD Transportation hub at https://www.conwayschools.org/o/cps/page/transportation 
+
+
+We are looking forward to an amazing year at Ruth Doyle!!
+
+### 2026-08-16 · Conway Public Schools (id 12841082)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-19 · Rachel Fowler (id 12868384)
+
+Ruth Doyle Families
+🎉🎉We are so excited to have everyone back at school for the start of a great school year. Just a couple of reminders to finish out the first week strong. 💪
+
+🔒 Lockers: Students can still purchase a locker 
+📅 Thursday, August 20 and Friday, August 21
+ 💲 $5
+ 💵 Cash or check only
+If your student still needs a locker, please send payment with them on Thursday or Friday.
+
+🐾 Wampus Cat Merchandise: The online store is open! Be sure to place your order before August 26.
+https://ruthdoylemiddleschool.itemorder.com/shop/home/ 
+
+Thank you, and Go Wampus Cats! 💙
+

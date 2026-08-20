@@ -119,3 +119,62 @@ Ph: 501-450-6645  Option 1
 
 Kindergarten open house today. 1st session at 4:30. Second session at 6:30. Please have your drivers license out and ready to check in. Thank you
 
+### 2026-08-13 · Theodore Jones Elementary (id 12822857)
+
+Open House is TONIGHT! 🎉
+📚 1st & 4th Grade: 5:30–6:30 PM
+📚 2nd & 3rd Grade: 6:30–7:30 PM
+
+🪪 Please have your driver’s license out and ready when you arrive to check in using our new system.
+
+### 2026-08-13 · Theodore Jones Elementary (id 12825183)
+
+1st-4th grade parents, all teachers are here and ready to meet you. If you want to come before your scheduled time, come on!! 
+Please have your identification out and ready. Thank you.
+
+### 2026-08-13 · Conway Public Schools (id 12662619)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-16 · Conway Public Schools (id 12841072)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-16 · Theodore Jones Elementary (id 12841667)
+
+Parents, please expect an increase in traffic this week as we all get back into the routine of morning drop-off and afternoon pick-up. We appreciate your patience as we work together to keep things moving safely and smoothly! 
+
+🚗 Car Rider Reminders:
+
+* Kindergarten & 1st Grade (and their older siblings): Front of the school — Freyaldenhoven Lane
+* 2nd–4th Grade: Safe Room — Andrews Dr. ONLY, by the Conway Dermatology Clinic
+
+If you were with us last year, the process is the same. Thank you for your patience and cooperation as we kick off a great school year!
+
+### 2026-08-16 · Theodore Jones Elementary (id 12841674)
+
+Please take note of our first-day arrival times:
+
+1st–4th Grade: Classroom doors will open at 7:45 a.m. Teachers will be ready to welcome students and families at that time.
+
+Kindergarten: Classroom doors will open at 9:00 a.m. Teachers will be ready to welcome our kindergarten students and families at that time. If you need to arrive earlier, 7:45 a.m. is available to you as well. 
+
+If you plan to walk your child to class on the first day, please wait until your child’s designated classroom opening time.
+
+Important 🚨: After the first day, students are expected to enter the building independently. If your child is a car rider, please remain in your vehicle, drop your child off in the designated car rider line, and continue moving through the line. This helps us keep morning arrival safe, smooth, and efficient for everyone.
+
+Thank you for helping us have a smooth start to the school year!
+
+### 2026-08-19 · Theodore Jones Elementary (id 12864174)
+
+Theodore Jones PTO is selling Wampus Cat t-shirts! Choose from fun colors and multiple style options for kids and adults.
+
+🛍️ SHOP HERE:
+https://tjespto.itemorder.com/shop/home/
+
+Orders due September 6!
+
+Every purchase supports Theodore Jones Elementary students & staff! 🐾
+

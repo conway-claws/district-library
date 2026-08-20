@@ -773,3 +773,186 @@ Mark your calendars now, and get ready for a very special night! 💙🐾 More d
 
 Class of 2027 — your moment is coming! 🎓✨
 
+### 2026-08-13 · Conway High School (id 12795703)
+
+🎉 Welcome to CHS, Katlyn Stapleton!
+
+Please join us in welcoming Katlyn Stapleton to the Conway High School family!
+
+Ms. Stapleton is joining our Computer Science Department and is excited to build lasting connections with her students. As a former CHS student herself, she knows firsthand the impact a great teacher can have, and she's looking forward to creating those same meaningful connections with a new generation of Wampus Cats.
+
+Outside of the classroom, Ms. Stapleton enjoys traveling, playing trivia, and shopping.
+
+We're excited to welcome Ms. Stapleton back to the Wampus Cat family and can't wait to see the connections and memories she'll build with our students this year!
+
+💙 Welcome to CHS, Ms. Stapleton!
+
+#ConwayHighSchool #WampusCats #ComputerScience
+
+### 2026-08-13 · Conway Athletics (id 12818044)
+
+As we prepare for another great year of athletics, please make yourselves familiar  with CPS Athletic Guidelines. We look forward to seeing you and helping our student athletes make lasting memories!
+
+### 2026-08-13 · Conway Athletics (id 12818066)
+
+As we prepare for another great year of athletics, please make yourselves familiar  with CPS Athletic Guidelines. We look forward to seeing you and helping our student athletes make lasting memories!
+
+### 2026-08-13 · Conway Athletics (id 12818810)
+
+💰 On your mark, get set, SAVE. Sideline’s Back-to-School Sale is ON. Now thru Sun., score 20% OFF top-brand, Wampus Cats fanwear & accessories with code GAMEON20.
+
+https://links.bsnsports.com/s/c/e96fk3JdfkbaukKG10NJgszpDReBoMg_3lAFZw_rVNMONrxNLWbQwiy2YGWnMohW6UCkcdRRUmA_cU-MH_VnImUgy3MDzg2AyvruXS8D_JElHBM30T_aSempRdL8EGX_5jHwzqnw_8I5ItWmTx5lLRCPiPc1x5mvTyI82fXNzDmsmgksTkBK92ahZlovFmXnoxaKFDa84N9InH0nzBtwAs9n_3LkQOTRyUBmNJFEH49ZVzmU_8o2TAz4EYD_pATZY6doMmThYTjIkhC8ENN5SYf_36YlPQBSISL3f3RIPo9-wbJTEcKTtCjU6vWT_rEdv98-wwcUTKjU_0XdvtHuOIFIR3uws9N482EbpaFIaFoqwZ6bp7xIZJXSAK3B91kh0K_F9NKGfsJ42nEc77eh-9Mx5gOsmpgXIkIoLyQGpcBpYHhY3vAR64FgW6oRzyNa1C4Hqz_rPB5zmSDKn1POlQYbxnVKtb-zi8OHn9fhtQiiuVtVy-QmAIvvOFSpAr_2zvJ-bXDm7o9eKO-f40axVSIwh0uFJvLg1sNagJ86hwuAvaHBXr9BwtU/GIoB7Ku3YuCp7wcUZpZPJhAgF-WW5oHr/23
+
+### 2026-08-13 · Conway High School (id 12795815)
+
+🎉 Welcome to CHS, Mrs. Hannah Stark!
+
+Please join us in welcoming Mrs. Hannah Stark to the Conway High School family!
+
+Mrs. Stark is joining our Agriculture Department and is excited to introduce students to the many opportunities available through agriculture. She looks forward to getting to know her students, sharing her knowledge, and helping them discover the many ways agriculture connects to careers, communities, and everyday life.
+
+Outside of the classroom, Mrs. Stark enjoys spending time with her family and dogs, traveling with her husband, reading, hiking, and fishing.
+
+We're excited to have Mrs. Stark join the Wampus Cat family and can't wait to see the knowledge, enthusiasm, and opportunities she'll bring to our students this year!
+
+💙 Welcome to CHS, Mrs. Stark!
+
+#ConwayHighSchool #WampusCats #AgricultureAtCHS
+
+### 2026-08-13 · Conway Athletics (id 12822220)
+
+Thank you so much to Conway Juniors Volleyball for bringing a treat to our Lady Cat Volleyball Team. This was for their hard work heading into the new year  and earning the AVCA All Academic Award!!
+
+### 2026-08-13 · Conway High School (id 12823014)
+
+📣 CPSD ATHLETICS SPECTATOR GUIDELINES
+
+Conway Public Schools is excited to welcome students, families, and community members to our athletic events! To help make every game safe, positive, and enjoyable for everyone, please review these important spectator guidelines.
+
+👨‍👩‍👧‍👦 STUDENT SUPERVISION
+• Conway High School events: Elementary, middle school, and junior high students must be accompanied by a parent/guardian or responsible adult.
+• Conway Junior High events: Elementary and middle school students must be accompanied by a parent/guardian or responsible adult.
+• Conway Middle School events: Elementary students must be accompanied by a parent/guardian or responsible adult.
+
+🏟️ AT ALL ATHLETIC EVENTS
+• Students should remain in the stands unless visiting the concession stand or restroom. No loitering in unauthorized areas, including the high school courtyard.
+• Backpacks, balls, skateboards, bikes, and similar items are not permitted.
+• No outside food or drinks. Concessions are available inside the event.
+• School rules apply. Please cooperate with all game workers and school personnel. Failure to follow expectations may result in removal from the game.
+• Students must leave campus promptly after the game. Students who are not picked up within 20 minutes of the end of the game will not be permitted to attend future games. Please make transportation arrangements before the game ends.
+
+Thank you for helping us create a safe, respectful, and enjoyable environment for our students, families, and fans! We appreciate your cooperation and your support of Conway Public Schools Athletics! 🐾
+
+### 2026-08-13 · Conway Public Schools (id 12662631)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Conway High School (id 12824097)
+
+🎉 Welcome to CHS, Sarah Earles!
+
+Please join us in welcoming Sarah Earles to the Conway High School family!
+
+Ms. Earles is joining our Art Department and is excited to share her love of creativity with our students. She looks forward to getting to know her students and creating a welcoming environment where they can explore their own creativity and artistic interests.
+
+Outside of the classroom, Ms. Earles enjoys reading and spending time with her family. And this year, she's especially looking forward to one thing—sports ball games!!! 🏀🏈🎾
+
+We're excited to have Ms. Earles join the Wampus Cat family and can't wait to see the creativity and enthusiasm she'll bring to CHS!
+
+💙 Welcome to CHS, Ms. Earles!
+
+#ConwayHighSchool #WampusCats #ArtAtCHS
+
+### 2026-08-14 · Beth Fluesmeier (id 12833942)
+
+Support Conway athletes by joining the Wampus Cat Booster Club.
+
+https://gofan.co/event/6794453?schoolId=AR4663
+
+### 2026-08-14 · Conway Athletics (id 12835820)
+
+We would like to welcome Coach Victoria Thomas to Conway! We are excited and proud to have Coach Thomas as part of our Lady Cat Family! #sixlegs
+
+### 2026-08-16 · Conway Public Schools (id 12841087)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-17 · Conway High School (id 12845519)
+
+Afternoon dismissal at CHS involves different routes for buses, student drivers, and car riders. Please take a moment to review the map so you know which route applies to you!
+
+🔴 Bus routes — Buses will pick up on the west side of CHS  and exit onto Prince Street.
+
+🟡 Student drivers — Students will exit the student parking areas heading northeast/northwest toward Weems Street and Bellemeade Drive.
+
+🔵 Car riders — Parents/guardians picking up students should enter from Farris Road by Walmart, drive around the back of campus, and return to the Wampus Cat Roundabout to pick up their student.
+
+Please follow the designated routes and directions of staff during afternoon dismissal to help keep traffic moving safely and efficiently. Thank you for your cooperation!
+
+### 2026-08-17 · Conway Public Schools (id 12847320)
+
+CHS Families: Conway High School is currently experiencing a power outage. Backup generators are operating; however, our phones and internet are temporarily unavailable.
+
+At this time, lunch is being served, and students will continue with their normal schedule.
+
+We will continue to monitor the situation and provide updates if there are any changes. Thank you for your patience and understanding!
+
+### 2026-08-17 · Conway Public Schools (id 12847672)
+
+CHS Families: We’re happy to report that power, phones, and internet service have been fully restored at Conway High School.
+
+Thank you for your patience and understanding while we worked through the outage. We appreciate our CHS families and staff for helping us keep things running smoothly!
+
+### 2026-08-18 · Beth Fluesmeier (id 12854963)
+
+AAA Benefit Game Reminder
+
+### 2026-08-18 · Joseph Moon (id 12863157)
+
+Cats got after it today! This group can't get enough work!
+
+### 2026-08-19 · Sara Flenor (id 12865712)
+
+💙  2 WEEKS FROM TODAY!  💙
+
+🥎 LADY CAT SOFTBALL SKILLS & DRILLS 🥎
+
+Calling all current Conway 6th-8th grade softball players!
+
+Come sharpen your skills this fall with our Lady Cat coaching staff and players! Whether you're looking to improve your hitting, fielding, throwing, or overall game, these sessions are a great way to prepare for the next level.
+
+📅 Wednesdays: September 2, 9, 16, 23, 30  ⏰ 4:00 PM – 5:00 PM 📍 Conway High School Softball Field 💰 $10 per player, per session
+
+Bring your glove, bat, helmet, water, and a great attitude—we'll take care of the rest!
+
+💙 Build confidence. Improve your skills. Have fun. 
+🐾 Go Lady Cats!
+
+Sign Up Here! https://forms.gle/fsy8RHgrBxFuA7eA6
+
+### 2026-08-19 · Conway High School (id 12870441)
+
+🎓 SENIOR YEARBOOK ADS ARE ON SALE! 🎓
+
+Celebrate your Conway High School senior and give them a keepsake they’ll treasure for years to come! 💙🐾
+
+Honor their accomplishments, memories, and journey with a personalized senior ad in the 2027 Conway High School Yearbook.
+
+✨ Create your ad online yourself OR upload an ad you’ve already designed.
+💰 Order by October 2 to save $25!
+📅 Extended deadline: October 9
+
+Check out the graphic or check your email for ad sizes, pricing, and step-by-step ordering information.
+
+### 2026-08-19 · Conway Public Schools (id 12872738)
+
+Conway, AR — August 18, 2026 — Conway High School (CHS) has earned a “Best Schools” award in the 2026-2027 U.S. News & World Report rankings. CHS is now 35th in Arkansas and 2,879th nationally.  Conway currently stands at the 84th percentile nationally.Data HighlightsAP Participation & Success: The percentage of students taking at least one Advanced Placement (AP) exam was 49%, while AP pass rates rose from 28% to 31%.Graduation Rate: CHS saw stability in graduation rates at 91%.Areas of FocusThe district’s commitment to strong core academic instruction and focus on reading, math, and science proficiency as part of its ongoing strategic improvement plan has resulted in Conway High School experiencing significant gains in 10th grade reading as recently as this year. The 2026-2027 USNWR rankings are based on 2023-2024 academic performance data.  View the complete CHS score card here, and for more details on USNWR’s methodology, click here.
+
+### 2026-08-19 · Trent Eskola (id 12872968)
+
+Introducing your 2026-2027 Lady Cat Soccer Team!
+
+#ladycats #finishempty
+

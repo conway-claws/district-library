@@ -329,3 +329,143 @@ Staff, you will still have your full hour and a half for lunch today. Please mak
 
 Enjoy your lunch!
 
+### 2026-08-13 · Marquis Rogers (id 12822923)
+
+We would love for our staff to stop by Mrs. Jordan’s class (Room 2015) to be part of a school video!
+The question is simple: What is one message you would like to share with our Conway Junior High students before the school year starts? 💙
+📍 Room 2015
+⏰ 2:16–3:30 PM
+Stop by when you can and help us create an encouraging message for our students! We’d love to have you be part of it! 🐾
+
+### 2026-08-13 · Conway Public Schools (id 12662630)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Marquis Rogers (id 12829322)
+
+CPSD ATHLETICS SPECTATOR GUIDELINES
+The Conway School District is proud to welcome all our students, as well as parents and members of the community, to the exciting athletic events that we offer.  Conway students (band, cheerleaders, dance squad, and athletes) practice numerous hours so they are prepared for our extracurricular events. These guidelines are designed to make our games safe and enjoyable for all spectators.
+
+CONWAY HIGH SCHOOL ATHLETIC EVENTS
+
+Elementary, Middle School and Junior High students must be accompanied to the game by a parent/guardian or responsible adult.
+
+CONWAY JUNIOR HIGH SCHOOL ATHLETIC EVENTS
+
+Elementary and Middle School students must be accompanied to the game by a parent/guardian or responsible adult.
+
+CONWAY MIDDLE SCHOOLS ATHLETIC EVENTS
+
+Elementary school students must be accompanied to the game by a parent/guardian or responsible adult.
+
+
+Regardless of grade level, all students are expected to follow standard rules for proper sporting attendance.
+
+1. NO LOITERING around unauthorized areas of the stadium, arena, fields, and campus.  This includes the High School Courtyard. Students should be seated in the stands, unless at the concession stand or the restroom.
+
+2. Fans may not bring items such as backpacks, balls, skateboards, or bikes into the game.
+
+3. No outside food or drink is allowed. Concessions are available inside the game.
+
+4. School rules apply and cooperation is expected with all game workers and school personnel. Failure to follow rules or lack of cooperation will result in removal from the game.
+
+5. It is expected that all students will leave school grounds in a timely manner after completion of the game.  Students that are not picked up in a timely manner (20 minutes from the end of the game) will not be allowed to return for future games.  Students can call parents before the end of the game to allow transportation to get there in a timely manner.   
+
+Thank you for your cooperation and your support of Conway Public Schools Athletics!
+
+### 2026-08-14 · Conway Junior High (id 12834029)
+
+Good afternoon, Parents and Students,
+
+As we begin the new school year, we want to make sure everyone understands how lunch assignments will be determined.
+
+For 8th grade students:
+Your lunch assignment is based on your 4th period teacher.
+
+For 9th grade students:
+Your lunch assignment is based on your 5th period teacher.
+
+Please note: Lunch assignments are NOT based on your WIN time teacher.
+
+We will also review the lunch schedule and how assignments work with students on Monday to make sure everyone understands where they should report for lunch.
+
+Thank you for your attention and for helping us get the school year off to a great start!
+
+### 2026-08-14 · Conway Athletics (id 12836926)
+
+CJHS VB working hard at Meet the Cats! 🏐💙 We are looking forward to the season!
+
+### 2026-08-14 · Conway Athletics (id 12836952)
+
+CSMS Volleyball working hard at Showcase tonight!!  Proud of our team!!
+
+### 2026-08-14 · Conway Athletics (id 12836961)
+
+Congratulations to the CJHS volleyball players of the week! We’re so proud of their hard work and leadership! 💙🏐🏆 Good job girls!
+
+### 2026-08-15 · Marquis Rogers (id 12837873)
+
+PLEASE READ - First Day of School Reminders
+
+CJHS Staff,
+
+The first day is almost here! I want to share a few reminders as we get ready to welcome our students back:
+
+Staff Shirts: Please wear your blue staff shirt that you wore for Open House.
+Morning Coffee: Coffee will be available in Room 118 in the morning.
+Lunch: Lunch will be provided in Room 118 during all four lunches. Coach Prince is providing pulled pork for everyone—thank you, Coach Prince!
+Mentors: Please make sure you share this information with your mentee(s). Some of our new staff members may not have been added to the staff listserv yet, and we want to make sure everyone receives these reminders.
+
+I also want to thank everyone who took the time to complete our Leadership Support Feedback Survey. We appreciate your honesty. We were encouraged by the results, but we also heard your suggestions for how we can improve. Your leadership team is motivated to take that feedback and continue getting better at how we support you.
+
+As we begin the first week, I ask that we all demonstrate grace and patience with one another. The first few days never go as smoothly as we would like. There will be schedule issues, questions, unexpected situations, and a few wrinkles that we have to iron out. We will get better each day.
+
+For this first day, let's keep the main goal simple: Get our students in the building, take care of them while they are here, and get them home safely in the afternoon. Everything else, we can work through together.
+
+Thank you for all of the work you have put in to get us to this point. Let's have a great first day and a great start to the school year!
+
+Purposeful Impact starts Day 1!
+
+### 2026-08-16 · Marquis Rogers (id 12840184)
+
+CJHS Families,
+
+We are excited to welcome our students back for the first day of school tomorrow! As we prepare for a great start to the year, please review the following morning arrival information:
+
+Morning Drop-Off
+
+•Gates will be open from 7:20–7:50 a.m.
+•Bus riders dropped off on Duncan Street will enter through the gates on Duncan Street.
+•Bus riders dropped off on Prince Street will enter through the gates on Mitchell Street.
+•Car riders will also enter through the gates on Mitchell Street.
+
+Please be patient and show grace as everyone becomes familiar with our arrival procedures during the first few days of school. Traffic may move a little slower than usual, but we will continue to make adjustments to ensure the process is as safe and efficient as possible.
+
+We are excited to get our students back in the building and look forward to a great first day at CJHS!
+
+### 2026-08-16 · Conway Public Schools (id 12841086)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-18 · Marcus Kordsmeier (id 12855163)
+
+WAMPUS CAT GOLF HAT FUNDRAISER
+
+The Conway Wampus Cat Golf hats are available! Show your support for Wampus Cat Golf on and off the course! 
+
+💰 $35 per hat
+🧢 White Richardson 355 Rope Hat
+⚠️ LIMITED SUPPLY — 1st come, 1st served!
+
+👉 Order yours here:
+[https://gofan.co/event/6713794?schoolId=AR4663](https://gofan.co/event/6713794?schoolId=AR4663)
+
+📍 PICKUP: All hat pickups will be coordinated directly with Coach K after purchase. 
+
+Questions or concerns or pick up info? 
+📧 kordsmeierm@conwayschools.info
+
+WEAR IT. REP IT. SUPPORT THE CATS!
+

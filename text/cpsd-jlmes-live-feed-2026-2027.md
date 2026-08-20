@@ -234,3 +234,86 @@ We can't wait to see you all tomorrow evening! 💙
 
 #CultureOfCaring #JuliaLeeMooreElementary #OpenHouse #BackToSchool
 
+### 2026-08-13 · Julia Lee Moore Elementary (id 12819667)
+
+Hey JLM parents! 👋
+
+Here's how to stay connected with your child's teachers this school year! Rooms is our primary source for all parent-teacher communication! Whether it's daily updates, direct messages, or class reminders, this is where it will all happen.
+
+We've put together a step-by-step guide to walk you through the setup:
+
+📲 Get set up here: https://drive.google.com/file/d/1UvflL-mq1Ms8EuXr91CXa_cyb69LbmeS/view?usp=sharing
+
+Make sure to complete your setup today so you don't miss a thing!
+
+#WeAreJLM #SchoolUpdates #ParentCommunication #Rooms
+
+### 2026-08-13 · Julia Lee Moore Elementary (id 12821442)
+
+🎒 Attention Kindergarten Families! 🎒
+
+Welcome to the new school year! We have put together an information slideshow containing everything you need to know about kindergarten at JLM.
+
+Please review the slides to stay informed on classroom schedules, expectations, and important school details:
+
+👉 View Kindergarten Info Slides: https://drive.google.com/file/d/1Qh4aFhnOug5HQko7Xq_ky58u8WD0llQ5/view?usp=sharing
+
+#WeAreJLM #JLMKindergarten #BackToSchool
+
+### 2026-08-13 · Julia Lee Moore Elementary (id 12824182)
+
+JLM Families! 
+Stop by the front porch during Open House tonight to grab free books for your home library! Every single book needs to find a home, so please help us clear the porch and take as many as you can carry. 📖✨
+
+### 2026-08-13 · Conway Public Schools (id 12662622)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Julia Lee Moore Elementary (id 12821643)
+
+A big shoutout to our incredible sponsors for providing delicious food for our staff during PD week! ✨
+
+Thank you Pleasant Grove Baptist Church, Misty Givens, Gina Carter, and the JLM PTO for taking such great care of us. Full bellies and full hearts as we gear up for a fantastic school year! 🙌❤️
+
+#JuliaLeeMoore #WeAreJLM #BackToSchool
+
+### 2026-08-16 · Conway Public Schools (id 12841075)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-17 · Conway Public Schools (id 12847944)
+
+JLM families, 
+
+We experienced a brief power outage that temporarily affected all systems, including phones and internet service. Power has been fully restored, and all systems are back online.
+
+Normal activities are continuing as scheduled. Thank you for your patience and understanding!
+
+### 2026-08-17 · Julia Lee Moore Elementary (id 12845010)
+
+That's a wrap on our first day back! ✨ Show us how your student celebrated the start of the year. Send your favorite first-day photos to JLMsocial@conwayschools.info to be featured in our upcoming posts! 📸💙🐾
+
+#JuliaLeeMoore #WampusCats #BackToSchool #FirstDay
+
+### 2026-08-18 · Julia Lee Moore Elementary (id 12849377)
+
+Happy Tuesday! 💙 Throwing it back to last week’s Convocation with our amazing Julia Lee Moore staff! We love being a part of #TEAMCONWAY and can’t wait for another fantastic day with our Little Cats! 🐾✨
+
+#JuliaLeeMoore #WampusCats #ConwayPublicSchools #TeamConway
+
+### 2026-08-19 · Julia Lee Moore Elementary (id 12858330)
+
+Starting our Wednesday with these bright smiles! ☀️ Check out our first set of amazing back-to-school photos. Let’s make this the best year yet! 🎒✨ 
+#JuliaLeeMoore #BackToSchool #FirstDayPhotos
+
+### 2026-08-19 · Julia Lee Moore Elementary (id 12858712)
+
+Ending Wednesday with even more back-to-school joy! 📸 From huge morning smiles to after-school high fives, you all delivered on the photo submissions. Drop a ❤️ to show these awesome students some love! 
+#JuliaLeeMoore #WeAreJLM #BackToSchool
+
+### 2026-08-20 · Julia Lee Moore Elementary (id 12858812)
+
+Good morning! Thursday is here, and so is another round of our favorite back-to-school pictures. Nothing beats the excitement of a fresh start! Look through to see today’s featured students. 📸 #JuliaLeeMoore #WeAreJLM #BackToSchool
+

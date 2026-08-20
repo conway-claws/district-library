@@ -418,3 +418,165 @@ We are so sorry that the QR code on the previous graphic is not working correctl
 • Check made payable to WCE PTO  *please put your child's name in the memo
 • Venmo: @Woodrow-CumminsPTO-1  *put your child's name in the, "what is this for" section
 
+### 2026-08-13 · Woodrow Cummins Elementary (id 12822978)
+
+📚✨ WOODROW CUMMINS OPEN HOUSE! ✨📚We’re excited to welcome our Woodrow Cummins families for a special evening to kick off the new school year! 💙🐾📅 Thursday, August 13🎒 Kindergarten Orientation
+⏰ 5:15 PM
+📍 WCE Cafeteria🍎 1st–4th Grade Teacher Meet & Greet
+⏰ 5:30–6:30 PMCome meet your child’s teacher, visit the school, and get ready for a fantastic year together! We can’t wait to see all of our students and families! 🐾💙Welcome back, Little Cats! 🎉📖✏️
+
+### 2026-08-13 · Conway Public Schools (id 12662618)
+
+The countdown is officially on! 🗓️ The first day of school is Monday, August 17th. A brand new school year means new goals, new victories, and new opportunities to shine together as Team Conway. Gear up, Wampus Cats, this year is going to be unforgettable! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-08-14 · Woodrow Cummins Elementary (id 12831908)
+
+📣 ARRIVAL & DISMISSAL PROCEDURES | PLEASE READ, LITTLE CAT FAMILIES! 🐾💙
+
+We know the first few weeks of school come with a learning curve for everyone! Our goal is to keep arrival and dismissal safe, smooth, and as quick as possible. Please review these procedures with your family before the first day.
+
+ 🌅MORNING CAR RIDER DROP-OFF
+
+🚗 All car riders will use the north campus entrance and drop off at the south end of the building.
+
+*Only exception to this is for kindergarten parents the first week of school
+
+➡️ Traveling north on Padgett: Turn right into the north campus entrance and proceed to the south end of the building.
+
+⬅️ Traveling south on Padgett: Turn left into the north campus entrance and proceed to the south end of the building.
+
+🚌 Only buses, daycare vehicles, and special education students will be allowed to drop off in the front parking lot.
+
+⏩ To keep the line moving:
+• Pull all the way forward.
+• Remain in your vehicle.
+• Have your student ready to exit quickly  backpack on their back and lunchbox in hand!
+
+ 🌟 AFTERNOON DISMISSAL
+
+ Bikers • Walkers • Walk Up, Pick Up (WUPU) | 3:15–3:20 PM
+
+• No tag = No child.
+• Line up under your child's grade-level sign.
+• Walkers and bikers will exit through the front door with WUPU students.
+• Please do not arrive for WUPU after 3:20 p.m. At that point, you will need to use the car line.
+
+🚗CAR RIDER DISMISSAL | Begins at 3:15 PM
+ 
+All car riders will be dismissed using our Driveline system.
+
+• No tag = No child.
+• All car riders will be picked up in the car line outside the cafeteria, the same location used for morning drop-off.
+• Pull all the way forward and remain in your vehicle.  DO NOT EXIT YOUR VEHICLE. All students should be loaded on the passenger side of the car. 
+• If your student needs help buckling up, please pull into a parking spot after exiting the car line to assist them.
+
+See the following video for a Dismissal video: https://www.youtube.com/watch?v=undLVtC1ytQ
+
+🚌 BUS & DAYCARE RIDERS
+
+Students riding buses or daycare vans will be loaded outside the library as their vehicle arrives.
+
+💙 A LITTLE PATIENCE GOES A LONG WAY! 💙
+
+The first few weeks are a learning process as our students, families, and staff learn and practice these procedures. We appreciate your patience, cooperation, and grace as we work together to make arrival and dismissal safe and efficient for all of our Little Cats!
+
+🐾 Thank you for helping us start and end each day safely!
+
+### 2026-08-16 · Conway Public Schools (id 12841071)
+
+Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
+
+### 2026-08-17 · Woodrow Cummins Elementary (id 12847163)
+
+🐾 FIRST WEEK OF SCHOOL REMINDERS! 🐾
+
+We are SO excited to welcome our Little Cats back to Woodrow Cummins Elementary! 💙🤍 As we kick off the first week, please keep these important reminders in mind:
+
+🍎 Lunch Visitors: Students may not have lunch visitors dine with them until  after Labor Day. Thank you for helping us make a smooth transition into the school year!
+
+🎒 Kindergarten Drop-Off: Kindergarten parents should  walk their children into the building each morning this week at 7:45 AM through the front doors.
+
+🚗 All Other Students: All other students must be dropped off through the  car rider line. Please remember that we have ONE lane for drop-off:
+➡️ Enter from the north side of the building
+➡️ Travel around the building
+➡️ Continue to the drop-off zone near the cafeteria on the south side
+
+⏰ Please Be Patient! The first week of school can bring a little extra traffic and congestion as everyone gets back into their routines. We appreciate your patience, kindness, and cooperation as we work to get all of our Little Cats safely to school each morning. 💙
+
+Thank you for helping us make the first week a great one! We are so happy to have our Little Cats back! 🐾📚
+
+### 2026-08-17 · Woodrow Cummins Elementary (id 12850680)
+
+Dear Woodrow Cummins Families,
+
+As we work through our first week of school, we want to share a few important dismissal updates to help make the process as smooth and safe as possible.
+
+🐾 Walk-Up Pick-Up Numbers:
+For this week only, walk-up pick-up numbers will begin being entered at 3:00 PM. This will provide some additional time for our staff and students to work through dismissal procedures. This will be for THIS WEEK ONLY.  Next week students will not be dismissed until 3:15. 
+
+🚶 Walk-Up Pick-Up Reminder:
+Anyone picking up a student through walk-up pick-up must pull into and park in a designated parking spot before walking up to the front of the building.
+
+For the safety of everyone, please:
+
+Do not stop in the middle of the parking aisle.
+Do not park in the bus loop.
+Please use a designated parking space before walking to the front of the building.
+
+We greatly appreciate your patience and understanding as we work out all of the beginning-of-year kinks and help our students learn and practice their dismissal procedures. The first week can be a learning curve for everyone, and your cooperation makes a big difference!
+
+Thank you for helping us keep dismissal safe, organized, and efficient for all of our Little Cats! 💙🤍🐾
+
+Sincerely,
+Woodrow Cummins Elementary
+
+### 2026-08-18 · Jenna Havlik (id 12855762)
+
+🚀 PARENTS, YOUR STORY STARTS HERE! 🚀
+
+WCE’s PTO is kicking off the school year with a PTO Blast Off! 🌟
+
+📅 Monday, August 24
+⏰ 8:30 AM
+📍 WCE Cafeteria
+
+Come join us to:
+🚀 Meet other WCE parents
+🚀 Ask questions
+🚀 Learn about upcoming school events
+🚀 Discover volunteer opportunities
+🚀 Find ways to get involved at Woodrow!
+
+Whether you’re a returning parent or brand new to WCE, we’d love to have you! 💙🤍
+
+Have questions? Want to get involved? Come blast off with us! 🚀🐾
+
+Contact: Lauren Gainor, PTO President
+📧 Lmpaak09@gmail.com
+
+### 2026-08-18 · Jenna Havlik (id 12863124)
+
+🎉 LOOK WHAT WE DID, LITTLE CATS! 💙🤍
+
+Our playgrounds just got some AMAZING new additions and it’s all thanks to YOU! 
+
+Because of the incredible support and hard work of our Little Cat families during fundraising, we were able to purchase new playground equipment for our students to enjoy, including:
+
+🛝 Spring Teeter Totter
+🧗 Climbing Structure
+🌀 Spinner
+🔄 Spinning Barrel
+🎯 Krazy Kup
+🏐 Tetherball
+🏐 Volleyball Set
+
+These aren’t just pieces of playground equipment they are opportunities for our students to play, move, laugh, explore, and make memories with their friends. ❤️
+
+To every parent, grandparent, family member, and supporter who helped make this possible: THANK YOU! Your generosity and dedication to Woodrow Cummins Elementary truly make a difference every single day.
+
+We are SO grateful for our amazing Little Cat families! 💙
+
+Thank you for helping us create a BETTER PLACE TO PLAY! 🎉
+
