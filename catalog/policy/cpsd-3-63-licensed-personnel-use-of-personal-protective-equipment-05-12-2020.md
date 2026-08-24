@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-63-licensed-personnel-use-of-personal-protective-equipment-05-12-2020.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2020-05-12
 sha256: 35b3b3ee6e1ba62a47022d54e0918beae22f568db8c8cb69944bf1ca55ca61c7
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

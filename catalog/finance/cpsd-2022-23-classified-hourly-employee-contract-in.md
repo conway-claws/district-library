@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-2022-23-classified-hourly-employee-contract-in.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [finance, employee-contracts, state-required, 2022-2023]
 sha256: 8e6d846824b9441cdb12f7552e515bb99cfa6e5198b2937f0ab385661d8d8b9f
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

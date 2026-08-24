@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-08-1-licensed-personnel-bereavement-leave.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, policy, licensed-personnel]
 sha256: 02be8a9e48dab10dfeb12740aad79044bca4592cd3d1c73a7e16fbab3f671455
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-jlme-2026-27-school-action-plan.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, school-improvement-plan, 2026-2027]
 sha256: 5a02572c81bc14243e3b23f74371ad743f6c46f9829881ea5acda06888984f6c
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

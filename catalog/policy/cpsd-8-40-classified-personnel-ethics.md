@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-40-classified-personnel-ethics.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2013-04-09
 sha256: 121c1e15acb0b045606994e4a31ac9e89b62445c42347506202ae6fb716ae031
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-09-licensed-personnel-catastrophic-sick-leave-04-13-2021.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2021-04-13
 sha256: 1459c167a5dd03e5c318d209e7e39bed3e993a4c92fbd066b90a3bd6c515d469
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

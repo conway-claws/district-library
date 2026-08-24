@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-26-classified-personnel-responsibilities-governing-bullying-06-12-2020.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2020-06-12
 sha256: 60f4c05bbe967307a6145bbdad5546c3a6832a6cb7c0bccadcf6b8e45729d4c5
 supersedes: cpsd-8-26-classified-personnel-responsibilities-governing-bullying
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

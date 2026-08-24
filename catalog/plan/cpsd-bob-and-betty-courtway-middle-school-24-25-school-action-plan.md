@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-bob-and-betty-courtway-middle-school-24-25-school-action-plan.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, school-improvement-plan, 2024-2025]
 sha256: a62d376d4ac857c79784d9168d6792f9ce87dbc8bf6d519b9f7e9d0503a10464
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

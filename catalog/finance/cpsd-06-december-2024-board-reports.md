@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-06-december-2024-board-reports.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [finance, monthly-financial-reports, 2024-2025]
 date: 2024-12-31
 sha256: 76bf4c19401c9e24fb23347f73be28b79f1ee235eeaf9ce15e18d7c9eb879326
 extractor: pdftotext@26.08.0+finance-table
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

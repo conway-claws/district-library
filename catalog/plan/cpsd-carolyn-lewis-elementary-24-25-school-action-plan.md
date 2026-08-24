@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-carolyn-lewis-elementary-24-25-school-action-plan.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, school-improvement-plan, 2024-2025]
 sha256: 42f563e95014d24465fbb3c29b9a5bd806520d624b4e1266f07892f967b85d76
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

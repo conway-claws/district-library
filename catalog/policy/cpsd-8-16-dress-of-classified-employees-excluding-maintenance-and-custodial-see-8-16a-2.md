@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-17
+verified: 2026-08-24
 status: superseded
 tags: [school-board, policy, classified-personnel]
 superseded_by: cpsd-8-16-dress-of-classified-employees-excluding-maintenance-and-custodial-see-8-16a
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

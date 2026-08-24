@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-classified-employee-contract-information-2020.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [finance, employee-contracts, state-required, 2020-2021]
 sha256: d9225bccaeadecf33371459a3cfac666992a9d5044a44ca10ca42f9392dd5b35
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

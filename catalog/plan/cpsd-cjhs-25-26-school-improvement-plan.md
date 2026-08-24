@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-cjhs-25-26-school-improvement-plan.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, school-improvement-plan, 2025-2026]
 sha256: d2dce3215235c21a3749008150e8da1d3dd514f23e7484b92196f151be2677c6
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

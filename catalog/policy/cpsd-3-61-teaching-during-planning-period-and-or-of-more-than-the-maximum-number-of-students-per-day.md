@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-61-teaching-during-planning-period-and-or-of-more-than-the-maximum-number-of-students-per-day.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2024-04-09
 sha256: fba6ba2c43db9b735b432f52e73fe64fa39a47c98787a9b55cd838dd90dad49f
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

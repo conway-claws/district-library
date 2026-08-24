@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-superintendent-contract-addendum-2024-2025.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: superseded
 tags: [finance, employee-contracts, state-required, 2024-2025]
 sha256: 8e96506888e654ed1c5e30d629cfa3a231ea9492eb6ce2d3690432d080c4ca16
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

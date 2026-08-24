@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-pfme-2025-26-school-improvement-plan.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, school-improvement-plan, 2025-2026]
 sha256: c1cf6390f94968636dd3b0c3a7dfb97768220000355df08d71719857cf50e5fc
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-woodrow-cummins-elementary-24-25-school-action-plan.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, school-improvement-plan, 2024-2025]
 sha256: c990bcabc2823a989885a47ffd357ca2494dcacd3f0cd25ed211b8226b500cf4
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

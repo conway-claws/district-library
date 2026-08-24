@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-57-licensed-personnel-weapons-on-campus.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2020-05-12
 sha256: 19f7a3e553cf06bd1e119413cfc75b57ba397981dd2022bb4a7eb96f3da3f546
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

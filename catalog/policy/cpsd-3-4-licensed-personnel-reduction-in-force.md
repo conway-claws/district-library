@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-4-licensed-personnel-reduction-in-force.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2024-04-09
 sha256: 7213abd938a439390c69ed98b0d91d8d75114a7bed2ac0e88d754563ac58e188
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-07-business-and-financial-management.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, policy]
 sha256: 7a6045153d519e14c1b450a5812de3311eefa7e691565eb450370e2c62c05b04
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---

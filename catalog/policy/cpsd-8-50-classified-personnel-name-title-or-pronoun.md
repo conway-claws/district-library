@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-50-classified-personnel-name-title-or-pronoun.md
 retrieved: 2026-08-09
-verified: 2026-08-17
+verified: 2026-08-24
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2024-04-09
 sha256: eb7bda540766fa5d8d05c3eb17cd7f3e656fd2c67810f417d4f3929618cc41e4
-last_check: 2026-08-17
+last_check: 2026-08-24
 fail_since:
 fail_reason:
 ---
