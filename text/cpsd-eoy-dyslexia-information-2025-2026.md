@@ -6,7 +6,7 @@ Act 1039 of 2017 Reporting By the School District (Ark. Code Ann. § 6-41-606 (b
 
 **Dyslexia Programs**
 
-During the 2025–2026 school year, Conway Public Schools implemented targeted small-group interventions for students identified as exhibiting characteristics of dyslexia. Intervention programs included The Sunday System 1 and 2 with Science of Reading, Alphabetic Phonics, Connections, Take Flight, BUILD, and iSPIRE/SPIRE, each designed to address students’ specific areas of literacy need and support the development of foundational reading skills.
+During the 2025–2026 school year, Conway Public Schools implemented targeted small-group interventions for students identified as exhibiting characteristics of dyslexia. Intervention programs included The Sonday System 1 and 2 with Science of Reading, Alphabetic Phonics, Connections, Take Flight, BUILD, and iSPIRE/SPIRE, each designed to address students’ specific areas of literacy need and support the development of foundational reading skills.
 
 **Number of Students Who Received Dyslexia Intervention**
 
