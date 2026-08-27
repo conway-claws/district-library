@@ -311,3 +311,124 @@ Students and staff have been given the all-clear, and everyone is safe. Normal a
 
 Thank you to our students, staff, and families for their cooperation and understanding as we worked to ensure the safety of our school community.
 
+### 2026-08-21 · Barbara Clardy (id 12886289)
+
+💙 A heartfelt THANK YOU to our incredible Jim Stone PTO! 💙
+
+The start of a new school year is always busy, but YOU made it so much smoother and sweeter. The breakfast and lunch kept us going, the decorations made our school shine, and your help with kindergarten arrival those first few days? Priceless.
+
+Our teachers and staff felt your love and support in every detail. You remind us why Jim Stone is such a special place—because of people like YOU who go above and beyond.
+
+From the bottom of our hearts, THANK YOU! 🙏✨
+
+#WeAreJSE
+
+### 2026-08-21 · Barbara Clardy (id 12874809)
+
+🌈 JSE COLOR WEEK IS ALMOST HERE! 🌈
+
+Our Kindergartners are diving into an exciting unit all about colors, and we want the ENTIRE school to join in the fun! 🎨✨
+
+All students are invited to participate in Color Week by wearing the designated color each day. Let's fill our hallways with rainbows and smiles! 😊
+
+📅 Week 1: 
+🔴 Tuesday, August 25: Red
+🟠 Wednesday, August 26: Orange
+🟡 Thursday, August 27: Yellow
+🟢 Friday, August 28: Green
+
+📅 Week 2:
+🔵 Monday, August 31: Blue
+🟣 Tuesday, September 1: Purple
+🩷 Wednesday, September 2: Pink
+🟤 Thursday, September 3: Brown
+⚫⚪ Friday, September 4: Black/White
+
+We can't wait to celebrate these colorful days together as a JSE family! 💙💛💚
+
+#WeAreJSE
+
+### 2026-08-21 · Barbara Clardy (id 12891354)
+
+📸 CALLING ALL JIM STONE FAMILIES! 📸
+
+We want to see YOUR Back to School pictures from this week! Share your first-day smiles, new backpacks, and excited faces!
+
+Upload your favorite photos to our yearbook: 🔗 
+https://snap.yearbookforever.com/upload/1-23j-33171(opens in new tab)
+ 🔑 Access Code: LITTLECATS (no spaces)
+
+Let's capture these special memories together! 💙💛
+
+#WeAreJSE
+
+### 2026-08-24 · Barbara Clardy (id 12891587)
+
+🍦 POPSICLES WITH PTO THIS FRIDAY! 🍦
+
+Amazing news, JSE families! Thanks to your generous donations, we've purchased treat bags for EVERY student at Jim Stone! 🎉
+
+To celebrate and say THANK YOU, PTO will be handing out popsicles during recess on Friday, August 28th!
+
+What a sweet way to wrap up the second week of school! We hope everyone has had a fantastic start to the year! 💙
+
+#WeAreJSE
+
+### 2026-08-24 · Barbara Clardy (id 12875182)
+
+🌈 COLOR DAY REMINDER! 🌈
+
+Tomorrow is Red Day for JSE Color Week!
+
+🔴 Wear your favorite RED outfit to school tomorrow, August 25th! 🔴
+
+### 2026-08-25 · Barbara Clardy (id 12914186)
+
+📢 Important Breakfast Reminder for JSE Families! 🍎
+
+Good morning, JSE families! Just a friendly reminder as we start our day together:
+
+If your student plans to eat breakfast at school, please make sure they arrive by 7:45 AM. This ensures they have enough time to enjoy their meal before classes begin and start the day ready to learn!
+
+Thank you for helping us make mornings run smoothly for everyone! 💙
+
+#WeAreJSE
+
+### 2026-08-25 · Barbara Clardy (id 12912850)
+
+Soft threads, strong bonds. 
+
+#twinningtuesday #WeAreJSE
+
+### 2026-08-25 · Barbara Clardy (id 12875241)
+
+🌈 COLOR DAY REMINDER! 🌈
+
+Tomorrow is Orange Day for JSE Color Week!
+
+🟠 Wear your favorite ORANGE outfit to school tomorrow, August 26th! 🟠
+
+### 2026-08-26 · Conway Public Schools (id 12927064)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+
+### 2026-08-26 · Barbara Clardy (id 12932194)
+
+🎉 Celebrating Our Amazing Educators! 🎉
+
+We're thrilled to recognize these incredible teachers who were awarded Conway Public Schools Foundation grants today at Jim Stone!
+
+Congratulations to all our grant recipients! Your passion for teaching and commitment to student success inspire us every day. 💙📚
+
+Thank you to the Conway Public Schools Foundation for investing in our teachers and students! Together, we're making a difference.
+
+#WeAreJSE
+
+### 2026-08-26 · Barbara Clardy (id 12875268)
+
+🌈 COLOR DAY REMINDER! 🌈
+
+Tomorrow is Yellow Day for JSE Color Week!
+
+🟡 Wear your favorite YELLOW outfit to school tomorrow, August 27th
+

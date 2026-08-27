@@ -312,3 +312,7 @@ Congratulations to our new interventionists who recently completed their Take Fl
 
 Conway, AR — August 18, 2026 — Conway High School (CHS) has earned a “Best Schools” award in the 2026-2027 U.S. News & World Report rankings. CHS is now 35th in Arkansas and 2,879th nationally.  Conway currently stands at the 84th percentile nationally.Data HighlightsAP Participation & Success: The percentage of students taking at least one Advanced Placement (AP) exam was 49%, while AP pass rates rose from 28% to 31%.Graduation Rate: CHS saw stability in graduation rates at 91%.Areas of FocusThe district’s commitment to strong core academic instruction and focus on reading, math, and science proficiency as part of its ongoing strategic improvement plan has resulted in Conway High School experiencing significant gains in 10th grade reading as recently as this year. The 2026-2027 USNWR rankings are based on 2023-2024 academic performance data.  View the complete CHS score card here, and for more details on USNWR’s methodology, click here.
 
+### 2026-08-26 · Conway Public Schools (id 12927052)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+

@@ -146,3 +146,39 @@ Welcome Back!As students and staff return to school for another year, let’s al
 
 Here is a list of PTO meetings for the 26-27 school year.  We hope many of you can join us to support our students and staff!
 
+### 2026-08-21 · Matthew Coatney (id 12887376)
+
+Thank you, ESE families, for helping make arrival and dismissal smooth for our car riders and walkers! 💙🐾
+
+We made a few tweaks to our dismissal procedures throughout the week, and since the first day of school, we have averaged just 25 minutes to get our car line dismissal completed once we begin.
+
+If you need a car tag, please email polacekk@conwayschools.info.
+
+Thank you for your patience, flexibility, and partnership as we continue to make arrival and dismissal as safe and efficient as possible for everyone. We appreciate you! 💙
+
+### 2026-08-21 · Matthew Coatney (id 12887435)
+
+Thank you, ESE families, for helping make arrival and dismissal smooth for our car riders and walkers! 💙🐾
+
+We made a few tweaks to our dismissal procedures throughout the week, and since the first day of school, we have averaged just 25 minutes to get our car line dismissal completed once we begin.
+
+Thank you for your patience, flexibility, and partnership as we continue working to make arrival and dismissal as safe and efficient as possible for everyone. We appreciate you! 💙
+
+### 2026-08-22 · Ellen Smith Elementary (id 12896448)
+
+Just a reminder. Kindergarten parents may walk their student to class this Monday, to meet their teacher for the 26-27 school year. Classrooms will open at 7:45.
+
+### 2026-08-24 · Matthew Coatney (id 12911321)
+
+🌟 Join us for Showcase at the Park! 🌟
+
+📅 September 15th | ⏰ 5:30–7:00 PM at ELLEN SMITH
+
+Come learn about our awesome school clubs, exciting school events, and all the opportunities available for our Ellen Smith students! Enjoy free hot dogs and chips, crafts, playground fun, and more! 🍔🎨🛝
+
+Plus, don’t miss out on our fun fundraiser raffles and prizes! We can’t wait to see you there! 💙💚 (MORE INFO TO COME ON OUR SCHOOL FUNDRAISER THAT LAUNCHES SEPT 15TH)
+
+### 2026-08-26 · Conway Public Schools (id 12927063)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+

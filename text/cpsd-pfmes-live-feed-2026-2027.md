@@ -131,3 +131,25 @@ Thank you for helping us start the year strong! When our school and families wor
 
 It’s Game Time at Mattison! 🏆💙🤍
 
+### 2026-08-24 · Melissa Spence (id 12901496)
+
+Good morning, families!
+
+Thank you for your patience and support with car dismissal last week! Our students quickly got into the swing of things, and we’re looking forward to another smooth week in the car line.
+
+A few quick reminders:
+
+-Please have your car tag number clearly displayed on your dashboard when staff comes outside to enter numbers. Having it readily visible helps us keep the line moving quickly and efficiently.
+
+-Students are dismissed at 3:15 PM.
+
+-All students should be picked up by 3:35 PM.
+
+Thank you for your continued support and for helping us have a great start to the school year!
+
+Preston & Florence Mattison Elementary
+
+### 2026-08-26 · Conway Public Schools (id 12927060)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+

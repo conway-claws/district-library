@@ -359,3 +359,124 @@ Girls on the Run is coming to Carl Stuart Middle School! 💜📅 Season: Septem
 
 Just a quick clarification: Girls on the Run is open to 5th grade girls only. 🏃‍♀️💜
 
+### 2026-08-20 · Carl Stuart Middle School (id 12872929)
+
+📣 CPSD ATHLETICS SPECTATOR GUIDELINES 
+
+We are excited to welcome students, families, and community members to Conway Public Schools athletic events! To help keep our games safe, positive, and enjoyable for everyone, please review the following spectator guidelines.
+
+🏆 🏅STUDENT SUPERVISION: 
+• Conway High School Athletic Events: Elementary, Middle School and Junior High students must be accompanied to the game by a parent/guardian or responsible adult.
+• Conway Junior High Athletic Events: Elementary and Middle School students must be accompanied to the game by a parent/guardian or responsible adult.
+• Conway Middle School Athletic Events: Elementary school students must be accompanied to the game by a parent/guardian or responsible adult.
+
+🏆 🏅AT ALL ATHLETIC EVENTS: 
+• Stay in designated areas: Students should remain in the stands unless visiting the concession stand or restroom. No loitering in unauthorized areas.
+• Leave prohibited items at home: Backpacks, balls, skateboards, bikes, and similar items are not permitted inside games.
+• No outside food or drinks: Concessions are available at athletic events.
+• Follow school rules: All spectators are expected to cooperate with game workers and school personnel. Failure to follow rules may result in removal from the event.
+• Plan for pickup: Students must leave school grounds within 20 minutes of the end of the game. Students who are not picked up in a timely manner may not be allowed to attend future games.
+
+Thank you for helping us create a safe, respectful, and enjoyable environment for our student-athletes, band, cheerleaders, dance teams, and all of our Conway Public Schools fans!  💙
+
+### 2026-08-23 · Carl Stuart Middle School (id 12896726)
+
+🏈 SCRIMMAGE TOMORROW! 🐾
+
+Our Wampus Cat football boys are hitting the field for a scrimmage! 💙
+
+📅 Monday, August 24
+⏰ 5:00 PM
+📍 John McConnell Stadium — Conway 
+
+Come out and support our Cats as they get ready for the season! 🏈💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-08-23 · Carl Stuart Middle School (id 12896706)
+
+🏐 GAME DAY TOMORROW!
+
+The Wampus Cats are back in action! 💙🐾
+
+📅 Monday, August 24
+📍 Simon Middle School
+⏰ 4:30 PM
+
+Come cheer on Carl Stuart Volleyball as we take on Simon Middle School! Let’s go, Cats! 💙🏐
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-08-24 · Carl Stuart Middle School (id 12896713)
+
+🏐 GAME DAY TOMORROW!
+
+It’s time to defend home court! 💙🐾
+
+📅 Tuesday, August 25
+📍 Carl Stuart Middle School
+⏰ 4:30 PM
+
+The Wampus Cats take on Ruth Doyle Middle School. Come out and cheer them on! 🏐💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-08-25 · Carl Stuart Middle School (id 12919015)
+
+Meet Ms. King! 🧪💙
+
+Help us welcome Kamela King to Carl Stuart Middle School! Ms. King is joining us as our 6th Grade Science teacher. This is her 12th year in education and her first year teaching middle school!
+
+Her life motto is, “Walk by faith, not by sight.” Outside of school, she enjoys spending time with her family, whether they’re having fun or simply relaxing together. We are so excited to have Ms. King at Carl Stuart! 💙🐾
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-08-25 · Carl Stuart Middle School (id 12922170)
+
+Food Backpack Program 🥫
+
+Each year, through generous donations from the Soul Food Mission Cafe,  students in need are able to pick up a bag filled with non-perishable food items  each week. This service is provided to help families who struggle to keep food in  their home. The bags are available for pick up by the student each Friday. 
+
+If you are interested in having your child participate in the Carl Stuart Middle School  Weekly Food Bag Program, please complete the form below and return it to the school counselors.
+
+We must have this form, for your student to continue receiving  a food bag. 
+
+English version-
+https://docs.google.com/forms/d/e/1FAIpQLSesXQcqz9mVmPkegFBi-D9knts1eJPYiBk_b3uLN2rkl7DUDg/viewform?usp=publish-editor
+
+Spanish Version: 
+https://docs.google.com/forms/d/e/1FAIpQLSfnp1nP4iQNjXKpnl8H0jS-pVa3IJr4RjFopSSHPZ_VRdzfxA/viewform?usp=publish-editor
+
+### 2026-08-26 · Conway Public Schools (id 12927069)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+
+### 2026-08-26 · Carl Stuart Middle School (id 12896716)
+
+🏐 GAME DAY TOMORROW!
+
+One more home matchup this week! 💙🐾
+
+📅 Thursday, August 27
+📍 Carl Stuart Middle School
+⏰ 4:30 PM
+
+Carl Stuart Volleyball takes on Conway Christian! Bring the energy and help us cheer on our Wampus Cats! 🏐💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-08-27 · Carl Stuart Middle School (id 12942699)
+
+Parents,
+
+Get ready to dance! 🎶💃🕺 FBLA is sponsoring our upcoming school dance on Thursday, September 3, from 5:30–7:00 PM!
+
+📅 Thursday, September 3
+⏰ 5:30–7:00 PM
+🎟️ 6th & 7th Grade Students Only
+💵 $3 presale — available during lunch next week
+💵 $5 at the door
+🍿 Concessions will be available for purchase
+
+We hope to see our 6th and 7th graders there for a fun night! 🎉
+

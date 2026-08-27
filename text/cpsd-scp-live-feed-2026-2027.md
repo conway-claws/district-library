@@ -202,3 +202,7 @@ Every family received a copy of the Parent Handbook at Open House. If you were u
 
 Thank you for taking a few minutes to review these important procedures! 💙
 
+### 2026-08-26 · Conway Public Schools (id 12927053)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+

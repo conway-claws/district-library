@@ -208,3 +208,68 @@ If your child is already 11 years old or will turn 11 before September 1, 2026, 
 
 The deadline for receiving these immunizations is October 1, 2026. If your child does not have the required immunizations by this date, he/she will be sent home until immunizations are updated. There will be NO exceptions!All updated records must be turned in to Nurse Smithpeters.Any questions or concerns should be sent to Nurse Smithpeters at smithpetersc@conwayschools.info. Or, please call 501-450-4832 with any questions. Thank you!
 
+### 2026-08-21 · Conway Public Schools (id 12889460)
+
+Courtway Families,
+We would like to clarify that today the lockdown alarm was inadvertently activated through the intercom system. Please rest assured that there was no threat to our students or staff, and everyone is safe. Thank you for your understanding.
+
+### 2026-08-24 · Courtway Middle School (id 12910845)
+
+Every piece matters at Courtway, and our community partners were a big part of making PD Week special for our staff. 💙 Thank you for helping take care of our team!
+
+🧩 Olive Garden of Conway
+🧩 El Fuego Mexican Grill
+🧩 Conway Morning Optimist Club
+🧩 Misty Givens LLC – Horace Mann Insurance
+🧩 Centennial Bank
+
+Thank you for being an important piece of the picture at CMS and for supporting our staff so well. 🐾 #WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-08-25 · Marcelle Goins (id 12914607)
+
+Today's volleyball game - Courtway vs Conway Christian, has been moved to a home game at Courtway. The start time is 4:30pm.
+
+### 2026-08-25 · Courtway Middle School (id 12922022)
+
+Parents and Guardians - 
+
+This is a reminder that all Courtway car riders are to be picked up from the designated locations - cafe for grade 5 and safe room for grades 6 and 7. Students are not allowed to walk across or off campus to get into vehicles. We work hard to keep kids in a climate-controlled, safe space while calling out students once our staff makes contact with vehicles. Our cameras record the vehicles students enter as an added safety measure. 
+
+Help us continue to keep kids safe with strict compliance to this procedure. If you have questions or concerns, please reach out to Mr. Etters at 501-450-4832.Thank you!
+
+### 2026-08-26 · Courtway Middle School (id 12922359)
+
+We’re excited to welcome Mrs. Emily Pate (Cowell) to Courtway! Mrs. Pate is joining the 5th grade team as a Math and Science teacher. This is her second year teaching and her second year in 5th grade. She is looking forward to watching her students learn, grow, and make progress throughout the year. Welcome to the Wampus Cat family, Emily! 💙
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-08-26 · Conway Public Schools (id 12927066)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+
+### 2026-08-26 · Courtway Middle School (id 12932839)
+
+A quick reminder for our Courtway car rider families! 💙
+
+All car riders must be picked up from their designated locations:
+• 5th grade: Cafeteria
+• 6th & 7th grades: Safe Room
+
+For safety, students are not allowed to walk across or off campus to meet vehicles. Students remain inside in a safe, climate-controlled area until our staff makes contact with their ride and calls them out. Our cameras also record the vehicles students enter as an added safety measure.
+
+Help us continue to keep kids safe with strict compliance to this procedure. If you have questions or concerns, please contact Mr. Etters at 501-450-4832.
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-08-27 · Courtway Middle School (id 12932936)
+
+Please help us welcome Mr. Carlos Albert to Courtway! 💙
+
+Mr. Albert has been part of the Conway Schools family for eight years, serving in several different roles along the way. This year, he’s joining our Courtway team as our ISS Paraprofessional!
+
+Outside of school, Mr. Albert enjoys basketball, classic cars, dogs, and spending time with his family. And here’s a fun fact—we’re still trying to wrap our heads around this one: his son has the same name AND the same birthday as him! 😄
+
+We’re excited to have Mr. Albert as another important piece of our Courtway team! 🧩
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+

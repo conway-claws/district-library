@@ -332,3 +332,99 @@ https://ruthdoylemiddleschool.itemorder.com/shop/home/
 
 Thank you, and Go Wampus Cats! 💙
 
+### 2026-08-20 · Conway Athletics (id 12882158)
+
+Ruth Doyle Volleyball  athletes of the week are Lynley Virden, Emily Rippy, and Maggie Porter.
+
+### 2026-08-20 · Rachel Fowler (id 12874345)
+
+Ruth Doyle Middle School Families,
+
+We will be having a pep assembly at the end of the day on Friday to celebrate the end of the first week of school!🎉🎈
+
+ Lunch times will be adjusted that day in order to make this happen. The updated schedule is:
+5th Grade: 10:37–10:55 a.m.
+6th Grade: 10:55–11:16 a.m.
+7th Grade: 11:45 a.m.–12:10 p.m.
+
+Thank you for your flexibility, and we look forward to a great pep assembly celebrating our students!
+
+Have a wonderful evening!
+
+#WeAreRDMS #TeamConway
+
+### 2026-08-21 · Rachel Fowler (id 12889678)
+
+Good afternoon Ruth Doyle Middle School Families!
+We hope your student has had a great first week of school! As we wrap up the first week, we wanted to share a few important reminders and resources to help everyone have a smooth and successful school year.
+
+🚗Drop-Off and Pickup
+Please review our procedures for student drop-off and pickup, including where students should enter and exit campus and the designated areas for vehicles.
+Drop-Off and Pickup Procedures
+
+💻Registration
+If you have not yet completed your student’s registration, please do so as soon as possible. Registration must be completed before your student can use a Chromebook.
+Registration Link 
+
+🐾 Wampus Cat Merchandise
+The online store is open! Be sure to place your order before August 26.Online Store 
+
+📚Yearbooks
+Yearbooks are available for purchase throughout the school year. Buy now through December 1 for only $30.
+Yearbook Purchase Link
+
+🔔Bell Schedule
+Please take a moment to review the current bell schedule so students know the daily start and dismissal times.
+Entry Bell: 7:50 AM – 7:55 AM
+1st Period: 7:55 AM – 8:45 AM
+2nd Period: 8:48 AM – 9:38 AM
+3rd Period (WIN/Homeroom): 9:41 AM – 10:26 AM
+4th Period: 10:29 AM – 11:20 AM
+
+5th & 6th Grade Schedule (Lunch A):
+Lunch A: 11:20 AM – 11:59 AM
+5th Period: 11:59 AM – 12:50 PM
+7th Grade Schedule (Lunch B):
+5th Period: 11:23 AM – 12:14 PM
+Lunch B: 12:14 PM – 12:53 PM
+
+6th Period: 12:53 PM – 1:44 PM
+7th Period: 1:47 PM – 2:37 PM
+8th Period: 2:40 PM – 3:30 PM
+
+Thank you for helping us start the school year strong! We appreciate your continued support of our students, teachers, and Ruth Doyle Middle School community.
+
+Have a wonderful weekend and we will see you on Monday!
+
+### 2026-08-23 · Conway Athletics (id 12898436)
+
+Ruth Doyle volleyball getting in some fun before the season opener with crazy sock practice.
+
+### 2026-08-23 · Rachel Fowler (id 12899993)
+
+Huge shoutout to Rosie's Treats in Conway for helping teachers celebrate the first week of school!! 
+
+Thank you so much for the cookies! 🎉🎉🎉
+
+### 2026-08-24 · Rachel Fowler (id 12910109)
+
+Important Information Coming Home Today! 📚🐾
+
+Parents and Guardians,
+
+We know the first week of school can be busy, exciting, and a little chaotic! Now that we're getting into the swing of things, we are sending home some important information today for you to review.
+
+Please take a few minutes to review, complete, and/or update the lunch and information forms being sent home with your student. Once completed, please have your student return all forms to their 1st period teacher.
+
+📱 Important Communication Update:
+Ruth Doyle Middle School and Conway Public Schools will utilize the “Rooms” feature within the Conway Public School District App for communication between teachers and guardians. Please make sure you have access to the district app so you can stay connected with your student's teachers throughout the school year.
+
+
+We appreciate your patience as we work through the busy start of the school year and thank you for helping us make sure we have the most accurate information for your student.
+
+Thank you for partnering with us! It's a great day to be a Wampus Cat! 🐾
+
+### 2026-08-26 · Conway Public Schools (id 12927067)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+

@@ -244,3 +244,13 @@ We need EVERYONE'S help to keep our dismissal process safe, organized, and effic
 
 Thank you, Ida Burns families, for your patience, understanding, and support! 🙏
 
+### 2026-08-23 · Ida Burns Elementary (id 12899463)
+
+Week 2 Parent Newsletter
+
+https://app.smore.com/n/xu04n6
+
+### 2026-08-26 · Conway Public Schools (id 12927054)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+

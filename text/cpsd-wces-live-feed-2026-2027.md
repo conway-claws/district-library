@@ -580,3 +580,149 @@ We are SO grateful for our amazing Little Cat families! 💙
 
 Thank you for helping us create a BETTER PLACE TO PLAY! 🎉
 
+### 2026-08-20 · Woodrow Cummins Elementary (id 12875351)
+
+🎉👕 SHOW YOUR WOODROW CREW SPIRIT! Orders through Aug. 31st!👕🎉
+
+Back-to-school is the perfect time to grab your Woodrow Crew T-Shirt! 💙💛❤️ These fun shirts are perfect for students, families, and staff who want to show their Little Cats pride!
+
+👕 COTTON
+• Youth Small–Adult XL — $15
+• Adult 2XL — $16
+• Adult 3XL — $17
+
+💨 DRI FIT
+• Youth Small–Adult XL — $17
+• Adult 2XL — $18
+• Adult 3XL — $19
+
+📅 Orders will be accepted through August 31st!
+
+📲 Ready to order? Scan the QR code on the flyer or go to https://bit.ly/4xniddP to place your order!
+
+💵 Payment Options:
+• Cash
+• Check made payable to WCE PTO  *please put your child's name in the memo
+• Venmo: @Woodrow-CumminsPTO-1  *put your child's name in the, "what is this for" section
+
+Let's start the school year in style! 🎒📚✨
+
+Show your school spirit. Show your Little Cat pride. Be part of the WOODROW CREW! 🐾💙
+
+### 2026-08-21 · Woodrow Cummins Elementary (id 12892862)
+
+🎉 What a GREAT first week, Kindergarten! 🎉
+
+We are SO excited about the wonderful week we've had with our newest Little Cats! 🐾💙 Our kindergarten students have worked hard, learned so much, and helped make our first week together such a special one!
+
+📬 Every kindergarten student was given a scratch-off postcard with their teacher's name on it! We hope you had fun discovering who your teacher will be! ✨
+
+We can't wait to see you Monday morning at 7:45! 💙
+
+📚 You may bring all of your child's school supplies with you Monday morning, and you'll have a chance to meet your child's teacher and start this exciting new chapter together!
+
+We are SO happy you're here, Kindergarten! Your story begins at Woodrow! 🐾📖💙
+
+### 2026-08-21 · Woodrow Cummins Elementary (id 12893340)
+
+Check out this week's Little Cat Chronicle! Don't forget to look at the note from Nurse Beth on the last page.  Little Cat Chronicle
+
+### 2026-08-23 · Jenna Havlik (id 12900291)
+
+Join us tomorrow, Monday, August 24 at 8:30 AM in the WCE Cafeteria for our PTO meeting! 
+
+Come meet other WCE parents, ask questions, learn about upcoming school events, hear about volunteer opportunities, and find ways to get involved! 
+
+We’d love to see you there! 
+
+📅 Monday, August 24
+⏰ 8:30 AM
+📍 WCE Cafeteria
+
+Let’s make this a great year for our Little Cats!
+
+### 2026-08-24 · Woodrow Cummins Elementary (id 12901351)
+
+To end the first week, Mrs. Lute's class read, Our School is a Family and discussed what it means to be a "school family."
+
+### 2026-08-24 · Woodrow Cummins Elementary (id 12901432)
+
+After reading Alma and the Worry Stone Mrs. Lute's class  talked about things they were worried about on the first day of school. Then, they made our own worry stone.
+
+### 2026-08-24 · Jenna Havlik (id 12903919)
+
+Our first grade teachers work hard to make sure their phonics lessons are fun, engaging, and memorable! When learning feels this fun, those little brains are growing by leaps and bounds!
+
+### 2026-08-24 · Jenna Havlik (id 12907960)
+
+Mrs. Russell’s second graders are learning about seasonal changes and photosynthesis. They made chlorophyll paintings with spinach leaves!
+
+### 2026-08-24 · Woodrow Cummins Elementary (id 12908491)
+
+Friendly dismissal reminder, Little Cats families! 🐾
+
+Beginning today and every day moving forward, dismissal will begin at 3:15 PM.
+
+Students will not be dismissed from their classrooms before 3:15 PM, so please plan accordingly when arriving for pickup.
+
+We appreciate your patience and understanding as we work to make dismissal safe and efficient for everyone! 💙🤍🩶
+
+Thank you for helping us keep our Little Cats safe! 🐾
+
+### 2026-08-24 · Jenna Havlik (id 12908326)
+
+It's time to start thinking about those precious memories from this school year! 💙🤍
+
+📖 2027 WCE Yearbooks are just $28 THIS WEEK ONLY!
+✨ Plus, you can get FREE icons when you purchase personalization!
+
+⏰ This special offer ends THIS FRIDAY, August 28!
+
+Yearbooks can be ordered online through Jostens. Look for the flyer coming home with your child today or tomorrow with all the ordering details!
+
+👉 Don't miss the deal — order your Little Cat's yearbook before Friday! 🐾💙
+
+Order your 2027 WCE Yearbook online at Jostens
+
+### 2026-08-25 · Woodrow Cummins Elementary (id 12913931)
+
+Our 2nd graders kicked off our new Arts & Letters Unit, "A Season of Change," with a hands-on art experience inspired by the changing seasons!  Students created beautiful paintings using real leaves, using the chlorophyll from the leaves to paint and explore the natural colors and changes happening around us.
+
+### 2026-08-26 · Conway Public Schools (id 12927057)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+
+### 2026-08-26 · Woodrow Cummins Elementary (id 12929326)
+
+Morning Drop-Off & Afternoon Dismissal Reminders
+
+Families, great job following our procedures so far! We appreciate your patience and teamwork as we continue getting everyone comfortable with our arrival and dismissal routines.
+
+Morning Drop-Off
+
+All students, except students in Ms. Kathryn's and Ms. Nail's classes, must be dropped off through our car line.
+
+The car line opens at 7:20 a.m. and closes at 7:55 a.m.
+Kindergarten students have now joined our car line, so we may experience some backups for the next few mornings as everyone learns the routine and finds their “sweet spot” for arrival time.
+
+The earlier you arrive, the greater the chance you may have to not have to wait in line. Please be patient! I promise the line will work itself out...it just takes a little time as everyone adjusts.
+
+How can you help keep the line moving?
+
+Have your student ready to exit the vehicle as soon as it is your turn.
+Please stay off your phones while in the car line.
+Pay attention and pull forward as soon as space is available. We had many large gaps between cars this morning, which slows everyone down and clogs Padgett terribly.
+Arrive as early as you can within the drop-off window.
+
+Afternoon Dismissal
+
+Afternoon dismissal is going great! Thank you for doing such a wonderful job following procedures. We would really appreciate families choosing walk-up pickup whenever possible to help alleviate traffic in the car line.
+
+Please remember:
+Have your driveline tag displayed and ready.
+The car line begins at 3:15 p.m. and typically finishes around 3:30–3:35 p.m.
+If you arrive after 3:20 p.m., walk-up pickup will no longer be an option. You will need to go through the car line.
+If you are not here when the car line has finished and there are no cars remaining, your student will be walked to the front office. You will then need to park, come inside, and present your driveline tag to pick up your student.
+
+Thank you for doing such a great job! Let's keep working together, following our procedures, and most importantly, keeping our students and campus safe. We appreciate your patience and partnership as we get these routines running smoothly!
+

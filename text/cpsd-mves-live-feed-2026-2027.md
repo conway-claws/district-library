@@ -397,3 +397,76 @@ We would LOVE to see all of our students on time, ready to learn, and ready to L
 
 Welcome Back!As students and staff return to school for another year, let’s all do our part in keeping safety at the forefront of our minds at school, at home, and on the road.·       Watch for school buses.  Slow down and never pass a stopped school bus with its lights flashing.·       Drive safely in school zones.  Slow down, pay attention, and watch carefully for students, parents, crossing guards, and school staff.·       Stay alert.  It only takes a few seconds of distraction to change a life forever.·       School safety starts when we leave our homes. It doesn’t just depend on what happens inside our school buildings.Let’s work together to ensure every student and staff member arrives at school and returns home Safe and Sound.The volume of traffic will increase this week. Please be patient as we work together getting back in the routine of drop off and pick up.Welcome back, Wampus Cats!
 
+### 2026-08-20 · Audrey Cooper (id 12883182)
+
+The walls and classrooms at Marguerite Vann are coming alive during the first week of school! 🎨📚✨
+
+We can’t wait to share the exciting educational journeys our amazing staff have in store for our students this year. From engaging learning experiences to new adventures, it’s going to be a year full of growth, discovery, and joy!
+
+Stay tuned… there’s so much more to come! 💙📖
+
+#WeAreMV #LevelUp
+
+### 2026-08-21 · Audrey Cooper (id 12883233)
+
+Parent Dining Room 🍎🐾
+
+We are excited to introduce our NEW Parent Dining Room at Marguerite Vann Elementary! 💙
+Beginning Monday, August 24, parents and approved family members are invited to enjoy lunch with their child at school.
+
+🍽️ Lunch Times:
+Kindergarten: 10:25–10:55
+Sunshine: 10:30–11:00
+2nd Grade: 10:35–11:05
+1st Grade: 11:00–11:30
+4th Grade: 11:25–11:55
+3rd Grade: 11:40–12:10
+
+📌 A Few Important Reminders:
+• Guests must check in at the front office (must have a valid identification) before going to the Parent Dining Room.
+• Only those whose names are listed as a parent, guardian, or emergency contact may eat lunch with the student.
+• Outside food is welcome! 🥪🍎
+• At the end of lunch, parents and students should return to the office together so students can get back to class on time.
+
+We are so excited to create another opportunity for our families to connect with their children during the school day! 💙🐾
+
+We can’t wait to see you in the Parent Dining Room!
+
+### 2026-08-21 · Audrey Cooper (id 12890092)
+
+Thank you, Mrs. Wendy Givens, for celebrating our amazing staff today as we complete week one of the 2026–2027 school year! 💙
+
+Your thoughtfulness and support mean so much to our staff. What a wonderful way to celebrate a successful first week! We appreciate all our parent volunteers! 🎉🍎
+
+### 2026-08-22 · Audrey Cooper (id 12892297)
+
+🌈🎨 COLOR WEEK IS COMING TO VANN! 🎨🌈
+
+Kindergarten is learning their colors next week, August 24–28, and we’re ready for a colorful week of fun! 🌈✨
+
+❤️ Monday – RED
+🧡💛 Tuesday – ORANGE/YELLOW
+💚 Wednesday – GREEN
+💙 Thursday – BLUE
+💜 Friday – PURPLE
+
+Families, help us make the week extra colorful by having your child  dress in the color of the day!👕🌈
+
+We can’t wait to see our Vann students showing their school spirit and filling the week with COLOR!🎨🐾
+
+Thank you for helping us make Color Week fun and memorable! 💙
+
+### 2026-08-25 · Audrey Cooper (id 12914736)
+
+Happy Tuesday! 💛🧡 Our morning car duty was a little bit brighter today!
+
+Kindergarten is learning all about yellow and orange, and our principal and interventionist greeted our students in style! 🌟🟡🟠
+
+We love starting the day with smiles, school spirit, and a little color! We’re ready for another great day of learning at Marguerite Vann! 📚🐾
+
+#WeAreVann#LevelUp
+
+### 2026-08-26 · Conway Public Schools (id 12927065)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+

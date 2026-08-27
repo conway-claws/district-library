@@ -297,3 +297,89 @@ To help keep our students safe during dismissal, please remember:
 
 Thank you for following these procedures and helping us keep our students safe!
 
+### 2026-08-20 · Karon Branch (id 12877358)
+
+This is a gentle reminder...
+Car Rider & Dismissal Safety 🚗
+
+To help keep our students safe during dismissal, please remember:
+
+• In the car rider lane, students may only enter vehicles in front of the crosswalk.
+• If you are picking up your child in the staff parking lot, please back into a designated parking space to increase visibility and allow you to see students more clearly when leaving.
+• Vehicles will not be allowed to stop in the driving lane to pick up students. You must be parked in a designated parking space.
+• Students will frequently cross through the parking lot, so please proceed slowly and use extra caution when leaving your parking space.
+
+Thank you for following these procedures and helping us keep our students safe!
+
+### 2026-08-24 · Karon Branch (id 12903879)
+
+Good morning, Simon Middle School families! ⏰
+
+This is a friendly reminder that students arriving after 7:55 a.m., must be accompanied by a parent or guardian. A parent or guardian must walk the student into the front office and sign them in. Students may not be dropped off at the entrance to enter the building independently after 7:55 a.m.
+
+Thank you for helping us maintain a safe and efficient arrival process!
+
+### 2026-08-24 · Karon Branch (id 12904851)
+
+📣 School T-Shirts Available!
+
+Any students or parents interested in purchasing a Simon Middle School T-shirt may do so by Friday. T-shirts are $15, payable by cash or check.
+
+Checks should be made payable to Simon Middle School.
+
+Please stop by Ms. Branch's office to purchase your shirt.
+
+Thank you for supporting Simon Middle School! 💜
+
+### 2026-08-24 · Karon Branch (id 12910081)
+
+Good afternoon,
+
+The Conway School District is proud to welcome all our students, as well as parents and members of the community, to the exciting athletic events that we offer. Conway students (band, cheerleaders, dance squad, and athletes) practice numerous hours so they are prepared for our extracurricular events. These guidelines are designed to make our games safe and enjoyable for all spectators.
+
+CONWAY HIGH SCHOOL ATHLETIC EVENTS
+
+Elementary, Middle School and Junior High students must be accompanied to the game by a parent/guardian or responsible adult.
+
+CONWAY JUNIOR HIGH SCHOOL ATHLETIC EVENTS
+
+Elementary and Middle School students must be accompanied to the game by a parent/guardian or responsible adult.
+
+CONWAY MIDDLE SCHOOLS ATHLETIC EVENTS
+
+Elementary school students must be accompanied to the game by a parent/guardian or responsible adult.
+
+
+Regardless of grade level, all students are expected to follow standard rules for proper sporting attendance.
+
+1. NO LOITERING around unauthorized areas of the stadium, arena, fields, and campus. This includes the High School Courtyard. Students should be seated in the stands, unless at the concession stand or the restroom.
+
+2. Fans may not bring items such as backpacks, balls, skateboards, or bikes into the game.
+
+3. No outside food or drink is allowed. Concessions are available inside the game.
+
+4. School rules apply and cooperation is expected with all game workers and school personnel. Failure to follow rules or lack of cooperation will result in removal from the game.
+
+5. It is expected that all students will leave school grounds in a timely manner after completion of the game. Students that are not picked up in a timely manner (20 minutes from the end of the game) will not be allowed to return for future games. Students can call parents before the end of the game to allow transportation to get there in a timely manner. 
+
+
+Thank you for your cooperation and your support of Conway Public Schools Athletics! 
+
+
+
+Greg Hughes
+
+Athletic Director 
+
+Conway Public Schools
+
+501-450-6631
+
+### 2026-08-26 · Conway Public Schools (id 12927068)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+
+### 2026-08-27 · Karon Branch (id 12938535)
+
+Our Back-to-School PD was even better because of our incredible community partners! Your generosity and support helped us create a fun, energizing start to the school year. We are so grateful for a community that believes in our staff and students!
+

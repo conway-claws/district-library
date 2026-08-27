@@ -178,3 +178,29 @@ Orders due September 6!
 
 Every purchase supports Theodore Jones Elementary students & staff! 🐾
 
+### 2026-08-23 · Theodore Jones Elementary (id 12897663)
+
+Don't forget to support our school and order your gear. 
+
+🛍️ SHOP HERE:
+https://tjespto.itemorder.com/shop/home/
+
+Orders due September 6!
+
+### 2026-08-23 · Theodore Jones Elementary (id 12897723)
+
+Kindergarten Families 💙
+Kindergarten Camp is officially over, and tomorrow is your child’s first official day of kindergarten! 🥳
+
+Tomorrow, you may walk your child to their classroom for the final time. Teachers will be at their classroom doors beginning at 7:45 a.m. to welcome students.
+
+After tomorrow, kindergarten students are expected to get out of the car and enter the building on their own. Parents will no longer be permitted to walk students to the front door, classroom, or inside the building.
+
+It may be harder on you than it is on them but we know they can do it!
+
+We’re excited for a great year!
+
+### 2026-08-26 · Conway Public Schools (id 12927058)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+

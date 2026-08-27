@@ -956,3 +956,147 @@ Introducing your 2026-2027 Lady Cat Soccer Team!
 
 #ladycats #finishempty
 
+### 2026-08-20 · Conway Athletics (id 12856284)
+
+Gameday for the Lady Cat Volleyball team! Going to be a good night of volleyball at Buzz Bolding Arena! 
+
+Only AAA passes accepted for admission. Buy tickets below!
+Ticket Link : https://gofan.co/event/6717826?schoolId=AR4663
+
+### 2026-08-20 · Beth Fluesmeier (id 12879108)
+
+Wampus Cat Football
+
+### 2026-08-24 · Canaan Groesbeck (id 12886526)
+
+First match of the season! Gameday for the Lady Cat Volleyball team! Tonight at home vs Benton. 
+JV will start at 5pm and Varsity will tentatively begin at 6pm. 
+
+Ticket Link 
+https://gofan.co/event/6687641?schoolId=AR4663
+
+Live Stream Link 
+https://www.youtube.com/live/R5dxn2v9ak0
+
+### 2026-08-24 · Marcelle Goins (id 12905360)
+
+Tickets for tonight's JV Football at Central game can be purchased before the game and at the gate. Everyone is instructed to sit on the home side of their stadium. 
+
+🔗 https://gofan.co/event/6784407
+
+### 2026-08-24 · Beth Fluesmeier (id 12893030)
+
+Conway Athletic Event Reminders
+
+### 2026-08-24 · Conway Athletics (id 12908380)
+
+This week events!
+
+### 2026-08-25 · Conway High School (id 12914979)
+
+🎟️ Important Update for Little Rock Central Home Games
+
+LRSD has adjusted its ticket purchasing policy for home games. Please review the following information and share it with parents and stakeholders:
+
+• Tickets will be available for purchase online until 7:00 PM on the date of each home game using the ticket link or QR code provided below.
+• The ticket QR code will also be posted on the ticket booth windows at Central High School venues.
+• Clear bag policy remains in effect. Purses larger than a clutch are not permitted.
+• Students from schools other than the school competing against Little Rock Central will not be admitted to our venues.
+• Students who do not have a student ID must be accompanied by an adult at least 21 years old, unless visiting school administration can verify that the student is currently enrolled at their school.
+
+Thank you for helping us share this information and ensure a smooth experience for everyone attending Central home events!
+
+### 2026-08-25 · Beth Fluesmeier (id 12922232)
+
+Get your student an all sport pass today on the GoFan app.
+
+### 2026-08-25 · Conway High School (id 12915088)
+
+📸 PICTURE DAY!
+
+Seniors: Wednesday, September 9
+Seniors will take their yearbook/cap&gown photo if they have not already done so.
+
+Juniors: Thursday, September 10
+Sophomores: Friday, September 11
+
+Don’t forget to look your best! 📸 ✨
+Makeup day TBD
+
+### 2026-08-25 · Conway High School (id 12915152)
+
+🎓 JOSTENS IS COMING!
+
+Jostens will be visiting Conway High School to help our seniors and juniors get ready for some important milestones!
+
+🎓 Seniors — Learn all about cap & gown options and graduation essentials.
+📅 Tuesday, September 15
+📚 During ELA Classes
+
+💍 Juniors — Get information about class rings and everything you need to know before ordering yours!
+📅 Tuesday, September 16
+📚 During ELA Classes
+
+📝 Jostens In-Person Order Day
+📅 Tuesday, September 22
+⏰ 8:00 AM–1:00 PM
+
+Be sure to mark your calendars! 🎓💍
+
+### 2026-08-25 · Conway Athletics (id 12923595)
+
+Conway Cross Country competed in our first meet of the year. Jr. High Boys finished 2nd, and both Sr. High teams finished in 1st place!
+
+### 2026-08-26 · Katy Gorden (id 12901930)
+
+CONWAY CHEER & DANCE MINI CLINIC in ONE month away!
+
+We’re so excited to announce that Conway Cheer & Dance are hosting our 2026 Mini Clinic 💙🐾
+
+Clinic: September 26th, 2026  - 10 am - 12pm
+Game performance: October 2nd, 2026
+
+Come learn, dance, cheer, stunt, and have a TON of fun with us! We can’t wait to see all of our future Wampus Cats! 🐾💙
+
+SIGN UP HERE:
+https://gofan.co/event/6794667?schoolId=AR4663
+
+Tag a friend & share this post! 📣
+We’ll see you September 26th! 💙✨
+
+### 2026-08-26 · Conway Public Schools (id 12927074)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+
+### 2026-08-26 · Conway High School (id 12917102)
+
+📣 ATTENTION, JUNIORS!
+
+It’s time to sign up for the PSAT/NMSQT! The test is Tuesday, October 27, and the deadline to sign up is Friday, September 4.
+
+📝 HOW TO SIGN UP: Complete the PSAT/NMSQT sign-up form and pay the $17 fee in the Counseling Center. Link: https://forms.gle/8SBdekFMMh1QWXu4A
+
+🌟 WHY TAKE IT? The PSAT/NMSQT can help you learn about your AP potential and provides an opportunity to enter the National Merit Scholarship Program.
+
+📚 Want to learn more? Check out the PSAT/NMSQT Student Guide for helpful information about the test.  Link: https://satsuite.collegeboard.org/media/pdf/psat-nmsqt-student-guide.pdf
+
+👉 Don’t miss out—sign up by September 4!
+
+### 2026-08-27 · Canaan Groesbeck (id 12897792)
+
+Game day for your Lady Cat Volleyball Team! We're traveling to NWA and taking on the Greenwood Lady Bulldogs!
+
+### 2026-08-27 · Conway High School (id 12943497)
+
+🌟 From Wampus Cat to MIT! 🐾
+
+We were excited to welcome back CHS Class of 2024 graduate and rising MIT junior Ellie Feng to campus today! Ellie shared how her education in mathematics, physics, and computer science at Conway High School has shaped her research on detecting disintegrating exoplanets. 🪐🔭
+
+She also shared some great advice for students preparing for college: develop strong time-management skills, get enough sleep, and get involved!
+
+And Ellie is certainly putting that last piece of advice into practice. At MIT, she’s learned glassblowing, sailing, fencing, and stained-glass making, and she’s a member of the MIT Video Game Orchestra! (And apparently, her dorm room has an impressive 19 windows! 😂)
+
+Thank you, Ellie, for coming back to CHS to share your experiences, your expertise, and some encouragement with our students. We’re proud to see where our Wampus Cats are headed! ❤️🐾
+
+#WampusCatPride #ConwayHighSchoolGraduate
+

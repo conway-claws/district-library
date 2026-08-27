@@ -799,3 +799,32 @@ A huge THANK YOU to our amazing CLE PTO for all of your help at Open House! 💙
 
 #WeAreCLE
 
+### 2026-08-20 · Carolyn Lewis Elementary (id 12864652)
+
+Mrs. White’s class spent some time reading a book and talking about what it means to be a family in their classroom. 💙 They each received a special bracelet as a reminder that they are part of one classroom family! 📚🫶 #WeAreCLE
+
+### 2026-08-21 · Carolyn Lewis Elementary (id 12864687)
+
+A big THANK YOU to Tina Congine and McDonald’s for the delicious Sausage McMuffins they provided for our CLE teachers and staff! ❤️ We appreciate you thinking of our staff and helping us start the day with a tasty breakfast!
+
+#WeAreCLE
+
+### 2026-08-21 · Carolyn Lewis Elementary (id 12387440)
+
+🌿 Friendly Friday Reminder! 🌞 Don’t forget—Summer Learning in the CLE Garden is happening tomorrow from 9–10am! Join us behind the school to dig in, learn, and grow together. 🌱🌼 See you there!
+
+### 2026-08-21 · Carolyn Lewis Elementary (id 12885009)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-08-23 · Carolyn Lewis Elementary (id 12898446)
+
+Kindergarten Reminder: 
+
+Kindergarten parents, now that you have your child’s teacher assignment, you are welcome to walk your child into class tomorrow only! 💙
+Just remember that classroom doors will not open until 7:45 AM. Before then, students will be in the cafeteria or hallway while teachers get ready to welcome them into their classrooms. Please plan accordingly if you choose to walk your child in.
+
+### 2026-08-26 · Conway Public Schools (id 12927059)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+

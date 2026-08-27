@@ -10,7 +10,7 @@ drive_id:
 drive_kind:
 rights: public-web
 text: text/cpsd-csms-live-feed-2026-2027.md
-retrieved: 2026-08-20
+retrieved: 2026-08-27
 verified: 2026-08-24
 status: current
 tags: [live-feed, 2026-2027]

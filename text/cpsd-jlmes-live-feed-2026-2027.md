@@ -317,3 +317,100 @@ Ending Wednesday with even more back-to-school joy! 📸 From huge morning smile
 
 Good morning! Thursday is here, and so is another round of our favorite back-to-school pictures. Nothing beats the excitement of a fresh start! Look through to see today’s featured students. 📸 #JuliaLeeMoore #WeAreJLM #BackToSchool
 
+### 2026-08-20 · Julia Lee Moore Elementary (id 12858880)
+
+Thursday afternoon is here, and our feed has never looked better! 📸 Huge thanks to all the JLM families sharing these awesome back-to-school moments. Finish the week strong, JLM! 💪✨ #JuliaLeeMoore #WeAreJLM #BackToSchool
+
+### 2026-08-21 · Julia Lee Moore Elementary (id 12859014)
+
+Happy Friday! 🥳 We made it through the first week! Celebrating the occasion with another set of your incredible back-to-school photos. Look at all those proud faces ready to tackle the year! 🎓✨ #JuliaLeeMoore #FriYay #FirstWeekSuccess #BackToSchool
+
+### 2026-08-21 · Julia Lee Moore Elementary (id 12886583)
+
+Please help us wish our  principal, Mr. Hughes, a very Happy Birthday today! 🍰✨
+Leave a comment below to drop your birthday wishes and show him some JLM love! 🥳
+
+#JuliaLeeMoore #CultureofCaring #WeAreJLM #HappyBirthday
+
+### 2026-08-21 · Julia Lee Moore Elementary (id 12859107)
+
+Week One is officially complete! 🏆 Big thanks to all the parents who submitted back-to-school pictures and made our feed so bright all week long. Rest up, enjoy the weekend, and we’ll see you Monday! 💙 #JuliaLeeMoore #WeAreJLM #BacktoSchool
+
+### 2026-08-23 · Julia Lee Moore Elementary (id 12899236)
+
+🚗 Morning Drop-Off Safety Reminders! 🚗
+
+Help us keep our students safe every morning in the front loop (7:15 AM – 7:50 AM)! Please keep these key guidelines in mind:
+
+Stay in line: Follow the flow of the orange cones and pull all the way forward. Do not cut in front of other vehicles or drop students off in the middle of traffic.
+
+Stay in your vehicle: Please remain in your car. A staff member will be out front to greet and receive your child. Never leave your child unattended.
+
+Passenger side drop-off: Ensure your student exits on the passenger side directly onto the walkway.
+
+Need extra time? If your child needs a few extra minutes to gather their belongings or say goodbye, please pull off to the side or park so the main line stays moving smoothly.
+
+Stay alert: Speeding and using cell phones in the car line are strictly prohibited (and cell phone use in school zones is against the law!).
+
+Thank you for your patience and cooperation in making our mornings safe and smooth for everyone! ☀️
+
+### 2026-08-24 · Julia Lee Moore Elementary (id 12875311)
+
+Teamwork makes the dream work—especially in 2nd grade! 🌟 Watch our learners build big skills and even bigger friendships as they learn and grow together. 🎨📚🧩 
+#JuliaLeeMoore #CultureofCaring #SecondGrade
+
+### 2026-08-24 · Julia Lee Moore Elementary (id 12903550)
+
+Last chance for your JLM t-shirt! 🐾👕
+
+Order forms and payment are due to the front office or your student's teacher by this Friday, August 28th. Don't miss out!
+
+ #JuliaLeeMoore  #WeAreJLM #SchoolSpirit
+
+### 2026-08-25 · Julia Lee Moore Elementary (id 12908787)
+
+Inside recess called for ultimate focus, serious teamwork, and one epic cup tower. Look at those proud smiles—future engineers in the making! 🏆🙌
+
+#JuliaLeeMoore #WeAreJLM #InsideRecess
+
+### 2026-08-25 · Julia Lee Moore Elementary (id 12920575)
+
+💙 Supporting Our JLM Families! 💙
+
+At JLM, caring for our students means supporting them both in and out of the classroom. We’ve sent out a quick resource form to help us connect your family with any extra support or services your child might need this school year.
+
+You can access the form directly here: JLM Student Support Request Form
+
+Confidentiality First: Your privacy matters to us. Responses are kept strictly confidential and are only shared with your child’s counselor, homeroom teacher, and school administration to coordinate care.
+
+Counselor Follow-Up: Our school counselor will reach out directly to families who request support.
+
+Optional: If your family doesn't need any assistance right now, you don't need to fill out the form!
+
+We are so grateful for our JLM community and are always here to help. Please don't hesitate to reach out if you have any questions!
+
+
+#JuliaLeeMoore #StudentSupport #JLMCommunity #FamilyResources
+
+### 2026-08-26 · Julia Lee Moore Elementary (id 12909214)
+
+We’ve been reading Beautiful Oops! by Barney Saltzberg in art class this week, and the creativity has been off the charts! 🎨✨
+
+Our young artists took on the challenge to embrace their mistakes and turn their "oops" paper into brand-new masterpieces.
+
+#JuliaLeeMoore #WeAreJLM #ArtClass #BeautifulOops
+
+### 2026-08-26 · Conway Public Schools (id 12927061)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+
+### 2026-08-27 · Julia Lee Moore Elementary (id 12915070)
+
+Mission accomplished in 3rd grade! 🛟🐛 
+
+Today our students tackled the ultimate rescue mission: Save Fred! Working in small teams, they had to save Fred the worm from his capsized boat and get him safely into his life preserver—using only paperclips and zero hands! 
+
+It took lots of patience, encouragement, and creative problem-solving, but every single group pulled it off. 100% of the Freds were saved! 🎉👏
+
+#JuliaLeeMoore #WeAreJLM #3rdGrade  #Teamwork
+

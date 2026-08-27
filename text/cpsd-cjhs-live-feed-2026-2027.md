@@ -469,3 +469,87 @@ Questions or concerns or pick up info?
 
 WEAR IT. REP IT. SUPPORT THE CATS!
 
+### 2026-08-21 · Marquis Rogers (id 12886493)
+
+It's Popcorn Friday! Please stop by the front office during your lunch to grab a bag!
+
+### 2026-08-24 · Marquis Rogers (id 12901289)
+
+Good morning, staff!
+
+Thank you for your flexibility this morning. Out of an abundance of caution, on mornings like today with heavy rain, thunder, and lightning, we will allow each grade level to begin entering the building approximately five minutes early. Students naturally move a little slower in these conditions, and our priority is making sure everyone gets inside safely.
+
+Please also keep in mind that some students may trickle in a few minutes late this morning due to the weather and roadway conditions. We appreciate your patience and understanding as everyone makes their way to school safely.
+
+Thank you for helping us take care of our students this morning. Happy Monday!
+
+### 2026-08-24 · Conway Junior High (id 12904680)
+
+Dear Parents and Students,
+We hope you have a great week! Here are the important updates and announcements for the upcoming week.
+
+Link to Announcements: 
+
+https://docs.google.com/document/d/1Od7p7r2ZqXVPTas6D62umJI99XyOCKWtUDlOlNcyL1Q/edit?usp=sharing
+
+### 2026-08-26 · Marquis Rogers (id 12925167)
+
+Bus 89 students will be late to first period.  Please do not mark them as tardy.
+
+### 2026-08-26 · Marquis Rogers (id 12925217)
+
+These busses will also be late.  Please do not mark these students tardy.
+
+### 2026-08-26 · Marquis Rogers (id 12925229)
+
+29 & 135
+
+### 2026-08-26 · Conway Public Schools (id 12927071)
+
+Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
+
+### 2026-08-26 · Conway Junior High (id 12928431)
+
+📸 Picture Day is coming to CJHS!
+
+It's time to smile, Wampus Cats! We're excited to capture those school-year memories with our students.
+
+📅 8th Grade: September 15
+📅 9th Grade: September 16
+
+Mark your calendars and come ready to smile! 📸💙
+
+### 2026-08-27 · Marcus Kordsmeier (id 12940366)
+
+SALT CUP RECAP 
+
+Earlier this week, our Conway Wampus Cat Golf teams battled it out at the Salt Cup. While we didn't take home the team titles, our players put up some good individual numbers against a tough field!
+
+Top Performers:
+Jeanlutz Yang: -3 (69) 
+Laken Silkwood: -3 (69)
+Izabella Clark: Led the girls with a strong 85!
+
+Full Tournament Squad Scores:
+Proud of the grit and fight from our entire lineup on two challenging courses.
+Boys: Cooper Heiple (76), Sawyer Johnston (81), Sam Owen (81), Dylan Overman (83), Lawson Ussery (83), Dax Overman (85), JT Martin (88), Evan Gatlin (94)
+Girls: Janie Massey (93), Savannah Worley (100), Ella Berger (107), Ava Slay (108)
+
+What's Next? We are taking this momentum straight into next Thursday as we travel back to Longhills Golf Course in Benton. 
+
+GO WAMPUS CATS!!
+#CompeteEveryDay
+
+### 2026-08-27 · Conway Junior High (id 12943912)
+
+📚✨ DON'T MISS OUT ON THE MEMORIES! ✨📚
+
+The 2026–2027 CJHS Yearbook is now on sale for just $37! 🎉
+
+⏰ Sale ends TOMORROW, August 28!
+💰 Save up to $20 when you add 4 icons using code YB1CONS.
+
+Scan the QR code on the flyer or visit the yearbook ordering site to get yours today! 📸💙
+
+Don't wait—once the sale ends, the price goes up! 👀
+
