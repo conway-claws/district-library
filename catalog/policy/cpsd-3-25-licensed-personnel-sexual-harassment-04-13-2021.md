@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-25-licensed-personnel-sexual-harassment-04-13-2021.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2021-04-13
 sha256: 8e993de267b9db3c8b5d087af5a9c542bcf922495d23d461dcb6414160414107
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

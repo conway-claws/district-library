@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-38-licensed-personnel-salary-pay-periods.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2007-06-12
 sha256: a504598ed8686cf0a84ec0a35d9ab842e9b2d7870f8d1da9ce04b8b62d6af466
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

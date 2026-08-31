@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-2022-23-classified-employee-contract-informati.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [finance, employee-contracts, state-required, 2022-2023]
 sha256: 7391348a49b5eb897fa53ad4e0f1c2851c044e7816aa6ab812d571c710deb372
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

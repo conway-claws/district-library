@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-16a-dress-of-classified-employees-maintenance-and-custodial-dress-code.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2010-04-15
 sha256: fadcdf6f7d8049c1f7c9a882d83b43be58beb9e9f8597d6a86cbeb7980cf6f72
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

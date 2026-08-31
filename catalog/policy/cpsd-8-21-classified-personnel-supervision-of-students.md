@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-21-classified-personnel-supervision-of-students.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2007-06-12
 sha256: 726acd4fbbda3f5c9568076c87ec746015d8e7b34d27775fce9c9c6b4d873d4f
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

@@ -11,13 +11,13 @@ drive_kind:
 rights: public-record
 text: text/cpsd-superintendent-employment-agreement-2026-2028.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: superseded
 tags: [finance, employee-contracts, state-required, ocr-extracted]
 sha256: c9430e42f669976f0b74b15462bf1b3fdc8ee7b84ca127906a426fa7c34f1e01
 supersedes: cpsd-interim-superintendent-contract-2025-2026
 superseded_by: cpsd-superintendent-employment-agreement-2026-2029
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

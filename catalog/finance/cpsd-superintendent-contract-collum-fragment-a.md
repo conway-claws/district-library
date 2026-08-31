@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-superintendent-contract-collum-fragment-a.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [finance, employee-contracts, state-required, 2023-2024]
 sha256: 64dcc8896e99a33966297e1852beaa8903f5558ce2492cb7401ffcec401198e3
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

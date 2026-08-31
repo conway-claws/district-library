@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-01-licensed-personnel-salary-schedule.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2024-04-09
 sha256: edb328c57e0f56109396b3775946b26cde4f879f0ff29bfd3459eaf56b2e9799
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

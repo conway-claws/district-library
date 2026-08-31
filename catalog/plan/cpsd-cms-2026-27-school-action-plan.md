@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-cms-2026-27-school-action-plan.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, school-improvement-plan, 2026-2027]
 sha256: 6e469d0f434421292218891c960f7160f225b07e74cb9ee12289c0b4f08f27a5
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

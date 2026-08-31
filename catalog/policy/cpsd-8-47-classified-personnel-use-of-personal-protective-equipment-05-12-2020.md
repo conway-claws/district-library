@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-47-classified-personnel-use-of-personal-protective-equipment-05-12-2020.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2020-05-12
 sha256: e98c5130dabe1ec2933427b13dba3ce9ea69071f13a33901e746f34438302a3f
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

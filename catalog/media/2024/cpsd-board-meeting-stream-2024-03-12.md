@@ -11,11 +11,11 @@ drive_kind:
 rights: public-web
 text: text/cpsd-board-meeting-stream-2024-03-12.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, meeting-stream]
 date: 2024-03-12
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-bob-and-betty-courtway-middle-school-family-engagement-plan-2024-2025.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, family-engagement-plan, 2024-2025]
 sha256: 5dce930b53ee9f42cc3ec299f7a99afd6c60b0050a8254d062a4ba215c83e4d7
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

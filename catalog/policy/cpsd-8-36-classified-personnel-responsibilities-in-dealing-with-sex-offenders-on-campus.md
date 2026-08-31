@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-36-classified-personnel-responsibilities-in-dealing-with-sex-offenders-on-campus.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2020-04-14
 sha256: 25d2fdaef5e56de06ca8aa60b838978806257fdb249cbc83c6e846f6a1e33731
 supersedes: cpsd-8-36-classified-personnel-responsibilities-in-dealing-with-sex-offenders-on-campus-2
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-41-obtaining-and-releasing-students-free-and-reduced-price-meal-eligibility-information-2.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: superseded
 tags: [school-board, policy, classified-personnel]
 date: 2014-04-15
 sha256: 6103d3801c8bdd84a0a96b18d343ff8450d8628ce89fa4968e0b99d32c5df49b
 superseded_by: cpsd-8-41-obtaining-and-releasing-students-free-and-reduced-price-meal-eligibility-information
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

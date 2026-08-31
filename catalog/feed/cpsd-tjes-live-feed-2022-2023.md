@@ -11,10 +11,10 @@ drive_kind:
 rights: public-web
 text: text/cpsd-tjes-live-feed-2022-2023.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [live-feed, 2022-2023]
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

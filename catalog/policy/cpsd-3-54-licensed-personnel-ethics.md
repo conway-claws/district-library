@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-54-licensed-personnel-ethics.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2013-04-09
 sha256: c6d2a0d6d54a6f1e37e60d4022087e3fdba6efb21ab643df980eae169faf0a38
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

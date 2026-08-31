@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-60-written-code-of-conduct-procurement-cnp-05-23-2019.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2019-05-23
 sha256: 3a0203f5854284a4b4a85ac3288cf65a15a4e60c731ca1ffc466c3c45cd02925
 supersedes: cpsd-3-60-written-code-of-conduct-procurement-cnp
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

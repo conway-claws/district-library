@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-15-classified-personnel-use-of-tobacco-electronic-nicotine-delivery-systems-and-related-products-04-13-2021.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2021-04-13
 sha256: 112d4165131a92f09466903fbead9d3e5961441f4e72a7eb0a2ddb2e87a0f17f
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

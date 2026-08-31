@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-ruth-doyle-middle-school-school-action-plan-25-26.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, school-improvement-plan, 2025-2026]
 sha256: ad4f2656aacb8c6f10b0f8a6ff608bd7d769b0b99b525ba6a1688f511756162e
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

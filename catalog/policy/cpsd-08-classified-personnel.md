@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-08-classified-personnel.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy]
 sha256: 978ae2b7993c2476fe16d50185be2cc7b0a1a1ae9a876612d1c1996db75fdd0e
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

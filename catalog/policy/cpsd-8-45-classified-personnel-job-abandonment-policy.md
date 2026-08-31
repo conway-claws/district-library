@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-45-classified-personnel-job-abandonment-policy.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2018-05-08
 sha256: 58d06eb1a907ec570c4ffc123486d862b8ef7bf102cabfe137f12a2dbe2e40df
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

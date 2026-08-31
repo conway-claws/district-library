@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-20-licensed-personnel-reimbursement-of-travel-expenses.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, licensed-personnel]
 date: 2007-06-12
 sha256: be3bf13239d0d9091cd35ca12fec700ef450dd85904f7f69ff188b50b9bf385b
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

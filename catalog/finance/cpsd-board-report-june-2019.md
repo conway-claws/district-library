@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-board-report-june-2019.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [finance, monthly-financial-reports, 2018-2019]
 date: 2019-06-30
 sha256: 223820cfe448a972b771511978c6276e5b96cdb772a8649dc1971f7b67f33b57
 extractor: pdftotext@26.08.0+finance-table
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

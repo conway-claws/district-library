@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-20-classified-personnel-sexual-harassment-03-14-2023.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2023-03-14
 sha256: cab46c213be7aaed4e8cdafc346e0899589b8ee173d381ca9cf77f0e745e7057
 supersedes: cpsd-8-20-classified-personnel-sexual-harassment
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---

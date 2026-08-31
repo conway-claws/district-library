@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-22-classified-personnel-technology-use-policy.md
 retrieved: 2026-08-09
-verified: 2026-08-24
+verified: 2026-08-31
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2024-04-09
 sha256: 7be501057f6fe377da4cf881c1f8007f7edcd75f042b5cc7dca2625eb5ba15bf
-last_check: 2026-08-24
+last_check: 2026-08-31
 fail_since:
 fail_reason:
 ---
