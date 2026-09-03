@@ -553,3 +553,51 @@ Scan the QR code on the flyer or visit the yearbook ordering site to get yours t
 
 Don't wait—once the sale ends, the price goes up! 👀
 
+### 2026-08-27 · Cheyenne Kuhn (id 12945229)
+
+Congratulations to the CJHS volleyball players of the week! We’re so proud of their hard work and leadership! 💙🏐🏆 Good job girls!
+
+### 2026-08-28 · Marquis Rogers (id 12949640)
+
+It's popcorn Friday! Please stop by the front office during your lunch to enjoy!
+
+### 2026-08-29 · Conway Athletics (id 12960170)
+
+CJHS volleyball spent this morning working hard at a Round Robin! We ended up 2-1, beating Greenbrier and Greenwood and losing a tough one to Southside Ft. Smith! We're proud of our girls hard work! 💙
+
+### 2026-08-31 · Conway Junior High (id 12914209)
+
+Dear Parents and Students,
+We hope you have a great week! Here are the important updates and announcements for the upcoming week.
+
+Link to Announcements: 
+
+https://docs.google.com/document/d/1Od7p7r2ZqXVPTas6D62umJI99XyOCKWtUDlOlNcyL1Q/edit?usp=sharing
+
+### 2026-08-31 · Conway Junior High (id 12971342)
+
+📣 Wampus Cats, here’s your Week at a Glance! 
+
+We’ve got a busy week of athletics ahead! Be sure to check out the schedule and come support our Wampus Cats! Let’s have a great week! 💙🤍
+
+### 2026-09-01 · Conway Public Schools (id 12987900)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Conway Public Schools (id 12662815)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-01 · Conway Junior High (id 12928386)
+
+📸 Picture Day is coming to CJHS!
+
+It's time to smile, Wampus Cats! We're excited to capture those school-year memories with our students.
+
+📅 8th Grade: September 15
+📅 9th Grade: September 16
+
+Mark your calendars and come ready to smile! 📸💙
+

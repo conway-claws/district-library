@@ -470,3 +470,71 @@ We love starting the day with smiles, school spirit, and a little color! We’re
 
 Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
 
+### 2026-08-27 · Audrey Cooper (id 12945404)
+
+🎉 Congratulations to our Marguerite Vann Elementary Grant Winners!🎉
+
+We are so proud of our amazing teachers who were awarded grants through the Conway Public Schools Foundation, Inc.! 💙
+
+These grant funds will provide valuable resources and enriching opportunities for our students and will benefit our campus in many meaningful ways. We are grateful for teachers who continue to find innovative ways to enhance learning and create memorable experiences for our students!
+
+👏 Help us congratulate our Marguerite Vann grant winners! We are so proud of you!
+
+#WeAreMVE#LevelUp
+
+### 2026-08-28 · Audrey Cooper (id 12950995)
+
+🌈 COLOR WEEK at Marguerite Vann Elementary! 🌈
+
+A HUGE shout-out to our amazing librarian, Ms. Rosa Etter, for helping our Kindergarten s
+
+### 2026-08-29 · Audrey Cooper (id 12959336)
+
+🏈 Celebrating Our Teachers & Employees of the Year!🏈
+
+During our first home football game of the season, Conway Public Schools proudly r
+
+### 2026-08-30 · Audrey Cooper (id 12964305)
+
+🍦🎉 SEPTEMBER ATTENDANCE CHALLENGE! 🎉🍦
+
+We're ready to SCOOP UP SUCCESS at Marguerite Vann Elementary! 💙🐾
+
+📚 Be here. On time. Every day!
+
+⏰ Attendance will be taken at 8:15 every morning.
+
+🍨 When ALL students are present, each class earns a scoop for their cone!
+🏆 The first class to reach 10 scoops will win an ICE CREAM PARTY! 🍦🎊
+
+Let's work together to make every day count and help our students build strong attendance habits!
+
+Who will be the first class to reach 10 scoops? 👀🍦
+
+💙 LET'S SCOOP UP SUCCESS TOGETHER! 🐾
+
+#WeAreMVE#AttendanceMatters#LevelUp
+
+### 2026-09-01 · Conway Public Schools (id 12987895)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Conway Public Schools (id 12662810)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-02 · Conway Public Schools (id 12997348)
+
+📣 Wampus Cats, it’s time to show your SPIRIT! 💙🤍Get ready for the Conway Spirit Clinic, hosted by the CHS Cheer & Dance teams! 🎀🐾Open to students in Grades K–5!📅 Saturday, September 26 - Deadline: September 25
+⏰ 10 AM–12 PM
+💰 $35
+📍 Conway High School Indoor FacilityClinic participants will have the chance to perform with CHS Cheer & Dance during halftime on October 2! 🏈📣It’s going to be a morning full of fun, dancing, cheering, and Wampus Cat spirit! 💙🤍👉 Sign up using the GoFan link! - https://gofan.co/event/6794667?schoolId=AR4663Let’s see that Wampus Cat spirit! 🐾💙#TeamConway #WampusCats #ConwaySpirit #CHSCheer #CHSDance
+
+### 2026-09-02 · Audrey Cooper (id 13006548)
+
+👑✨ Good luck, Ava!✨👑
+
+Marguerite Vann is so proud to cheer on one of our former students,  Ava Weeks,  as she competes this week in the
+

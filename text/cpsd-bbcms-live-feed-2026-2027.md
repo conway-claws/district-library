@@ -273,3 +273,51 @@ We’re excited to have Mr. Albert as another important piece of our Courtway te
 
 #WeAreCourtway #TeamConway #WeAreWampusCats
 
+### 2026-08-28 · Conway Public Schools (id 12947315)
+
+CMS families, the power is out on our campus but it’s expected to be restored soon. We will be open, but we won’t be counting students tardy this morning if you’d prefer to keep your student home until power is restored. Breakfast was prepared before power went out and will still be served. We will continue to update you!
+
+### 2026-08-28 · Conway Public Schools (id 12948219)
+
+CMS Families, we want to inform you that power has been restored and normal activities have resumed. Thank you for your patience this morning! Have a great Friday!
+
+### 2026-08-28 · Courtway Middle School (id 12956548)
+
+Please help us welcome Mrs. Marie Aldrich to Courtway! 💙
+
+Mrs. Aldrich is joining our team teaching 6th Grade Science and 6th Grade Honors Science. This year marks her 14th year teaching science in Conway, with previous experience at Conway High School and Simon Middle School.
+
+She is looking forward to a great year of exploring science with her students, and we’re excited to have her as part of the Courtway team! 🧩
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-08-29 · Courtway Middle School (id 12956589)
+
+Your time is almost up to show your Courtway pride! 💙🐾 The Courtway School Store is open through Monday, August 31! Shop shirts, gear, and more here: https://courtwaymerchandiseonlinestore.itemorder.com/shop/home/
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-08-31 · Courtway Middle School (id 12977293)
+
+Congratulations to Mrs. Gomez on receiving a Conway Public Schools Foundation Grant! 🎉💙
+
+She’ll use the grant to add phonics games, board games, rhyming activities, sentence-building puzzles, and card games to her small-group rotations. These hands-on activities will give students fun, meaningful ways to practice listening, speaking, reading, and writing in English while building vocabulary, confidence, and communication skills.
+
+We’re excited to see these new learning tools in action! 🧩📚🎲 #WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-09-01 · Conway Public Schools (id 12987896)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Conway Public Schools (id 12662811)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-02 · Courtway Middle School (id 13003087)
+
+A big congratulations to Ms. McWilliams for being named CMS’s Sonic Teacher of the Month for August! 💙 We’re so proud of her and so thankful for the love, time, and energy she pours into our students each day. So well deserved!
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+

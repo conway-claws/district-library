@@ -428,3 +428,70 @@ Thank you for partnering with us! It's a great day to be a Wampus Cat! 🐾
 
 Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
 
+### 2026-08-27 · Rachel Fowler (id 12944980)
+
+🥤✨ Back-to-School Smoothies in WIN! ✨🥤
+
+Mrs. Daniel and Mrs. Willcutt kicked off the school year with a yummy, hands-on WIN activity! Our students followed a visual recipe, practiced multi-step directions, measured and poured ingredients, sliced bananas, and created their own delicious smoothies! 🍌🥤
+
+And because sharing is caring, we made extras so our amazing office staff could enjoy a refreshing morning treat, too! 💛
+
+A little learning, a lot of fun, and some very happy taste buds! 😋
+
+### 2026-08-28 · Rachel Fowler (id 12949811)
+
+📚✨ Learning to Read… the Multisensory Way! ✨📚
+
+We’re making learning fun while practicing short vowel sounds and word building! 🔤👐 Students are seeing, saying, touching, and building words as they strengthen those early reading skills.
+
+Learning + movement + hands-on fun = SUCCESS! ❤️📖 So much fun watching those lightbulb moments happen! 💡
+
+### 2026-08-28 · Conway Athletics (id 12956056)
+
+Ruth Doyle Volleyball athletes of the week are Madyson Miser, Aubree Schulze, Ellison Charton, and Aven Reibe.
+
+### 2026-08-30 · Conway Athletics (id 12962956)
+
+Crazy hair!  They don’t care!  Ruth Doyle  volleyball having fun while getting better.
+
+### 2026-09-01 · Conway Public Schools (id 12987897)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Conway Public Schools (id 12662812)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-02 · Rachel Fowler (id 12999553)
+
+Is it a liquid? 💧 
+Is it a solid? 🧱 
+Mrs. Daniel’s Scientists are on the case! 🕵️‍♂️✨
+
+Mrs. Daniel's class dove into the properties of matter using a mysterious substance called Oobleck! The kids loved testing and comparing how it acts. It pours like a smooth liquid, but the moment you squeeze it, it turns into a solid ball!
+
+#WeAreRDMS #TeamConway
+
+### 2026-09-02 · Rachel Fowler (id 13003856)
+
+Dear RDMS Parents and Families,
+
+It’s time to reserve your student’s 2026–2027 RDMS Yearbook! Don’t miss the opportunity to capture all the memories, friendships, and special moments from this school year.
+
+📚 Yearbook Pricing:
+
+August 17–December 1: $30
+December 2–April 30: $35
+
+Order early and save $5! 
+
+Use the attached flyer or QR code to place your order. You can also order online at Yearbookforever.com by entering Ruth Doyle Middle School as the school name.
+
+Yearbooks are a wonderful keepsake that students will treasure for years to come. Don’t miss out—order early!
+
+Thank you for supporting the RDMS yearbook!
+
+Go Wampus Cats! 💙🐾
+

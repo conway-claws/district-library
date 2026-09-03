@@ -1100,3 +1100,184 @@ Thank you, Ellie, for coming back to CHS to share your experiences, your experti
 
 #WampusCatPride #ConwayHighSchoolGraduate
 
+### 2026-08-27 · Beth Fluesmeier (id 12942420)
+
+2026 Football Program
+
+### 2026-08-28 · Conway High School (id 12951410)
+
+🎉 Congratulations to our Conway High School teachers who were awarded Conway Public Schools Foundation Classroom Impact Grants! 🎉
+
+These grants give our educators the opportunity to bring creative ideas, innovative resources, and new learning experiences directly into their classrooms. We are so excited to see how these teachers will turn their grant-funded projects into meaningful experiences for our students! 📚✨
+
+A huge thank-you to the Conway Public Schools Foundation for investing in our teachers and students and helping make innovative learning possible across Conway Public Schools. 💙🐾
+
+Congratulations, teachers! We can’t wait to see the impact you make! 👏
+#WampusPride #WampusCats #ConwayPublicSchools #TeacherImpact
+
+### 2026-08-28 · Beth Fluesmeier (id 12951486)
+
+Wampus Cats vs Capital City, Missouri
+
+Tickets to tonight's football game are sold on the GoFan app.  Here is the link:
+
+https://gofan.co/event/6688689?schoolId=AR4663
+
+### 2026-08-28 · Conway High School (id 12954110)
+
+🎓 SENIOR YEARBOOK ADS ARE ON SALE! 🎓
+
+Celebrate your Conway High School senior and give them a keepsake they’ll treasure for years to come! 💙🐾
+
+Honor their accomplishments, memories, and journey with a personalized senior ad in the 2027 Conway High School Yearbook.
+
+✨ Create your own ad with a Jostens template — no design experience needed!
+✨ Already have an ad designed? Upload your finished ad.
+💳 Jostens also offers payment plans, so you can spread out the cost instead of bringing cash or a check to the school office!
+📏 Check the graphic for ad sizes, dimensions, and pricing.
+💰 Order by October 2 to save $25!
+📅 Extended deadline: October 9
+
+Help us celebrate the Class of 2027 with a personalized ad your senior will treasure for years to come! 💙🐾
+
+### 2026-08-28 · Six-leg media (id 12955768)
+
+Six Leg Media sports reporter Abby Slay sat down with Head Coach Buck James ahead of their Week 0 matchup against Capital City (Mo.).
+
+Before you head to the game tonight, hear what Coach James had to say about his team’s preparation and their matchup against the Cavaliers!
+
+Watch the interview at the link below!
+
+https://youtu.be/mJzmDmUthBw
+
+### 2026-08-29 · Canaan Groesbeck (id 12949786)
+
+The Lady Cat Volleyball team is back in NWA today for the Bentonville tournament! Pool play schedule is attached and bracket play to follow! 
+Good luck, Lady Cats!!! 
+
+Ticket link:
+https://gofan.co/event/6803655?schoolId=AR72390--
+
+Live Stream Link:
+https://youtube.com/@bentonvilletigerathletics4736?si=BVnf3NxZ3FzZVKUQ
+
+### 2026-08-31 · Canaan Groesbeck (id 12949967)
+
+Home game tonight for the Lady Cat Volleyball Team. We are taking on the Lakeside Rams! Come out and support. Gonna be a good night of Lady Cat VB!! 
+7th grade will play at 4:30pm. Varsity to follow, roughly 5:15pm.
+
+Ticket link:
+https://gofan.co/event/6687074?schoolId=AR4663
+
+Live Stream: 
+https://youtube.com/live/FVdGvE77ZQI?feature=share
+
+### 2026-08-31 · Canaan Groesbeck (id 12968183)
+
+Congratulations, Braylin!! We are so proud of you. Way to play!
+
+### 2026-08-31 · Beth Fluesmeier (id 12970822)
+
+Athletic Pass Options for Wampus Cat Events
+
+### 2026-08-31 · Conway Athletics (id 12971144)
+
+MEDIA & PHOTOGRAPHER UPDATE
+With an increase in photo requests this year, Conway Schools Athletics is tightening expectations around playing areas to protect student-athlete safety and privacy.
+
+All photographers (including students) must get prior approval from an Athletic Director to enter sideline areas.
+Approved media MUST be on the official pass list. You will enter through the “Pass Gate”.
+A camera does NOT equal a free ticket.
+Requests must be submitted/received by Wednesday of the requesting game week. Please send your request to goinsm@conwayschools.info.
+
+Someone from the office will let you know if your request is approved!
+
+### 2026-08-31 · Conway High School (id 12975429)
+
+🐾💙 And one more Wampus Cat to celebrate! 💙🐾
+
+We couldn't let the celebration end without giving a well-deserved shoutout to Ms. Chen, one of our Conway High School recipients of a Conway Public Schools Foundation Classroom Impact Grant! 🎉👏
+
+Congratulations, Ms. Chen! We are so proud of the creativity and dedication you bring to our students, and we can't wait to see the impact of your grant-funded project in the classroom!
+
+A big thank-you to the Conway Public Schools Foundation for continuing to invest in our teachers and students. 💙
+
+Way to go, Ms. Chen! 🐾🎉
+#WampusPride #WampusCats #TeacherImpact
+
+### 2026-08-31 · Marcelle Goins (id 12980013)
+
+Please vote for the TriArk Area Player of the week. 
+
+https://www.triarkradio.com/local-news/vote-now-for-the-triark-area-football-player-of-the-week
+
+### 2026-09-01 · Katy Gorden (id 12987104)
+
+Conway Cheer is excited to host  a Color Run this October for all ages!  
+
+Bring your friends and family and be part of this exciting day. We look forward to seeing you at the starting line! 🎉
+
+Sign up here: https://gofan.co/event/6874104?schoolId=AR4663
+
+### 2026-09-01 · Conway Public Schools (id 12987904)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Conway High School (id 12986053)
+
+⚾🥎 LEARNING TO CALL THE GAME! 🥎⚾
+
+A new course at Conway High School is giving students the opportunity to explore student officiating—and they got a special lesson from someone who knows the world of Arkansas athletics inside and out!
+
+Former Conway teacher and current Arkansas Activities Association (AAA) representative Dax Hill visited with our students to talk about the AAA, the role of officials, and what it takes to make the right call on the field. He also gave students a hands-on lesson in positioning for baseball and softball officiating. 👏
+
+And students didn't leave empty-handed! Mr. Hill provided them with whistles, AAA official coins, and baseball and softball rule books to help them continue learning and preparing for their new officiating opportunities. 📖🪙📣
+
+We're excited to see where this new course takes our students as they develop leadership, confidence, communication, and real-world skills—all while learning to keep the game going! 🐾💙
+
+#ConwayHighSchool #WampusCats #StudentOfficiating #ArkansasActivitiesAssociation #AAA #LearningBeyondTheClassroom
+
+### 2026-09-01 · Conway Public Schools (id 12662816)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-02 · Conway High School (id 12917113)
+
+📣 ATTENTION, JUNIORS!
+
+It’s time to sign up for the PSAT/NMSQT! The test is Tuesday, October 27, and the deadline to sign up is Friday, September 4.
+
+📝 HOW TO SIGN UP: Complete the PSAT/NMSQT sign-up form and pay the $17 fee in the Counseling Center. Link: https://forms.gle/8SBdekFMMh1QWXu4A
+
+🌟 WHY TAKE IT? The PSAT/NMSQT can help you learn about your AP potential and provides an opportunity to enter the National Merit Scholarship Program.
+
+📚 Want to learn more? Check out the PSAT/NMSQT Student Guide for helpful information about the test.  Link: https://satsuite.collegeboard.org/media/pdf/psat-nmsqt-student-guide.pdf
+
+👉 Don’t miss out—sign up by September 4!
+
+### 2026-09-02 · Conway High School (id 12987113)
+
+🎓 STUDENTS! YOUR FUTURE STARTS HERE! 🎓
+
+The Faulkner County College Fair is coming up, and this is your opportunity to connect with representatives from nearly 70 colleges, trades, and military organizations all in one place! 💙🐾
+
+📅 Wednesday, September 30
+⏰ 8:00 AM–12:30 PM
+📍 Buzz Bolding Arena
+
+Whether you already know what you want to do after high school or you're still exploring your options, come EXPLORE. CONNECT. PLAN YOUR FUTURE.
+
+📝 Students must register themselves to attend!
+👉 Register at: StriveFair.com
+
+Don’t miss this chance to take the next step toward your future! 🎓🐾
+
+### 2026-09-03 · Canaan Groesbeck (id 12988808)
+
+First conference game of the season for our Lady Cat Volleyball team! They are heading to Little Rock Southwest. Good luck, ladies! 
+
+Ticket Link:
+https://gofan.co/event/6785409?schoolId=AR86984
+

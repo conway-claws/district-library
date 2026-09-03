@@ -204,3 +204,56 @@ We’re excited for a great year!
 
 Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
 
+### 2026-08-28 · Conway Public Schools (id 12947329)
+
+TJE families, the power is out on our campus but it’s expected to be restored soon. We will be open, but we won’t be counting students tardy this morning if you’d prefer to keep your student home until power is restored. Breakfast was prepared before power went out and will still be served. We will continue to update you!
+
+### 2026-08-28 · Conway Public Schools (id 12948230)
+
+TJE Families, we want to inform you that power has been restored and normal activities have resumed. Thank you for your patience this morning! Have a great Friday!
+
+### 2026-08-28 · Theodore Jones Elementary (id 12956431)
+
+Kona Ice is coming!
+
+Follow the link below. 
+https://customer.kona-ice.com/#/K308X9692721
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic(. Please make sure the cups are clean and not cracked. We do not replace broken cups 
+**Please make sure to send the cups in the students backpack the day of the event to avoid dropping them off in the office.
+
+The ordering deadline for this event is Thursday Sept. 3rd at 9pm sharp.
+
+Kona Ice donates a portion of all sales from this event to your student's school!
+
+Please consider buying a Pay it Forward Kiddie cup for $3 for a less fortunate student.
+
+### 2026-09-01 · Conway Public Schools (id 12987889)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Conway Public Schools (id 12662804)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-02 · Theodore Jones Elementary (id 12994941)
+
+Good morning.
+
+For your safety and others, please do not park in the front parking lot and walk your child across or in front of vehicles that are actively moving through the car line.
+
+All students arriving through the front should remain in their vehicle and be dropped off through the designated car line. Parents and students walking between or in front of vehicles creates an unsafe situation for everyone.
+
+The only individuals permitted to park and walk into the building during morning arrival are staff members and their children. The only exception for parents is when you are arriving after 8:00 a.m. and need to come inside to sign your child in.
+
+Safety is our priority, please help us by following our arrival procedures. Thank you for helping us keep morning drop-off safe and running smoothly!
+
+### 2026-09-02 · Conway Public Schools (id 12997339)
+
+📣 Wampus Cats, it’s time to show your SPIRIT! 💙🤍Get ready for the Conway Spirit Clinic, hosted by the CHS Cheer & Dance teams! 🎀🐾Open to students in Grades K–5!📅 Saturday, September 26 - Deadline: September 25
+⏰ 10 AM–12 PM
+💰 $35
+📍 Conway High School Indoor FacilityClinic participants will have the chance to perform with CHS Cheer & Dance during halftime on October 2! 🏈📣It’s going to be a morning full of fun, dancing, cheering, and Wampus Cat spirit! 💙🤍👉 Sign up using the GoFan link! - https://gofan.co/event/6794667?schoolId=AR4663Let’s see that Wampus Cat spirit! 🐾💙#TeamConway #WampusCats #ConwaySpirit #CHSCheer #CHSDance
+

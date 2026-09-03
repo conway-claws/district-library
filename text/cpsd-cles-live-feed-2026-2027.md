@@ -828,3 +828,63 @@ Just remember that classroom doors will not open until 7:45 AM. Before then, stu
 
 Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
 
+### 2026-08-27 · Carolyn Lewis Elementary (id 12945886)
+
+🎉 Congratulations to Ms. Storie, Ms. Fairchild, Ms. McClain, and Ms. Spicer on being recipients of Conway Public Schools Foundation Grants! We are so proud of you and thankful for all you do to make a difference for our students at CLE! 💙🐾
+#WeAreCLE
+
+### 2026-08-28 · Carolyn Lewis Elementary (id 12387448)
+
+🌿 Friendly Friday Reminder! 🌞 Don’t forget—Summer Learning in the CLE Garden is happening tomorrow from 9–10am! Join us behind the school to dig in, learn, and grow together. 🌱🌼 See you there!
+
+### 2026-08-28 · Carolyn Lewis Elementary (id 12947684)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-08-31 · Carolyn Lewis Elementary (id 12952410)
+
+A BIG thank you to the Misty Givens Agency for treating our CLE teachers and staff to Cokes and candy bars! 🥤🍫 We appreciate you thinking of our staff and helping make their day a little sweeter! 💙
+
+#WeAreCLE
+
+### 2026-08-31 · Carolyn Lewis Elementary (id 12967400)
+
+A huge thank-you to our wonderful kindergarten teachers at CLE for going above and beyond to rescue the baby bunnies found on our playground! 🐰 Your kindness, compassion, and care for even our tiniest friends make our school such a special place. Thank you for being amazing role models for our students!  #WeAreCLE
+
+### 2026-09-01 · Conway Public Schools (id 12987890)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Conway Public Schools (id 12662805)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-02 · Conway Public Schools (id 12997341)
+
+📣 Wampus Cats, it’s time to show your SPIRIT! 💙🤍Get ready for the Conway Spirit Clinic, hosted by the CHS Cheer & Dance teams! 🎀🐾Open to students in Grades K–5!📅 Saturday, September 26 - Deadline: September 25
+⏰ 10 AM–12 PM
+💰 $35
+📍 Conway High School Indoor FacilityClinic participants will have the chance to perform with CHS Cheer & Dance during halftime on October 2! 🏈📣It’s going to be a morning full of fun, dancing, cheering, and Wampus Cat spirit! 💙🤍👉 Sign up using the GoFan link! - https://gofan.co/event/6794667?schoolId=AR4663Let’s see that Wampus Cat spirit! 🐾💙#TeamConway #WampusCats #ConwaySpirit #CHSCheer #CHSDance
+
+### 2026-09-02 · Carolyn Lewis Elementary (id 12996478)
+
+📚✨ It’s time to order your CLE Yearbook! ✨📚
+
+Capture all the special memories from this school year! 💙 Scan the QR code on the graphic to order your 2026–2027 CLE Yearbook today! 📸
+
+#WeAreCLE
+
+### 2026-09-03 · Carolyn Lewis Elementary (id 12996515)
+
+📸💙 We Need Your Photos! 💙📸
+
+The CLE PTO is collecting photos for the 2026–2027 CLE Yearbook, and we need your help! Share your favorite classroom moments, school events, field trips, sports, clubs, and everyday memories.
+
+📱 Upload your photos to the Yearbook Snap app using code CLE25!
+
+Help the CLE PTO capture the memories that make this school year special! ✨
+
+#WeAreCLE
+

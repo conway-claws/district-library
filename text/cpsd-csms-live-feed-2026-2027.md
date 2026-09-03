@@ -480,3 +480,81 @@ Get ready to dance! 🎶💃🕺 FBLA is sponsoring our upcoming school dance on
 
 We hope to see our 6th and 7th graders there for a fun night! 🎉
 
+### 2026-08-30 · Carl Stuart Middle School (id 12964711)
+
+🏈🏐 MONDAY NIGHT = GAME NIGHT! 🏐🏈
+
+We’ve got TWO big matchups happening Monday! Come out and support our Wampus Cats! 💙
+
+🏐 VOLLEYBALL
+📍 Courtway Middle School
+⏰ 4:30 PM
+🆚 Simon Middle School & Courtway Middle School
+
+🏈 FOOTBALL
+📍 Benton
+⏰ 6:00 PM
+🆚 Benton
+
+Let’s pack the stands and cheer on our Cats! 💙🐾
+#WeAreCarlStuart #WeAreConway
+
+### 2026-08-31 · Carl Stuart Middle School (id 12933140)
+
+📚 Schoology Parent Access Information
+
+Today (Monday, August 31), we are sending home information to help parents set up their Schoology Parent Account!
+
+Schoology is our online platform where parents can view student assignments, grades, and teacher updates. We encourage parents to check Schoology regularly and turn on notifications to stay informed.
+
+📌 Important: Schoology is for checking grades, assignments, and class information. It is not our platform for communicating directly with teachers. If you need to contact your child’s teacher, please use Rooms.
+
+Be sure to check with your student for the Schoology information and Parent Access Code! 💻📚
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-09-01 · Carl Stuart Middle School (id 12956823)
+
+Hearing and Vision screenings for 6th graders will be conducted on Friday, September 4, from 8:30 to 11:30. If your student wears glasses or contacts, please make sure they bring them on that day. Thank you!
+
+#WeAreCarlStuart #WeAreConway #ChampionsForKids
+
+### 2026-09-01 · Carl Stuart Middle School (id 12964725)
+
+🏐💙 GAME DAY, CATS! 💙🏐
+
+Our volleyball team is back in action Tuesday, September 1! Come out and cheer on the Wampus Cats as they take on Bryant and Ruth Doyle right here at Carl Stuart Middle School!
+
+📍 Carl Stuart Middle School
+⏰ 4:30 PM
+🆚 Bryant & Ruth Doyle
+
+Bring the energy and help us cheer our Cats to victory! 🐾💙
+
+#WeAreCarlStuart #WeAreConway
+
+### 2026-09-01 · Conway Public Schools (id 12987899)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Carl Stuart Middle School (id 12977300)
+
+Parents,
+
+Get ready to dance! 🎶💃🕺 FBLA is sponsoring our upcoming school dance on Thursday, September 3, from 5:30–7:00 PM!
+
+📅 Thursday, September 3
+⏰ 5:30–7:00 PM
+🎟️ 6th & 7th Grade Students Only
+💵 $3 presale — available during lunch this week (Tuesday-Thursday)
+💵 $5 at the door
+🍿 Concessions will be available for purchase
+
+We hope to see our 6th and 7th graders there for a fun night! 🎉
+
+### 2026-09-01 · Conway Public Schools (id 12662814)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

@@ -414,3 +414,65 @@ It took lots of patience, encouragement, and creative problem-solving, but every
 
 #JuliaLeeMoore #WeAreJLM #3rdGrade  #Teamwork
 
+### 2026-08-28 · Julia Lee Moore Elementary (id 12915313)
+
+Finding their own cozy spaces to draw, read, and explore makes every day in the classroom an adventure. Big ideas are taking shape through quiet focus and endless imagination! ✏️📖✨
+
+#JuliaLeeMoore #WeAreJLM #ClassroomMoments
+
+### 2026-08-28 · Julia Lee Moore Elementary (id 12955479)
+
+Let’s hear it for Mr. G and Ms. Polk! 🙌 Congratulations on receiving a Conway Public Schools Foundation Grant this week. We can’t wait to see all the amazing things you bring to the classroom with this at JLM! 🎉 
+
+#JuliaLeeMoore #WeAreJLM #ConwayPublicSchoolsFoundation
+
+### 2026-08-31 · Julia Lee Moore Elementary (id 12941550)
+
+Our 3rd graders kicked off Module 1 with a "book tasting," diving into preview pages and making their first official literary predictions! Each student wrote a one-sentence summary of what to expect and shared their initial 5-star ratings for the upcoming reading list. 📚⭐
+
+#JuliaLeeMoore #WeAreJLM #BookTasting #3rdGrade
+
+### 2026-09-01 · Julia Lee Moore Elementary (id 12941920)
+
+Nothing beats the magic of finding the perfect book during library time! From classic favorite characters to exciting new stories, our young readers are diving into great adventures one page at a time. 📚✨
+
+#JuliaLeeMoore #GrowingReaders #LibraryDay #SecondGrade
+
+### 2026-09-01 · Julia Lee Moore Elementary (id 12981634)
+
+Huge thank you to New Life Church for spoiling our staff in the teachers' lounge! Your generous snack donation kept us fueled, focused, and feeling so appreciated today. 🍿🥨✨ 
+#JuliaLeeMoore #WeAreJLM #CommunitySupport #ThankYou
+
+### 2026-09-01 · Conway Public Schools (id 12987892)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Conway Public Schools (id 12662807)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-02 · Julia Lee Moore Elementary (id 12975371)
+
+First week of Arts & Letters: COMPLETED! 📖 Check out these 4th-grade superstars showing off their reading fluency to their classmates. Building confidence, one page at a time! 👏✨
+
+#JuliaLeeMoore #FourthGrade #ArtsAndLetters #FluencyInAction
+
+### 2026-09-02 · Conway Public Schools (id 12997343)
+
+📣 Wampus Cats, it’s time to show your SPIRIT! 💙🤍Get ready for the Conway Spirit Clinic, hosted by the CHS Cheer & Dance teams! 🎀🐾Open to students in Grades K–5!📅 Saturday, September 26 - Deadline: September 25
+⏰ 10 AM–12 PM
+💰 $35
+📍 Conway High School Indoor FacilityClinic participants will have the chance to perform with CHS Cheer & Dance during halftime on October 2! 🏈📣It’s going to be a morning full of fun, dancing, cheering, and Wampus Cat spirit! 💙🤍👉 Sign up using the GoFan link! - https://gofan.co/event/6794667?schoolId=AR4663Let’s see that Wampus Cat spirit! 🐾💙#TeamConway #WampusCats #ConwaySpirit #CHSCheer #CHSDance
+
+### 2026-09-02 · Julia Lee Moore Elementary (id 12998044)
+
+Reminder: Tomorrow (Thursday, Sept. 3rd) is the last day to turn in Fitness Club forms to Coach Wright for the participation drawing! 🏃‍♂️
+
+### 2026-09-03 · Julia Lee Moore Elementary (id 12975560)
+
+Flashback to Week One! 🌟 These 4th graders started the year discovering their similarities—and three weeks in, those initial connections have already turned into great friendships! Love watching this classroom community grow every day. 💛✨
+
+#JuliaLeeMoore #FourthGrade #PeerConnections #ClassroomFamily
+

@@ -254,3 +254,134 @@ https://app.smore.com/n/xu04n6
 
 Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
 
+### 2026-08-28 · Ida Burns Elementary (id 12928422)
+
+🌈🎨 Join us for Kindergarten Color Week! 🎨🌈Our Little Cats will be learning about a new color each day through books, songs, writing, and lots of fun activities! 📚🎶Help us support their learning by joining in the fun and dressing your child in the color of the day! 🌈💙Let’s make learning colorful, exciting, and fun together! 🐾❤️
+
+### 2026-08-30 · Ida Burns Elementary (id 12962392)
+
+❤️ **RED DAY IS TOMORROW!** ❤️
+
+Help us support our amazing **Kindergarten Little Cats** and their learning by wearing **RED tomorrow!** 🔴🐾
+
+Let’s fill our school with RED and show our youngest learners just how much we support them! ❤️
+
+**Thank you for supporting our Little Cats and their learning!** 🐾📚
+
+### 2026-08-30 · Ida Burns Elementary (id 12964089)
+
+Parent newsletter for this week! 
+
+https://app.smore.com/n/mecfs
+
+### 2026-08-31 · Ida Burns Elementary (id 12967393)
+
+Dear Parents,
+
+Kona Ice is coming!
+
+Use the attached QR code to place your student’s order, or follow the link below.
+
+https://customer.kona-ice.com/#/K308X4832739
+
+Pick your size from $3 up to $7, then add a candy spoon, a sour packet, or a color changing spoon for a little extra! All items are on the prepay site!
+
+Please consider buying a Pay it Forward Kiddie cup for a less fortunate student. We provide 3 oz sample cups for students who aren’t able to participate, but a regular size cup would be a thrill for them!
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic(. Please make sure the cups are clean and not cracked. We do not replace broken cups
+
+The ordering deadline for this event is Thursday, Sept. 3rd at 9pm
+
+Note: Please remember to add your student’s name when you select their teacher from the drop down list, otherwise it will be blank!
+
+Kona Ice donates a portion of all sales from this event to your student’s school
+
+### 2026-09-01 · Conway Public Schools (id 12987883)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Ida Burns Elementary (id 12992553)
+
+💛💛 **Tomorrow is YELLOW DAY!** 💛💛
+
+Help us support our Kindergarten students and their learning by **wearing YELLOW tomorrow!** 🌟
+
+Let’s fill our school with sunshine and show our Kindergarteners that we are cheering them on as they learn, explore, and grow! 💛🐾
+
+**Wear yellow. Support learning. Show your Wampus Pride!** 💙💛
+
+#YellowDay #KindergartenLearning #WampusPride
+
+### 2026-09-01 · Conway Public Schools (id 12662802)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-01 · Ida Burns Elementary (id 12967457)
+
+Dear Parents,
+
+Kona Ice is coming!
+
+Use the attached QR code to place your student’s order, or follow the link below.
+
+https://customer.kona-ice.com/#/K308X4832739
+
+Pick your size from $3 up to $7, then add a candy spoon, a sour packet, or a color changing spoon for a little extra! All items are on the prepay site!
+
+Please consider buying a Pay it Forward Kiddie cup for a less fortunate student. We provide 3 oz sample cups for students who aren’t able to participate, but a regular size cup would be a thrill for them!
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic(. Please make sure the cups are clean and not cracked. We do not replace broken cups
+
+The ordering deadline for this event is Thursday, Sept. 3rd at 9pm
+
+Note: Please remember to add your student’s name when you select their teacher from the drop down list, otherwise it will be blank!
+
+Kona Ice donates a portion of all sales from this event to your student’s school
+
+### 2026-09-02 · Conway Public Schools (id 12997337)
+
+📣 Wampus Cats, it’s time to show your SPIRIT! 💙🤍Get ready for the Conway Spirit Clinic, hosted by the CHS Cheer & Dance teams! 🎀🐾Open to students in Grades K–5!📅 Saturday, September 26 - Deadline: September 25
+⏰ 10 AM–12 PM
+💰 $35
+📍 Conway High School Indoor FacilityClinic participants will have the chance to perform with CHS Cheer & Dance during halftime on October 2! 🏈📣It’s going to be a morning full of fun, dancing, cheering, and Wampus Cat spirit! 💙🤍👉 Sign up using the GoFan link! - https://gofan.co/event/6794667?schoolId=AR4663Let’s see that Wampus Cat spirit! 🐾💙#TeamConway #WampusCats #ConwaySpirit #CHSCheer #CHSDance
+
+### 2026-09-02 · Ida Burns Elementary (id 12970310)
+
+Calling all cheerleaders! 📣
+
+### 2026-09-02 · Ida Burns Elementary (id 13003931)
+
+💚 **Tomorrow is GREEN DAY!** 💚
+
+Let's show some love for our **smallest Wampus Cats**! 🐾💚
+
+Please send your students to school wearing **GREEN tomorrow** as we continue to support and celebrate all the learning happening in Kindergarten! 💚📚
+
+**Wear GREEN. Show your spirit. Support our learners!** 🐾💚
+
+Thank you for helping us make learning fun!
+
+### 2026-09-03 · Ida Burns Elementary (id 12967492)
+
+Dear Parents,
+
+Kona Ice is coming!
+
+Use the attached QR code to place your student’s order, or follow the link below.
+
+https://customer.kona-ice.com/#/K308X4832739
+
+Pick your size from $3 up to $7, then add a candy spoon, a sour packet, or a color changing spoon for a little extra! All items are on the prepay site!
+
+Please consider buying a Pay it Forward Kiddie cup for a less fortunate student. We provide 3 oz sample cups for students who aren’t able to participate, but a regular size cup would be a thrill for them!
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic(. Please make sure the cups are clean and not cracked. We do not replace broken cups
+
+The ordering deadline for this event is Thursday, Sept. 3rd at 9pm
+
+Note: Please remember to add your student’s name when you select their teacher from the drop down list, otherwise it will be blank!
+
+Kona Ice donates a portion of all sales from this event to your student’s school
+

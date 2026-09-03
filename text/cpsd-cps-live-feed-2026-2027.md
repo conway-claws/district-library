@@ -316,3 +316,31 @@ Conway, AR — August 18, 2026 — Conway High School (CHS) has earned a “Best
 
 Hey Wampus Cats! Enter to Win a $100 Gift Card!How to enter: Complete a 2026-2027 Free/Reduced Meal Application by September 25!Scan the QR Code or follow the link below to complete the online application now! https://secure.ezmealapp.com/ApplicationScreen.aspx*Only fill out one application for all students in your household.
 
+### 2026-09-01 · Conway Public Schools (id 12987881)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Conway Public Schools (id 12662800)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-02 · Conway Public Schools (id 12997336)
+
+📣 Wampus Cats, it’s time to show your SPIRIT! 💙🤍Get ready for the Conway Spirit Clinic, hosted by the CHS Cheer & Dance teams! 🎀🐾Open to students in Grades K–5!📅 Saturday, September 26 - Deadline: September 25
+⏰ 10 AM–12 PM
+💰 $35
+📍 Conway High School Indoor FacilityClinic participants will have the chance to perform with CHS Cheer & Dance during halftime on October 2! 🏈📣It’s going to be a morning full of fun, dancing, cheering, and Wampus Cat spirit! 💙🤍👉 Sign up using the GoFan link! - https://gofan.co/event/6794667?schoolId=AR4663Let’s see that Wampus Cat spirit! 🐾💙#TeamConway #WampusCats #ConwaySpirit #CHSCheer #CHSDance
+
+### 2026-09-02 · Conway Public Schools (id 12998163)
+
+🐾 COME TAILGATE WITH US! 🏈💙The Conway Public Schools Foundation is kicking off football season in a BIG way with their first-ever Tailgate! 🎉Join us Friday, September 4, from 5:30–7:00 p.m. on the lawn behind the Conway Public Schools Administration Building before heading into John McConnell Stadium to cheer on the Wampus Cats as they take on the Bentonville Tigers!There will be hot dogs, face painting, live music, performances by Conway cheerleaders and dancers with a special surprise guest for the students 😸💙 — the perfect way to start a Friday night in Conway! 💙🤍📅 Friday, September 4
+⏰ 5:30–7:00 p.m.
+📍 Lawn behind the CPSD Administration Building
+🎟️ Tickets: $5–$10🎫 Get your tickets here:
+https://gofan.co/event/6776260?schoolId=AR4663And there’s an even BIGGER reason to join us…💙 Your support helps the Conway Public Schools Foundation empower our educators!Through Foundation funding and grants, teachers and staff receive support for projects and ideas that help elevate the classroom and campus experience for our students. From innovative classroom projects to opportunities that make a difference across our schools, these grants put resources directly into the hands of the educators who know our students best.✨ Check out these amazing grant winners for the 2026–2027 school year! We are so grateful for the Conway Public Schools Foundation and their continued investment in our teachers, staff, and students. There are more across the district!A HUGE thank-you to the sponsors who are helping make this event possible and supporting the Foundation's mission:⭐ Presenting Sponsor: Conway Regional Health System
+⭐ Cousins Furniture
+⭐ Centennial Bank
+⭐ Baptist Health Medical CenterCome tailgate with us, support our educators, and then GO WAMPUS CATS! 🐾🏈💙🤍#TeamConway #WampusCats #ConwayPublicSchools #CPSFoundation #ConwayArkansas #WampusCatFootball #GoCats
+

@@ -10,7 +10,7 @@ drive_id:
 drive_kind:
 rights: public-web
 text: text/cpsd-bbcms-live-feed-2026-2027.md
-retrieved: 2026-08-27
+retrieved: 2026-09-03
 verified: 2026-08-31
 status: current
 tags: [live-feed, 2026-2027]

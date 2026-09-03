@@ -432,3 +432,110 @@ Tomorrow is Yellow Day for JSE Color Week!
 
 🟡 Wear your favorite YELLOW outfit to school tomorrow, August 27th
 
+### 2026-08-27 · Barbara Clardy (id 12875285)
+
+🌈 COLOR DAY REMINDER! 🌈
+
+Tomorrow is Green Day for JSE Color Week!
+
+🟢 Wear your favorite GREEN outfit to school tomorrow, August 28th! 🟢
+
+### 2026-08-30 · Barbara Clardy (id 12875318)
+
+🌈 COLOR DAY REMINDER! 🌈
+
+Tomorrow is Blue Day for JSE Color Week!
+
+🔵 Wear your favorite BLUE outfit to school tomorrow, August 31st! 🔵
+
+### 2026-08-31 · Barbara Clardy (id 12971046)
+
+🎉 CALLING ALL FUTURE WAMPUS CATS! 🎉
+
+Our CHS Cheer & Dance teams are hosting a Spirit Clinic on Saturday, September 26th from 10 AM - 12 PM!
+
+✨ Learn cheers, chants, and dance moves from our amazing teams ✨ Perform at halftime on October 2nd ✨ Only $35 per participant
+
+This is a fantastic opportunity for your young Wampus Cat to shine! Sign up now using the GoFan link:
+
+https://gofan.co/event/6794667?schoolId=AR4663
+
+Space is limited, so don't wait! Let's show our Wampus Cat spirit! 💙🤍
+
+### 2026-08-31 · Barbara Clardy (id 12977032)
+
+🍩 A HUGE THANK YOU to Sweet House Donuts! 🍩 
+
+Our teachers and staff were delighted when boxes of delicious donuts arrived today!
+
+Thank you for thinking of us and for being such a wonderful community partner! 💙 We are so grateful!
+
+#WeAreJSE
+
+### 2026-08-31 · Barbara Clardy (id 12875337)
+
+🌈 COLOR DAY REMINDER! 🌈
+
+Tomorrow is Purple Day for JSE Color Week!
+
+🟣 Wear your favorite PURPLE outfit to school tomorrow, September 1st! 🟣
+
+### 2026-09-01 · Conway Public Schools (id 12987894)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Barbara Clardy (id 12992352)
+
+📣 JSE Families! 👕🐾
+
+It’s time to order your Jim Stone Elementary T-shirts! Shirts are $15 and come in a variety of youth and adult sizes, with your choice of the Building or Wampus Cat design. 
+
+📝 Please send in your completed order form and payment by Tuesday, September 8th. These are pre-order shirts only, so no additional shirts will be ordered later. 
+
+Looking for more options? Scan the QR code on the form to visit our online store for long-sleeve shirts, hoodies, and more! 
+
+Thank you for supporting JSE! 💙🐾 
+
+#WeAreJSE
+
+### 2026-09-01 · Conway Public Schools (id 12662809)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-01 · Barbara Clardy (id 12875380)
+
+🌈 COLOR DAY REMINDER! 🌈
+
+Tomorrow is Pink Day for JSE Color Week!
+
+🩷 Wear your favorite PINK outfit to school tomorrow, September 2nd! 🩷
+
+### 2026-09-02 · Conway Public Schools (id 12997345)
+
+📣 Wampus Cats, it’s time to show your SPIRIT! 💙🤍Get ready for the Conway Spirit Clinic, hosted by the CHS Cheer & Dance teams! 🎀🐾Open to students in Grades K–5!📅 Saturday, September 26 - Deadline: September 25
+⏰ 10 AM–12 PM
+💰 $35
+📍 Conway High School Indoor FacilityClinic participants will have the chance to perform with CHS Cheer & Dance during halftime on October 2! 🏈📣It’s going to be a morning full of fun, dancing, cheering, and Wampus Cat spirit! 💙🤍👉 Sign up using the GoFan link! - https://gofan.co/event/6794667?schoolId=AR4663Let’s see that Wampus Cat spirit! 🐾💙#TeamConway #WampusCats #ConwaySpirit #CHSCheer #CHSDance
+
+### 2026-09-02 · Barbara Clardy (id 12997900)
+
+When it's too hot 🥵to go outside to play, 2nd graders stay cool😎inside for some recess fun! 💙
+
+#WeAreJSE
+
+### 2026-09-02 · Barbara Clardy (id 12875391)
+
+🌈 COLOR DAY REMINDER! 🌈
+
+Tomorrow is Brown Day for JSE Color Week!
+
+🟤 Wear your favorite BROWN outfit to school tomorrow, September 3rd! 🟤
+
+### 2026-09-03 · Barbara Clardy (id 12998086)
+
+Look at our dots 🔴🟠🟡🟢🔵🟣 in Art with Ms. Longing! 
+
+#WeAreJSE
+

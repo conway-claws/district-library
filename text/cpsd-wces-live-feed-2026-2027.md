@@ -726,3 +726,108 @@ If you are not here when the car line has finished and there are no cars remaini
 
 Thank you for doing such a great job! Let's keep working together, following our procedures, and most importantly, keeping our students and campus safe. We appreciate your patience and partnership as we get these routines running smoothly!
 
+### 2026-08-28 · Woodrow Cummins Elementary (id 12953783)
+
+🎉 LAST CALL, LITTLE CATS! 🎉
+
+Want to show off your Woodrow Crew pride? 💙💛 Don't miss your chance to order your Woodrow Crew T-shirt!
+
+👕 Cotton & Dri-Fit options available
+💰 Shirts start at just $15
+📅 AUGUST 31st is the LAST DAY TO ORDER!
+
+👉 Place your order here:
+Woodrow Crew T-Shirt Order Form
+
+Don't wait—orders close Sunday, August 31st! 🐾💙💛
+
+Thank you for supporting Woodrow Cummins Elementary! ❤️🐾
+
+### 2026-08-28 · Woodrow Cummins Elementary (id 12955278)
+
+📚💙 SAVE THE DATE, LITTLE CAT FAMILIES! 💙📚
+
+We are so excited to celebrate our amazing Grandparents during Grandparents Week — September 28–October 2! 🥰👵👴
+
+And there’s even more to look forward to… the Literati Book Fair will be happening ALL WEEK LONG! 📖✨
+
+Be sure to mark your calendars now! We’ll be sharing more details, including schedules and important information, soon.
+
+We can’t wait for a special week filled with family, books, and lots of Little Cat memories! 💙🐾
+
+### 2026-08-28 · Woodrow Cummins Elementary (id 12957423)
+
+Check out this week's Little Cat Chronicle!
+
+### 2026-08-31 · Woodrow Cummins Elementary (id 12969746)
+
+Calling all future Little Cats! 🐾📣 Conway High School Cheer & Dance is hosting a Conway Spirit Clinic on Saturday, September 26th from 10:00 AM–12:00 PM!
+
+✨ Participants will have the exciting opportunity to perform at halftime on October 2nd! 🏈📣
+
+💲 Cost: $35
+📅 Saturday, September 26th
+⏰ 10:00 AM–12:00 PM
+📍 Hosted by CHS Cheer & Dance
+
+🎉 Come learn cheers, dances, and show off your Conway spirit!
+
+👉 Sign up using the GoFan link! https://gofan.co/event/6794667?schoolId=AR4663
+
+Don’t miss out on this fun opportunity to cheer on the Wampus Cats! 💙🐾
+
+### 2026-08-31 · Woodrow Cummins Elementary (id 12939859)
+
+Get ready to travel back to the ’80s for a totally rad night celebrating our 3rd & 4th Grade Little Cats! 🎸🕶️🛼🎶 Break out your best ’80s hair and outfit!
+📅 November 10th
+⏰ 6:30 PM
+📍 James H. Clark AuditoriumIt’s going to be a night of big hair, neon, music, and LOTS of fun! 💿💗⚡SAVE THE DATE! We can’t wait to see our Little Cats rewind the clock! 🪩🎤
+
+### 2026-08-31 · Jenna Havlik (id 12979971)
+
+Mrs. Wilcox’s kindergarten class kicked off module 1 of Arts and Letters with a fun 5 senses station!
+
+### 2026-09-01 · Conway Public Schools (id 12987888)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-01 · Jenna Havlik (id 12990539)
+
+We are learning all about our 5 senses in Brown’s class! Today, we put our senses of taste and smell to work by making our very own applesauce.
+
+### 2026-09-01 · Conway Public Schools (id 12662803)
+
+Reminder for our Wampus Cat families! There will be no school on Monday, September 7th in observance of Labor Day. Enjoy the long weekend with your family and friends, and we will see everyone back on campus on Tuesday morning. Thank you for a great start to the year! 💙🐾 For more information about the school calendar, please visit: https://www.conwayschools.org/page/school-calendar.
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-01 · Woodrow Cummins Elementary (id 12993730)
+
+In math 1st Grade is comparing numbers. Today they played a game to review using symbols that show greater than, less than , and equal to.
+
+### 2026-09-02 · Conway Public Schools (id 12997338)
+
+📣 Wampus Cats, it’s time to show your SPIRIT! 💙🤍Get ready for the Conway Spirit Clinic, hosted by the CHS Cheer & Dance teams! 🎀🐾Open to students in Grades K–5!📅 Saturday, September 26 - Deadline: September 25
+⏰ 10 AM–12 PM
+💰 $35
+📍 Conway High School Indoor FacilityClinic participants will have the chance to perform with CHS Cheer & Dance during halftime on October 2! 🏈📣It’s going to be a morning full of fun, dancing, cheering, and Wampus Cat spirit! 💙🤍👉 Sign up using the GoFan link! - https://gofan.co/event/6794667?schoolId=AR4663Let’s see that Wampus Cat spirit! 🐾💙#TeamConway #WampusCats #ConwaySpirit #CHSCheer #CHSDance
+
+### 2026-09-02 · Jenna Havlik (id 13003866)
+
+☀️ HELP US BEAT THE HEAT! ☀️
+
+Parents, we have a small favor to ask! 💙🤍
+
+While these temperatures are still so hot, we kindly ask that you please consider using Walk-Up Pick-Up whenever possible. This helps minimize the amount of time our duty teachers have to spend outside in the heat. 🥵☀️
+
+📍 Walk-Up Pick-Up is located outside the front doors.
+⏰ 3:10–3:20 PM
+
+It’s a quick and easy way to pick up your student, and we would greatly appreciate your help while we wait for those cooler temperatures! 💙
+
+Thank you for always supporting our Little Cats and our staff!
+
+### 2026-09-02 · Jenna Havlik (id 13004069)
+
+Mrs. Adams' class has been learning about the 5 Senses in Arts and Letters. Today we went on a nature walk and then illustrated what we noticed in our Learn Books. We’ve also made apple sauce and apple strudel for tasting and smelling this week. Learning has been so yummy!
+
