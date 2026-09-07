@@ -11,10 +11,10 @@ drive_kind:
 rights: public-record
 text:
 retrieved:
-verified: 2026-08-31
+verified: 2026-09-07
 status: current
 tags: [federal-law, us-code, api-pointer]
-last_check: 2026-08-31
+last_check: 2026-09-07
 fail_since:
 fail_reason:
 ---
