@@ -495,3 +495,42 @@ Thank you for supporting the RDMS yearbook!
 
 Go Wampus Cats! 💙🐾
 
+### 2026-09-04 · Rachel Fowler (id 13023208)
+
+🐾 School Spirit is in full force at RDMS! 🐾
+
+Mrs. Daniel and Mrs. Willcutt’s classes, along with Caring Cats, decorated RDMS and filled the sudewalks with Wampus Cat spirit as we cheer on our team in a HUGE battle tomorrow! 🏈📣
+
+Let’s go, Wampus Cats! 💙
+BEAT BENTONVILLE! 🐾🔥
+
+#GoCats #WampusCats #BeatBentonville #RDMS #SchoolSpirit
+
+### 2026-09-04 · Conway Athletics (id 13035758)
+
+Ruth Doyle Volleyball  athletes of the week are Jada Jackson, Paisley Zimmerman, Wren Wills, Nahvi Roddy, and Sophia Tolliver(not pictured).
+
+### 2026-09-06 · Conway Public Schools (id 13036525)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662829)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-09 · Rachel Fowler (id 13070695)
+
+🌟 Looking for an unforgettable spring break for your 6th or 7th grader? 
+
+Ruth Doyle Middle School is heading to Washington, D.C., Williamsburg, and Jamestown — history, friendship, and adventure await! 
+
+Bring a parent or guardian to our FINAL trip meeting to learn everything about the itinerary, ask questions, and find out how to sign up. This is the last scheduled informational meeting — don’t miss it! 
+
+📅When: Tuesday, September 15
+🕕 Time: 6:00 PM
+📍Where: RDMS Cafeteria
+
+🙋‍♂️🙋‍♀️Have questions now? Email Angela Rogers: rogersa@conwayschools.info
+

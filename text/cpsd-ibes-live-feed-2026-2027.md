@@ -385,3 +385,61 @@ Note: Please remember to add your student’s name when you select their teacher
 
 Kona Ice donates a portion of all sales from this event to your student’s school
 
+### 2026-09-03 · Ida Burns Elementary (id 13020893)
+
+Tomorrow is Blue Day!! Help us celebrate all things Wampus Cats and wear all things blue!! 💙🦋🧢🐬🚙🔵🌀
+
+### 2026-09-06 · Conway Public Schools (id 13036514)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662819)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-07 · Ida Burns Elementary (id 13041339)
+
+💜 **PURPLE DAY IS TOMORROW!** 💜
+
+Let’s show our **Kindergarten Wampus Cats** some extra love and support! 🐾💙
+
+We’re asking **ALL students to wear purple tomorrow** as we celebrate and support the learning happening in Kindergarten! 💜📚✏️
+
+Every little bit of school spirit helps our youngest learners feel supported, celebrated, and part of our Wampus Cat family! 🐾💜
+
+**Let’s fill Ida Burns with PURPLE PRIDE!** 💜💜💜
+
+#PurpleDay #WampusCatPride #SupportingOurLearners #KindergartenLearning
+
+### 2026-09-07 · Ida Burns Elementary (id 13042405)
+
+Parent newsletter:
+
+https://app.smore.com/n/d803p4
+
+### 2026-09-08 · Ida Burns Elementary (id 13059260)
+
+Someone lost these glasses last week and we have not found the owner of them. I would like to get them back to the kiddo they belong to.
+
+### 2026-09-08 · Ida Burns Elementary (id 13059364)
+
+🩷 Tomorrow is PINK DAY! 🩷
+
+Help us support our sweet Kindergarten Wampus Cats as they learn all about colors! 🌸💕 We’d love for everyone to join in the fun by wearing PINK tomorrow!
+
+Let’s fill Ida Burns with pink and show our littlest learners that we’re cheering them on! 🐾🩷
+
+### 2026-09-09 · Ida Burns Elementary (id 13073376)
+
+🤎 **Tomorrow is BROWN DAY!** 🤎
+
+Help us support our sweet Kindergarten Little Cats as they continue learning all about colors! 🐾 We’d love for all of our Wampus Cats to join the fun by **wearing BROWN tomorrow!** 🤎
+
+Every color day is a fun way to show our littlest learners that the whole Ida Burns family is cheering them on! 💙🐾🤎
+
+### 2026-09-10 · Ida Burns Elementary (id 12970412)
+
+Calling all Little Cats cheerleaders!! 📣
+

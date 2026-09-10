@@ -831,3 +831,74 @@ Thank you for always supporting our Little Cats and our staff!
 
 Mrs. Adams' class has been learning about the 5 Senses in Arts and Letters. Today we went on a nature walk and then illustrated what we noticed in our Learn Books. We’ve also made apple sauce and apple strudel for tasting and smelling this week. Learning has been so yummy!
 
+### 2026-09-03 · Jenna Havlik (id 13022631)
+
+💙 The sweetest surprise! 🚲💙
+
+Mr. Charles knew Parker’s bike was headed to the shop for a few repairs, so he showed up with a new bike!
+
+It’s moments like these that remind us just how special it is to have people who go above and beyond to make a little one’s day. Parker was one VERY happy kid! 
+
+Thank you, Mr. Charles, for such a thoughtful surprise! 💙
+
+### 2026-09-04 · Woodrow Cummins Elementary (id 13027524)
+
+Check out this week's Little Cat Chronicle!
+
+### 2026-09-05 · Jenna Havlik (id 13038787)
+
+Congratulations to these students who received positive office referrals this week! #CATSkids
+
+### 2026-09-06 · Conway Public Schools (id 13036515)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662820)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-08 · Woodrow Cummins Elementary (id 13049505)
+
+🇺🇸 Honoring Our Heroes at Woodrow Cummins Elementary! 🇺🇸
+
+We are honored to celebrate and recognize the brave men and women who have served and continue to serve our country! ❤️🤍💙
+
+Woodrow Cummins Elementary will host our Veterans Day Assembly on Tuesday, November 11, at 8:30 a.m.
+
+We would love the opportunity to recognize the veterans and active-duty service members who are part of our Little Cat families and school community.
+
+⭐ We Want to Recognize Your Hero!
+If your child has a parent, grandparent, great-grandparent, sibling, aunt, uncle, or other family member who has served or is currently serving in the U.S. military, we would love to recognize them during our assembly. Family members who attend will have the opportunity to be introduced and recognized for their service.
+
+📸 Help Us Create Our Veterans Day Presentation!
+We are also putting together a special presentation featuring our students’ military family members. If you would like your service member included, please send a few photos from their time in the military, along with:
+
+• Name
+• Branch of service
+• Years of service
+• Relationship to the student
+
+Please send photos and information to Brooke Jones at jonesb@conwayschools.info.
+
+We are incredibly grateful for the sacrifices made by our veterans, active-duty service members, and their families. We look forward to honoring them and teaching our students the importance of gratitude, service, courage, and patriotism.
+
+🇺🇸 Thank you to all who have served and continue to serve our country! 🇺🇸
+
+### 2026-09-09 · Woodrow Cummins Elementary (id 13066685)
+
+🚨 WALK-UP PICK-UP REMINDER 🚨
+
+If you are using Walk-Up Pick-Up, you MUST PARK IN A PARKING SPOT and walk up to the front of the building to pick up your student.
+
+➡️ Parking in a parking spot and walking up is the ONLY option for Walk-Up Pick-Up.
+
+🚫 Do NOT stop in the drive aisle.
+🚫 Do NOT park along the curb.
+🚫 Do NOT block traffic or park in a non-parking area.
+
+If you are not parked in a designated parking spot, you are not participating in Walk-Up Pick-Up.
+
+Thank you for helping us keep dismissal safe, orderly, and moving smoothly!
+

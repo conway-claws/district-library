@@ -538,3 +538,203 @@ Reminder for our Wampus Cat families! There will be no school on Monday, Septemb
 
 Marguerite Vann is so proud to cheer on one of our former students,  Ava Weeks,  as she competes this week in the
 
+### 2026-09-03 · Audrey Cooper (id 13021331)
+
+💙🐾 Learning, Connecting, and Growing Together! 🐾💙
+
+Our students are building relationships while strengthening important learning skil
+
+### 2026-09-03 · Audrey Cooper (id 13021860)
+
+👀👂👃✋ Exploring the World Through Our Senses!
+
+Kindergarten students in Ms. Givens’ class are exploring the world around them through our new Arts & Letters curriculum! Students are using texts and poems to notice, wonder, describe, and discuss how we use our senses to experience the world.
+
+We love seeing our youngest learners build knowledge, make connections, and think deeply! 💙🐾📚
+
+### 2026-09-04 · Audrey Cooper (id 13021928)
+
+💙🐾 Connections Matter!
+
+Mr. Moore, our Assistant Principal, took some time during 3rd grade recess to have a little fun and connect with our students! Whether in the classroom, hallway, or on the playground, building strong relationships is at the heart of what we do at Marguerite Vann. 💙
+
+Sometimes the best connections happen at recess! 😊🐾
+
+#WeAreMVE#LevelUp#ConnectionsMATTER
+
+### 2026-09-04 · Audrey Cooper (id 13025232)
+
+Dear Vann Families,
+
+September is going to be full of fun at Marguerite Vann! Please mark your calendars for two special upcoming events:
+
+🍂 Loved Ones on the Lawn — Friday, September 18 from 1:00–2:00 p.m. Students are invited to bring a special guest to enjoy a sweet treat and time together on our front lawn. Please remember to RSVP by Thursday, September 17 at 12:00 p.m.
+
+💦 Dunk a Principal Fundraiser — Friday, September 25! Students can purchase 3 balls for $2.00 for a chance to dunk our principals. Please return the order form and exact cash payment to your child's teacher. You can purchase as many throws as you'd like! No change will be provided.
+
+We are looking forward to a wonderful September filled with family, fun, and school spirit! Thank you for supporting Marguerite Vann Elementary! 💙🐾
+
+### 2026-09-04 · Audrey Cooper (id 13031254)
+
+☀️ Sunshine smiles to brighten our Friday! 💙🐾
+
+Some of our Sunshine students were all smiles this morning, and those sweet faces were the perfect way to start the day! 😊 We love seeing our students happy, excited, and ready for another great day of learning at Marguerite Vann Elementary!
+
+Keep shining! ✨💙🐾
+
+#WeAreMVE
+
+### 2026-09-06 · Conway Public Schools (id 13036522)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662827)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-07 · Audrey Cooper (id 13042357)
+
+🔎📚 Library CSI: The Case of the Damaged Books! 🕵️‍♀️🕵️‍♂️
+
+Our students became forensic investigators  in the library this past week ! They examined damaged books, searched for clues, and tried to determine exactly what happened. 🔍📖
+
+This fun, hands-on activity was a creative way to reinforce the importance of  taking care of our library books  while also teaching students what to do when materials become damaged.
+
+Case closed! Our Library CSI investigators are officially on the job! 🚨📚🔎
+
+#WeAreMVE#LevelUp
+
+### 2026-09-07 · Audrey Cooper (id 13039515)
+
+💦🎯 GET READY TO DUNK A PRINCIPAL! 🎯💦
+
+Who’s ready to make a SPLASH? Our Dunk a Principal Fundraiser is coming to Marguerite Vann Elementary on September 25! 🐾💙
+
+Get those throwing arms ready! 💪🎯 Who will be the lucky student to make the BIG SPLASH? 💦
+
+Thank you for supporting Marguerite Vann Elementary! 💙🐾
+
+#WeAreMVE#LevelUp
+
+### 2026-09-08 · Audrey Cooper (id 13039513)
+
+There’s something special about sharing a meal with the people you love! 💙🐾
+
+Our students love welcoming their families to our Parent Dining Room for lunch. These special moments bring lots of smiles and give families another opportunity to be part of the school day. 🍎🥪
+
+We love seeing our Vann families on campus and making memories together! 💙
+
+🐾 Lunch is better with family!
+
+#WeAreMVE
+
+### 2026-09-08 · Audrey Cooper (id 13052233)
+
+🐾💙 VIP in PE is Coming! 💙🐾
+
+We are excited to welcome some very important people to PE at Marguerite Vann! 🎉 During  October 12–16, each student will have the opportunity to invite ONE VIP to join them during their physical education class.
+
+🏃‍♀️ Get ready to move, play, laugh, and make some special memories together!
+
+📋 Sign-up information will be coming home soon, so be on the lookout!
+
+We can’t wait to see our students and their VIPs in action! 💙🐾
+
+#WeAreMVE
+
+### 2026-09-08 · Audrey Cooper (id 13052425)
+
+Hello Everyone! 
+
+
+We had a great PTO meeting this morning. I’m really looking forward to a great year at MVE! If you would like to be involved in PTO but are unable to make in-person meeting/s, please join our GroupMe to stay informed. 
+
+GroupMe link: https://groupme.com/join_group/116475754/E5aWMdvO 
+
+
+Here are the sign-up links if you want to volunteer for any of these opportunities: 
+
+volunteer opportunity for creating sound wall folders for our students https://www.signupgenius.com/go/10C0E48AAAA2AA4FDCF8-65620421-help 
+
+
+
+volunteer opportunity at “Loved Ones on the Lawn” event coming up on September 18th https://www.signupgenius.com/go/10C0E48AAAA2AA4FDCF8-65579974-loved 
+
+
+volunteer opportunity for helping teachers make copies https://www.signupgenius.com/go/10C0E48AAAA2AA4FDCF8-65580111-help
+
+
+We discussed:
+
+-various fundraising and donation efforts  
+
+-upcoming events and ideas
+
+-volunteer opportunity for creating sound wall folders for our students
+
+-volunteer opportunity at “Loved Ones on the Lawn” event coming up on September 18th 
+
+-volunteer opportunity for helping teachers make copies 
+
+
+We decided our next meeting will be Thursday, October 1 from 6:00-6:30pm at MVE in the counselor’s room - 116. Children are welcome to attend.
+
+
+If you have any questions or ideas you would like to share for PTO, please let us know. 
+
+
+Kindly, 
+
+Leah Stauffer and MVE PTO
+
+### 2026-09-08 · Audrey Cooper (id 13039612)
+
+☕️❤️ Welcome to The Great Heart Café! ❤️☕️
+
+Our 4th grade students in Mrs. Taylor's class  kicked off their Arts & Letters with a fun café experience exploring the question: “What does it mean to have a great heart?” Students are enjoying  poetry, science, learning about literal vs. figurative language, and a Great Heart Challenge! 
+
+We’re excited to see where this learning journey takes us! 📚❤️
+
+#WeAreMVE#GreatHeartCafe
+
+### 2026-09-08 · Audrey Cooper (id 13052346)
+
+🤠🎶 YEE-HAW! It’s almost showtime!🎶🐴
+
+Our Marguerite Vann Elementary 3rd and 4th graders are saddling up for a  rollicking western adventure with their upcoming musical, Yee-Haw! ⭐ 
+
+These talented students have been working hard, and we can’t wait for them to take the stage!
+
+🎭 Yee-Haw! A Rollicking Western Adventure
+📅 October 8th
+⏰ 6:30 PM
+📍 James H. Clark Auditorium
+
+Grab your cowboy hats and boots and get ready for a rootin’-tootin’ good time! 🤠🐴🎵
+
+We hope to see you there cheering on our amazing 3rd and 4th graders! 💙⭐
+
+### 2026-09-09 · Audrey Cooper (id 13039659)
+
+🔬🌿 Science is coming alive at Marguerite Vann!🧪✨
+
+Our students are taking learning beyond the textbook—exploring  while outside and in our science lab through hands-on investigations, questioning, experimenting, and discovery!
+
+Some of the exciting topics our young scientists are exploring include:
+🔦 Can we read in the dark under the covers?
+⚙️ Force and motion
+🧪 The scientific method
+⚖️ Balanced and unbalanced forces
+
+We love seeing our students  wonder, investigate, and make sense of the world around them! These experiences are helping turn curious learners into young scientists. 💡🔍
+
+#WeAreMVE#LevelUp
+
+### 2026-09-09 · Audrey Cooper (id 13072840)
+
+🎉 Congratulations to our August staff of the Month! 🎉
+
+We are excited to celebrate Coach Jana Hedgecock  and Deanna Taylor 💙⭐ Thank you
+

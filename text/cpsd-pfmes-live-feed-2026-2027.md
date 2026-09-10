@@ -170,3 +170,43 @@ Reminder for our Wampus Cat families! There will be no school on Monday, Septemb
 💰 $35
 📍 Conway High School Indoor FacilityClinic participants will have the chance to perform with CHS Cheer & Dance during halftime on October 2! 🏈📣It’s going to be a morning full of fun, dancing, cheering, and Wampus Cat spirit! 💙🤍👉 Sign up using the GoFan link! - https://gofan.co/event/6794667?schoolId=AR4663Let’s see that Wampus Cat spirit! 🐾💙#TeamConway #WampusCats #ConwaySpirit #CHSCheer #CHSDance
 
+### 2026-09-06 · Conway Public Schools (id 13036518)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662823)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-08 · Melissa Spence (id 13051354)
+
+Preston & Florence Mattison Elementary is proud to work toward becoming a Purple Star School for military-connected students. We recognize and honor the sacrifices made by our families, and we are committed to supporting the unique needs of children whose parents and/or guardians serve in the U.S. military.
+
+To help us build and maintain this designation, we are asking staff and families to identify enrolled students who have a parent and/or guardian serving in the military, including Active Duty, Reserve, or National Guard.
+
+If your child has a parent or guardian who currently serves or has recently served in the U.S. military, please take a few minutes to complete the short questionnaire below. Your responses will help us identify our military-connected students and ensure that we can provide the resources, support, and recognition these students and families deserve.
+
+Thank you for helping us make Preston & Florence Mattison Elementary a welcoming and supportive school for all of our military-connected families!
+
+PFME Military-Connected Student and Family Questionnaire: https://forms.gle/K7KJFp3GuwbyMFxAA
+
+### 2026-09-09 · Melissa Spence (id 13066470)
+
+Dear Mattison Families,
+
+It’s GAME ON at Mattison! 🎲 We invite you to join us for Family Board Game Night on Wednesday, September 23, from 5:30–6:30 PM in the cafeteria!
+
+This is a free, come-and-go family event designed to give our Little Cats and their families a chance to relax, have fun, and spend time together at school. There’s no schedule to follow and no competition—just good old-fashioned family fun!
+
+Board games will be set up throughout the cafeteria, including strategy games, classic favorites, card games, and cooperative games. Choose what looks fun, grab a seat, and play at your own pace. Our Mattison staff will be there to visit, play, and enjoy the evening alongside our families.
+
+🍿 We’ll also have a Popcorn Bar and Flavored Water Bar to enjoy while you play!
+
+Bring the family, find a game, and stay for as little or as long as you’d like. No board game experience required—just come ready to roll, play, laugh, and repeat!
+
+We hope to see you there for an evening of food, fun, family time, and GOOD VIBES at Mattison! 💙🎲
+
+Preston & Florence Mattison Elementary
+

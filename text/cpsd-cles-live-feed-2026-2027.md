@@ -888,3 +888,77 @@ Help the CLE PTO capture the memories that make this school year special! ✨
 
 #WeAreCLE
 
+### 2026-09-04 · Carolyn Lewis Elementary (id 13016446)
+
+🎨✨ Shoutout to Dylan for being a perfect classmate in Art on the very first day of school! He was a leader, helped clean up messes that weren’t even his, and went out of his way to help classmates who were having a hard time. 💙 We are so proud of you, D! What a wonderful example of kindness and leadership! 
+
+#WeAreCLE
+
+### 2026-09-04 · Carolyn Lewis Elementary (id 13027574)
+
+🌱 CLE Learning Garden – Week 16! 🌱
+
+Join us Saturday, September 5, from 7:30–8:30 a.m. for a morning of learning, growing, and serving together! Because of the heat, we will begin between 7:30 and 8:00 a.m. and work for about an hour.
+
+This week, we’ll be planting carrots and potatoes, starting more houseplants, moving young plants outside, cleaning up the garden, and pulling weeds. All are welcome! 🌻
+
+#WeAreCLE
+
+### 2026-09-04 · Carolyn Lewis Elementary (id 13025727)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-09-04 · Carolyn Lewis Elementary (id 12997428)
+
+Now that we are in our third week of school, all car riders should have received a car rider tag. Moving forward, all car riders should be picked up through the car rider line.
+
+We dismiss more than 300 car riders each afternoon, and calling individual students to the front during the dismissal process can be disruptive and make it more difficult to dismiss everyone safely and efficiently.
+
+If you come into the office after 3:00 to pick up your child, your student will be brought to the front after the car rider line has closed. Our car rider line typically closes around 3:40, so families choosing to come inside should expect to wait until at least that time before their child is brought to the front.
+
+If your child has an appointment and you are unable to wait in the car rider line, please plan to check them out before 3:00. As a reminder, early checkouts are recorded as a tardy.
+
+We appreciate your understanding, cooperation, and support as we work to make afternoon dismissal as safe and efficient as possible for all of our students.
+
+### 2026-09-06 · Conway Public Schools (id 13036517)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662822)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-08 · Carolyn Lewis Elementary (id 13019545)
+
+🎉👏 Our 4th graders celebrated being CATS Club rockstars with an extra 20 minutes of recess! 🐾☀️ Their positive choices and great behavior earned them some well-deserved extra playtime. Way to go, 4th grade! 💙
+
+#WeAreCLE
+
+### 2026-09-08 · Carolyn Lewis Elementary (id 13025929)
+
+⚽️🔵 Science is in motion in Mrs. Cotton’s classes! Students conducted hands-on activities using soccer balls and marbles to explore how and why an object’s motion changes. Learning science is always more fun when you can see it in action! 🔬✨
+
+#WeAreCLE
+
+### 2026-09-09 · Carolyn Lewis Elementary (id 13055020)
+
+Congratulations to Mrs. Reed for being named CLE's Teacher of the Month! Thank you for all you do for our students! #WeAreCLE
+
+### 2026-09-09 · Carolyn Lewis Elementary (id 13033971)
+
+📣 Our first PTO meeting is coming up! 💙
+
+Join us Sunday, September 13th at 3:00 PM in the CLE cafeteria! We’d love to see our CLE families and get this school year started together. 🐾
+
+We hope to see you there! 
+
+#WeAreCLE
+
+### 2026-09-10 · Carolyn Lewis Elementary (id 13055401)
+
+Congratulations to Mrs. Martin for being named CLE's Employee of the Month! We are so thankful to have you at CLE!
+
+#WeAreCLE
+

@@ -412,3 +412,50 @@ Reminder for our Wampus Cat families! There will be no school on Monday, Septemb
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-09-03 · Karon Branch (id 13021679)
+
+You're invited to the SMS PTO meeting on Tuesday, Sept. 8 @ 4:15 PM, in the SMS cafeteria.
+
+### 2026-09-03 · Karon Branch (id 13021929)
+
+Help us congratulate Mrs. Samantha James, an amazing 5th Grade Reading teacher, on being recognized as Sonic Teacher of the Week! Mrs. James consistently demonstrates incredible dedication, passion, and pride in her work with our students. We are continually amazed by her commitment to her craft, her students, and the Simon community. Her hard work and heart for teaching make a lasting impact each day.Congratulations, Mrs. James! This recognition is so well deserved! Thank you for 'Raising the Standard' and showing what it means to be #SimonStrong!
+
+### 2026-09-04 · Karon Branch (id 13022100)
+
+Thank You, 360 Painting of Little Rock!  We could not have started the school year without the incredible support of our community partners! Your generosity, support, and willingness to invest in our school community mean more than you know. Partners like you help us start the year feeling encouraged, appreciated, and ready to Raise the Standard for our students!  Thank you for believing in Simon Middle School and, most importantly, for believing in our teachers and staff. We are grateful to have you in our Simon family!  Thank you for helping us #RaiseTheStandard!
+
+### 2026-09-06 · Conway Public Schools (id 13036526)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662830)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-08 · Angel Moix (id 13045378)
+
+📸 Say Cheese, Simon Middle School! Picture Day is September 18! 📸
+
+Get those smiles ready! Everyone will be photographed for the yearbook—no purchase necessary to get your picture taken.
+
+If you would like to order photo packages, here is what you need to know:
+
+In-Hand Orders: Bring your completed order form with payment on Picture Day. Payment must be exact cash or a check made payable to Strain Photography.
+
+Online Orders: Skip the paper and order online at https://www.strainschoolpics.com/pre-pay-school-pics. Note: Online orders close 48 hours before Picture Day!
+
+Give Back: A portion of all picture orders goes directly back to support our school!
+
+Check your student's binder this week for paper order forms and package details. Let’s make this year’s yearbook the best one yet! 🤩✨
+
+#SimonMiddleSchool #WeAreSimon #SimonStrong
+
+
+Additional information can be found at https://www.strainschoolpics.com/high-school.
+
+### 2026-09-09 · Karon Branch (id 13071104)
+
+Earn cash for SMS by downloading the Box Tops app on your phone today!
+

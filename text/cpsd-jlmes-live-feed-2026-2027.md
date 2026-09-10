@@ -476,3 +476,57 @@ Flashback to Week One! 🌟 These 4th graders started the year discovering their
 
 #JuliaLeeMoore #FourthGrade #PeerConnections #ClassroomFamily
 
+### 2026-09-04 · Julia Lee Moore Elementary (id 13009165)
+
+Snip, Snip, Hooray! ✂️🥗 Our kindergartners are whipping up a fresh bowl of "scissor salad" while working on scissor safety, thumb-up position, and fine motor control. Practice makes perfect for these little chefs!
+
+#JuliaLeeMoore #WeAreJLM #Kindergarten
+
+### 2026-09-04 · Julia Lee Moore Elementary (id 13032004)
+
+Hey JLM Families! Keep an eye out for the Fall Festival Sponsor form coming home in your student's folder today. If you or a business you know would like to support our school, please check out the details on the form! 🍂🎪
+
+### 2026-09-06 · Conway Public Schools (id 13036519)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662824)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-08 · Julia Lee Moore Elementary (id 13009331)
+
+Collaborative learning in action! 🔬💡 These 4th graders mapped out their initial models before pairing up to compare ideas and refine their thinking. Love seeing that scientific process unfold! 👥✨
+
+#JuliaLeeMoore #WeAreJLM #FourthGrade
+
+### 2026-09-08 · Julia Lee Moore Elementary (id 13058152)
+
+Save the date for JLM's Fall Festival on Friday, October 9th, from 4:00 PM until dark! 🍂
+
+We are actively looking for sponsors to help make this event a success. If you or a local business are interested in supporting us, please send a message to your child’s teacher for more information! 🧡
+
+#JuliaLeeMoore #JLMFallFestival #SaveTheDate #CommunitySponsors
+
+### 2026-09-09 · Julia Lee Moore Elementary (id 13009423)
+
+Center time is in full swing, and our kindergartners are busy building, exploring, and learning through play. Watching their creativity and teamwork shine is the best part of the day! 🧩🎨
+
+#JuliaLeeMoore #WeAreJLM #Kindergarten
+
+### 2026-09-09 · Julia Lee Moore Elementary (id 13055609)
+
+Congratulations to our August Teacher of the Month Ms. Polk and Employee of the Month Mrs. Tania! Thank you both for your incredible dedication to our school. 🍎👏
+
+A special thank you to Sonic and Misty Givens Agency, LLC for sponsoring these awards and supporting our team! 💙
+
+#JuliaLeeMoore #WeAreJLM #TeacherOfTheMonth #EmployeeOfTheMonth
+
+### 2026-09-10 · Julia Lee Moore Elementary (id 13009633)
+
+Our 3rd graders spent their library time finding new adventures, practicing independent reading, and turning pages together. Nothing beats the excitement of a fresh checkout! 📖📚✨
+
+#JuliaLeeMoore #WeAreJLM #ThirdGrade #LoveOfReading
+

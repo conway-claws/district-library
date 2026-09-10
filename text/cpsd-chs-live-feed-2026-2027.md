@@ -1281,3 +1281,198 @@ First conference game of the season for our Lady Cat Volleyball team! They are h
 Ticket Link:
 https://gofan.co/event/6785409?schoolId=AR86984
 
+### 2026-09-03 · Six-leg media (id 13016257)
+
+Thank you to Conway Corp Channel 5 Sports’ Levi Gilbert and Jeff Matthews for stopping by Six-Leg Media and sharing tips with our students ahead of tomorrow night’s big football game against Bentonville!
+
+### 2026-09-03 · Conway High School (id 13017951)
+
+🐾 SO MANY WAYS TO GET INVOLVED AT CHS! 🐾
+
+Yesterday, CHS hosted our annual Club Fair, giving students the chance to explore all the ways they can get involved on campus!
+
+🎉 28 different clubs and organizations showed up during lunch to share information, answer questions, and help students find their perfect fit.
+
+And even with the Arkansas heat turning up the temperature, our clubs were out there making sure students had the opportunity to discover something new. ☀️💙
+
+From service and leadership to academics, activities, interests, and everything in between, there’s a place for everyone at Conway High School!
+
+Find your people. Discover your interests. Get involved.
+That’s the Wampus Cat way! 🐾💙
+
+### 2026-09-03 · Conway High School (id 13019287)
+
+🐾 Want to make a difference at Conway High School?
+Interested in serving our students and teachers? CLAWS, our PTO program, is looking for families and community members who want to get involved and help support CHS!
+Join us for an introductory Zoom meeting on September 15 at 7:00 PM to learn more about CLAWS and how you can be part of it.
+📋 Interested in joining us? Fill out the form below to share your contact information:
+
+https://docs.google.com/forms/d/e/1FAIpQLSdu1UmE0jR_Kh10NVVTdpt73L2RpTNny2jvLSe7U9ogTw86Xw/viewform
+
+💙🐾 We’d love to have you join the CLAWS family!
+
+### 2026-09-04 · Beth Fluesmeier (id 13025796)
+
+Check out the football program for rosters, player pictures and our sponsors.  
+
+https://indd.adobe.com/view/b2ba41cf-8bbe-47ce-a3c6-5ca7102d3ce7
+
+### 2026-09-04 · Six-leg media (id 13030360)
+
+Your No. 1 ranked Conway Wampus Cats take on the  No. 2 ranked  Bentonville Tigers tonight in a highly anticipated matchup. Before kickoff, hear from Coach James as he previews the game with Six-Leg Media sports reporter Abby Slay over on the Six-Leg Media YouTube page.
+
+https://youtu.be/94rX_w_ZLJA?si=7dNV-r-whQqJU7SC
+
+### 2026-09-04 · Conway Athletics (id 13032821)
+
+🐾🔥 CONWAY… IT’S TIME TO DEFEND YOUR HOUSE! 🔥🐾
+
+GAME DAY IS HERE! And tonight, the lights are shining bright in Conway, Arkansas as the Conway Wampus Cats welcome the Bentonville Tigers for a highly anticipated early-season showdown! 🏈💥
+
+This is the kind of game you circle on the calendar.
+This is the kind of game you DON’T want to miss.
+And most importantly… THIS ONE IS AT HOME! 🐾🏟️
+
+🔥 THE WAMPUS CATS ARE READY.
+🔥 THE CROWD IS READY.
+🔥 CONWAY IS READY.
+
+Bentonville is coming to town looking to make a statement — but they’re stepping into Wampus Cat territory tonight! 🐾😤
+
+📍 CONWAY, ARKANSAS
+⏰ KICKOFF — 7:00 PM
+
+Get your tickets ahead of time and get ready to pack the stands!
+🎟️ https://gofan.co/event/6688688?schoolId=AR4663
+
+
+You can still be part of the action! Watch the game LIVE on YouTube:
+📺 youtube.com/live/qFRDXxDNBxQ?si=cx_yotlR0t7Pv1rR
+
+🐾 CONWAY — LET’S HEAR YOU!
+Bring the energy. Bring the pride. Bring the noise.
+
+LET’S GO WAMPUS CATS!
+
+#WampusCats #ConwayWampusCats #ConwayArkansas #GameDay #FridayNightFootball #ArkansasFootball #WampusCatNation
+
+### 2026-09-04 · Conway High School (id 13033807)
+
+🧪 Learning in action in Accelerated Chemistry!
+
+Last week, Ms. Bailey’s Accelerated Chemistry students worked together to sort and group sentences, then synthesized their own descriptions of each group. After comparing their ideas, the class reached a shared understanding of the difference between measurements (quantitative evidence) and observations (qualitative evidence).
+
+And they got to put our new whiteboards to use during this vertical learning activity! 📝🔬
+
+We love seeing students collaborate, think critically, and build their understanding together! 💙
+
+### 2026-09-04 · Conway High School (id 13033373)
+
+🚨 Hands-On Training in Patient Care Technician! 🚨
+
+Our Patient Care Technician students were putting their skills into action as they practiced responding to active emergencies. From pushing the stretcher and providing assisted breathing to performing CPR, these students were getting valuable hands-on experience preparing for real-world situations. 🩺❤️‍🩹
+
+Learning by doing—and building the confidence and skills needed to care for others! 💪
+
+### 2026-09-04 · Conway Athletics (id 13034903)
+
+Congrats to our Lady Cat Basketball Players of the Week! 💪🏾 
+
+CJHS-Alivia Dielmann
+CHS-Rai Wilson
+
+Go Cats! 🚾 🏀
+
+### 2026-09-06 · Conway High School (id 13036638)
+
+📸 PICTURE DAY!
+
+Seniors: Wednesday, September 9
+Seniors will take their yearbook/cap&gown photo if they have not already done so.
+
+Juniors: Thursday, September 10
+Sophomores: Friday, September 11
+
+Don’t forget to look your best! 📸 ✨
+
+Make up pictures will be October 13; 9:00am - 12:00pm
+
+### 2026-09-06 · Conway Public Schools (id 13036529)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662833)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-08 · Canaan Groesbeck (id 12996457)
+
+Our Lady Cats have a home game tonight vs NLR! Make sure to come out and support these girls! Good luck, Ladies!! 
+
+Ticket Link:
+https://gofan.co/event/6687088?schoolId=AR4663
+
+Livestream Link: 
+https://youtube.com/live/VO3qyBRGJ7w?feature=share
+
+### 2026-09-09 · Conway High School (id 13062984)
+
+🎓 Senior Parent Night is coming up!
+
+Seniors and their parents/guardians are invited to Senior Parent Night on Tuesday, September 15, 2026, at Conway High School.
+
+📍 CHS Cafeteria
+🕠 5:30 PM: Arrive early to visit with local colleges in the CHS Main Building Lobby
+🕕 6:00 PM: Presentations begin
+
+Breakout sessions will cover important topics including:
+• College Selection & Admissions
+• Financial Aid (State & Federal)
+• Military Educational Benefits
+
+Join us for an evening of helpful information and resources as we prepare our seniors for life after high school! 🎓🐾
+
+### 2026-09-09 · Conway Athletics (id 13070191)
+
+All Fans and Visiting Teams
+
+The information below is an excerpt taken directly from the AAA Handbook. We ask that all visitors, fans, and spectators attending any of our athletic facilities please abide by the rules and guidelines established by our governing body.
+
+Our goal is always to provide a great, welcoming, and safe atmosphere for our student-athletes, coaches, staff, and visitors while ensuring that we follow all applicable rules and regulations.
+
+We appreciate your attention to this matter and, most importantly, your cooperation in helping us maintain a positive and safe environment for everyone.
+
+Thank you for your continued support of our student-athletes and athletic programs!
+
+### 2026-09-10 · Conway Athletics (id 13064740)
+
+Below is the ticket link for today's JV/V Volleyball games at Cabot.
+
+https://www.vancoevents.com/us/DVRQ
+
+### 2026-09-10 · Canaan Groesbeck (id 13076262)
+
+The Lady Cats are traveling to Cabot today for a big conference match up! Let's go, girls!!!! 
+
+Ticket Link:
+https://www.vancoevents.com/us/events/67382/sessions/188863/sections/113885/tickets
+
+Live Stream Link:
+https://www.youtube.com/@Cabot-Athletics
+
+### 2026-09-10 · Conway High School (id 13077760)
+
+🎉 Celebrating Hispanic Heritage through Service, Culture & Community!
+
+Last Saturday, September 5, students from Señora Tedford’s Spanish classes volunteered at the Hispanic Heritage celebration, “El Grito,” at Laurel Park in Conway. Organized annually by Paloma Community, this wonderful event brings families together to celebrate Hispanic culture and heritage.
+
+Our students jumped right in, helping with trivia, traditional Hispanic games, children’s activities, and face painting. 🎨🎲 Their enthusiasm and willingness to serve helped make the celebration a special experience for families throughout our community!
+
+We are so proud of our students for demonstrating leadership, service, and cultural pride while representing Conway High School! ❤️
+
+¡Gracias a nuestros increíbles estudiantes por representar a nuestra escuela y nuestra comunidad con tanto entusiasmo! 👏
+
+#ConwayHighSchool #WampusCats #HispanicHeritage #ElGrito #CommunityService
+

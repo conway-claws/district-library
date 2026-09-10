@@ -558,3 +558,35 @@ Reminder for our Wampus Cat families! There will be no school on Monday, Septemb
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-09-03 · Carl Stuart Middle School (id 13017919)
+
+🎉 CONGRATULATIONS, Ms. Smith! 🎉
+
+We are excited to announce that Ms. Smith is a recipient of a Conway Public Schools Foundation Classroom Impact Grant! 📚✨ She will use her grant funds to purchase new books for our book vending machine, helping put even more books into the hands of our students! 📖🐾
+
+A huge THANK YOU to the Conway Public Schools Foundation for investing in our teachers and students and making opportunities like this possible. We are so grateful for your continued support! 💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsForKids
+
+### 2026-09-06 · Conway Public Schools (id 13036527)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662831)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-08 · Carl Stuart Middle School (id 13044671)
+
+🌟🎸 August Employee & Teachers of the Month! 🎸🌟
+
+Help us give a BIG congratulations to Mrs. Powers and Ms. Smith, our August Teachers of the Month, and Mrs. Harness, our August Employee of the Month! 👏💙
+
+These three are absolute rockstars who go above and beyond for our students and our school every day. We are so thankful for all they do and the positive impact they make at Carl Stuart! ⭐️
+
+Congratulations! We are lucky to have you! 🐾💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsForKids
+

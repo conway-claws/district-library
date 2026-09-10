@@ -539,3 +539,74 @@ Look at our dots 🔴🟠🟡🟢🔵🟣 in Art with Ms. Longing!
 
 #WeAreJSE
 
+### 2026-09-03 · Barbara Clardy (id 12856909)
+
+📸 PICTURE DAY IS COMING! 📸
+
+Mark your calendars, families! Our Fall Picture Day is scheduled for:
+
+🗓️ September 17th, 2026
+
+Get ready for those adorable smiles and perfect poses! 😊✨
+
+Order forms will be sent home in your child's folder as we get closer to the date. Keep an eye out!
+
+#WeAreJSE
+
+### 2026-09-03 · Barbara Clardy (id 12875428)
+
+🌈 COLOR DAY REMINDER! 🌈
+
+Tomorrow is Black/White Day for JSE Color Week!
+
+⚫⚪ Wear your favorite BLACK/WHITE outfit to school tomorrow, September 4th! ⚫⚪
+
+### 2026-09-06 · Conway Public Schools (id 13036521)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662826)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-08 · Barbara Clardy (id 13052345)
+
+📣 PTO Meeting Reminder!
+
+Join us for the PTO meeting this Friday at 2pm in JSE's PD Lab. 
+
+Learn about upcoming events and opportunities throughout the school year, discover ways you can help support our students and teachers, and connect with other Little Cat families! 💙🐾
+
+### 2026-09-08 · Barbara Clardy (id 13052596)
+
+Hi Jim Stone Families!
+
+We are stocking the lounge for the teachers and staff at Jim Stone!  Let's show the JSE staff how much we appreciate them!  
+
+Please bring your items to the front office by Friday, September 18th. 
+
+ https://www.signupgenius.com/go/30E0A48A8AB2EAAFA7-65625606-stock
+
+Thank you so much for your support!
+
+Jim Stone PTO
+
+### 2026-09-08 · Barbara Clardy (id 13005586)
+
+Copy, paste, and paint it pink!
+
+#twinningtuesday
+#WeAreJSE
+
+### 2026-09-09 · Barbara Clardy (id 13056606)
+
+🍂 Fall Cleaning? We Need Your Help! 🍂
+
+As you tackle those closets and swap out summer clothes, please consider donating gently used elastic-waist pants and shorts (both boys and girls) to the JSE Clothes Closet! We need a variety of sizes in bottoms only right now — we're all set on shirts!
+
+Your donations help our students feel comfortable and confident at school. Thank you for supporting our JSE family! 💙
+
+#WeAreJSE
+

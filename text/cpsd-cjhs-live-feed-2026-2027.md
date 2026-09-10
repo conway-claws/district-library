@@ -601,3 +601,62 @@ It's time to smile, Wampus Cats! We're excited to capture those school-year memo
 
 Mark your calendars and come ready to smile! 📸💙
 
+### 2026-09-03 · Conway Junior High (id 13015701)
+
+During WIN time this week, students in Mrs.Fraziers class have had the opportunity to create children’s books.!! They have been using Canva for illustrations and a storybook outline for the story.!!! Go Cats 💙🤍💙
+
+### 2026-09-03 · Conway Junior High (id 13015861)
+
+🎨✨ Les Artistes – French Club 
+
+Our French Club members took inspiration from the great Claude Monet! After browsing a mini postcard gallery featuring Monet’s impressionist works, students created their own mini-impressionist paintings. 🖌️🌸
+
+We love seeing our students explore art, creativity, and French culture! 🎨
+
+### 2026-09-04 · Marquis Rogers (id 13025447)
+
+Today is Popcorn Friday and Birthday Cake Friday!
+
+Stop by during your lunch.  Popcorn in the front office and cake in the break room.
+
+### 2026-09-04 · Marquis Rogers (id 13028058)
+
+Cake is here!
+
+### 2026-09-06 · Conway Public Schools (id 13036528)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Junior High (id 12986777)
+
+📅 Wampus Cats, here’s your Week at a Glance! 
+
+Take a look at what’s happening around CJHS this week! From tennis and volleyball to football, there’s plenty happening around campus and on the field. 💙
+
+Have a great week, Wampus Cats!
+
+### 2026-09-07 · Conway Public Schools (id 12662832)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-08 · Conway Junior High (id 12914267)
+
+Dear Parents and Students,
+We hope you have a great week! Here are the important updates and announcements for the upcoming week.
+
+Link to Announcements: 
+
+https://docs.google.com/document/d/1Od7p7r2ZqXVPTas6D62umJI99XyOCKWtUDlOlNcyL1Q/edit?usp=sharing
+
+### 2026-09-08 · Cheyenne Kuhn (id 13047472)
+
+Congratulations to the CJHS volleyball players of the week! We’re so proud of their hard work and leadership! 💙🏐🏆 Good job girls!
+
+### 2026-09-08 · Conway Athletics (id 13059935)
+
+Congratulations to 8th & 9th grade volleyball for winning tonight against Bryant! 🏐🏐💙💙
+9th grade is now 2-0 in conference after a win last week against Benton! 
+9th grade is wearing gold ribbon supporting their friend, Emmersyn Caldwell, in support of her battle against cancer! We love our former teammate and our thinking of her in this fight! 🤍
+

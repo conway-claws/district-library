@@ -220,3 +220,58 @@ Reminder for our Wampus Cat families! There will be no school on Monday, Septemb
 💰 $35
 📍 Conway High School Indoor FacilityClinic participants will have the chance to perform with CHS Cheer & Dance during halftime on October 2! 🏈📣It’s going to be a morning full of fun, dancing, cheering, and Wampus Cat spirit! 💙🤍👉 Sign up using the GoFan link! - https://gofan.co/event/6794667?schoolId=AR4663Let’s see that Wampus Cat spirit! 🐾💙#TeamConway #WampusCats #ConwaySpirit #CHSCheer #CHSDance
 
+### 2026-09-06 · Conway Public Schools (id 13036520)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662825)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-07 · Matthew Coatney (id 13044546)
+
+Good evening,I hope everyone enjoyed the three-day weekend! These first three weeks of school have truly been some of the best of my teaching career. I’m excited to see everything your students accomplish this year!Color Week begins this week in Kindergarten, and all students are welcome to participate!❤️ Tuesday: Red
+
+🧡 Wednesday: Orange
+
+💛 Thursday: Yellow
+
+💚 Friday: GreenJoin us Tuesday, September 15, from 5:30–7PM at Ellen Smith for Showcase At The Park night! If you plan to attend, please send in your RSVP so we can plan for food. If you lost the RSVP, just email me at coatneym@conwayschools.info and let me know.
+
+### 2026-09-08 · Matthew Coatney (id 13055773)
+
+Dear 2nd–4th Grade Families,
+
+We are excited to announce that Ellen Smith Elementary will be participating in the Scripps National Spelling Bee Program! 🐝
+
+A Spelling Bee flyer and a practice word list will be coming home with your student today or tomorrow. These materials will give students information about the spelling bee and words they can use to practice at home.
+
+Each grade level will receive 100 practice words:
+
+2nd Grade: 50 first-grade words + 50 second-grade words
+3rd Grade: 50 second-grade words + 50 third-grade words
+4th Grade: 50 third-grade words + 50 fourth-grade words
+
+Students can use these 100 words to practice and prepare for their classroom spelling bee, which will take place the week of November 10th.
+
+The top two spellers from each classroom will then advance to our schoolwide spelling bee on January 19, 2027! 🏆🐝
+
+We encourage students to practice a little at a time and have fun with it! We are excited to see our Ellen Smith students work hard, build their confidence, and show off their spelling skills.
+
+Thank you for supporting your student as they prepare!
+
+Matt Coatney
+Principal
+Ellen Smith Elementary
+
+### 2026-09-08 · Matthew Coatney (id 13058279)
+
+🎉 BIG SHOUT-OUT TO MS. WALTER! 🎉
+
+Congratulations to Ms. Walter for being named the Ellen Smith Staff Member of the Month! 💙
+
+
+We are so thankful for the positivity, dedication, and care you bring to our students and staff each day. You make Ellen Smith a better place, and we are lucky to have you on our team! Thank you to Misty Givens and Sonic for the goodies to celebrate our winner for the month!
+

@@ -344,3 +344,32 @@ https://gofan.co/event/6776260?schoolId=AR4663And there’s an even BIGGER reaso
 ⭐ Centennial Bank
 ⭐ Baptist Health Medical CenterCome tailgate with us, support our educators, and then GO WAMPUS CATS! 🐾🏈💙🤍#TeamConway #WampusCats #ConwayPublicSchools #CPSFoundation #ConwayArkansas #WampusCatFootball #GoCats
 
+### 2026-09-04 · Conway Public Schools (id 13025830)
+
+Hey Conway!! We're thrilled to introduce our brand-new Wampus Cat mascots! 💙 Get excited to embrace them in our community, as they bring enthusiasm and spirit to all our events!Join us tonight at the football game to meet them in person! 🏈 You won't want to miss the fun and excitement they’ll bring to the field!Stay tuned for more updates and adventures with our Wampus Cat mascots! Let’s show them a roaring good time! #WampusCats #TeamConway #6legs4Life #WeareConway
+
+### 2026-09-04 · Conway Public Schools (id 13028697)
+
+Happy Friday, Team!
+We’re excited to share some fantastic news with you! Today marks the grand debut of our vibrant new Wampus Cat mascots! They are here to boost our school spirit and bring a whole new level of enthusiasm to our community!Join us tonight at the football game to meet them in person and cheer on the Wampus Cats together! They can’t wait to see all of you there and make some unforgettable memories!Stay tuned for more thrilling updates as they make their way around the district. It’s going to be an amazing journey!
+
+### 2026-09-04 · Conway Public Schools (id 13029607)
+
+Happy Friday, Team!
+We’re excited to share some fantastic news with you! Today marks the grand debut of our vibrant new Wampus Cat mascots! They are here to boost our school spirit and bring a whole new level of enthusiasm to our community!Join us tonight at the football game to meet them in person and cheer on the Wampus Cats together! They can’t wait to see all of you there and make some unforgettable memories!Stay tuned for more thrilling updates as they make their way around the district. It’s going to be an amazing journey!
+
+### 2026-09-04 · Conway Public Schools (id 13029644)
+
+Happy Friday, Team!
+We’re excited to share some fantastic news with you! Today marks the grand debut of our vibrant new Wampus Cat mascots! They are here to boost our school spirit and bring a whole new level of enthusiasm to our community!Join us tonight at the football game to meet them in person and cheer on the Wampus Cats together! They can’t wait to see all of you there and make some unforgettable memories!Stay tuned for more thrilling updates as they make their way around the district. It’s going to be an amazing journey!
+
+### 2026-09-06 · Conway Public Schools (id 13036512)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662817)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+

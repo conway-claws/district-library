@@ -257,3 +257,41 @@ Safety is our priority, please help us by following our arrival procedures. Than
 💰 $35
 📍 Conway High School Indoor FacilityClinic participants will have the chance to perform with CHS Cheer & Dance during halftime on October 2! 🏈📣It’s going to be a morning full of fun, dancing, cheering, and Wampus Cat spirit! 💙🤍👉 Sign up using the GoFan link! - https://gofan.co/event/6794667?schoolId=AR4663Let’s see that Wampus Cat spirit! 🐾💙#TeamConway #WampusCats #ConwaySpirit #CHSCheer #CHSDance
 
+### 2026-09-03 · Theodore Jones Elementary (id 12956555)
+
+Kona Ice is coming! The ordering deadline for this event is tonight at 9pm sharp.
+
+Use the following link to order- this is a cashless event
+
+https://customer.kona-ice.com/#/K308X9692721
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic(. Please make sure the cups are clean and not cracked. We do not replace broken cups 
+
+**Please send your students cup in their backpack to avoid dropping them off in the office.
+
+### 2026-09-04 · Theodore Jones Elementary (id 13034079)
+
+2nd grade- Unfortunately, the Kona Ice truck took longer than expected to get through today’s line before dismissal, and our 2nd grade students were not able to visit the truck. Several of the flavor options also ran out during today’s visit, so we want to make sure our 2nd graders still get to enjoy the full Kona Ice experience!
+
+The good news is that Kona Ice has graciously agreed to return on Tuesday just for our 2nd graders! 🎉
+
+Parents, you do NOT need to repurchase anything. Every 2nd grade student will receive a snow cone on Tuesday. 🍧
+
+We know they were looking forward to their treat today, and we appreciate your patience and understanding. We’re happy that Kona Ice is able to come back and make it up to them! 💛
+
+### 2026-09-04 · Theodore Jones Elementary (id 13036010)
+
+Last Days to order T-shirts! 👕 The PTO store closes this Sunday so make sure to order now! Click the link to visit the store 👇
+
+https://tjespto.itemorder.com/shop/home/
+
+### 2026-09-06 · Conway Public Schools (id 13036516)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662821)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+

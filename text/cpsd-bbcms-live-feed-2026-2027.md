@@ -321,3 +321,27 @@ A big congratulations to Ms. McWilliams for being named CMS’s Sonic Teacher of
 
 #WeAreCourtway #TeamConway #WeAreWampusCats
 
+### 2026-09-03 · Courtway Middle School (id 13019417)
+
+Thank you to Eli from Planet Fitness for stopping by Courtway with school supplies collected during their recent school supply drive! 💙
+
+We appreciate Planet Fitness and our community partners for helping make sure our students have what they need to be successful. Every donation makes a difference—and every piece matters! 🧩
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-09-06 · Conway Public Schools (id 13036523)
+
+Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Accountability, and Transparency!Join us on Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!#TeamConway #PC4W #WampusCats #WeareConway
+
+### 2026-09-07 · Conway Public Schools (id 12662828)
+
+Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our community, especially the incredible educators and staff who make up Team Conway. Thank you for being true champions for kids every single day! Enjoy your day of rest. 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKid
+
+### 2026-09-09 · Courtway Middle School (id 13063851)
+
+Congratulations to Mr. Travis Jackson, recognized as Courtway’s Employee of the Month for August! 🎉 We appreciate your dedication, hard work, and commitment to excellence. Thank you for all that you do!
+
+A special thank you to Misty Givens Agency, LLC – Horace Mann Insurance for recognizing and celebrating our outstanding employees. We truly appreciate your support! 👏🏽💙
+
