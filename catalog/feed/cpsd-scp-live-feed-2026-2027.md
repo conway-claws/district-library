@@ -11,10 +11,10 @@ drive_kind:
 rights: public-web
 text: text/cpsd-scp-live-feed-2026-2027.md
 retrieved: 2026-09-10
-verified: 2026-09-07
+verified: 2026-09-14
 status: current
 tags: [live-feed, 2026-2027]
-last_check: 2026-09-07
+last_check: 2026-09-14
 fail_since:
 fail_reason:
 ---

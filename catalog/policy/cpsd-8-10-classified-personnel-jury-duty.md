@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-10-classified-personnel-jury-duty.md
 retrieved: 2026-08-09
-verified: 2026-09-07
+verified: 2026-09-14
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2007-06-12
 sha256: f06e2cf7e9faa9f51bda8e1ffd43f455ca11418730dc466c9cbd27261c8b0fb1
-last_check: 2026-09-07
+last_check: 2026-09-14
 fail_since:
 fail_reason:
 ---
