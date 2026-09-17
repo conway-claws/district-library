@@ -459,3 +459,100 @@ Additional information can be found at https://www.strainschoolpics.com/high-sch
 
 Earn cash for SMS by downloading the Box Tops app on your phone today!
 
+### 2026-09-10 · Karon Branch (id 13084087)
+
+Simon Families: Today, September 10, 2026, SMS ran our annual, mandatory lockdown drill. This was only a drill. Our students and staff did an amazing job. I am so proud of our team! We strive everyday to make sure everyone at SMS is safe and prepared. If you have any questions, please do not hesitate to reach out.
+
+### 2026-09-10 · Karon Branch (id 13088181)
+
+Today, we are especially proud to celebrate Bobby Brown, a valued member of our Simon family. Bobby is someone who truly leads with heart. He takes tremendous pride in his work and consistently goes above and beyond to make sure our school is cared for and welcoming for everyone who walks through our doors.
+More than the work he does, Bobby brings warmth, laughter, and personality to our school each day. Whether he is sharing one of his unforgettable stories or talking about his latest hunting adventure, he has a way of making people smile and feel connected.
+Bobby, your dedication does not go unnoticed. We are grateful for the care, pride, and excellence you bring to Simon every single day. We are incredibly proud to celebrate you and thankful that you are part of our Simon family!
+
+### 2026-09-10 · Karon Branch (id 13088242)
+
+Today, we are especially proud to celebrate Bobby Brown, a valued member of our Simon family. Bobby is someone who truly leads with heart. He takes tremendous pride in his work and consistently goes above and beyond to make sure our school is cared for and welcoming for everyone who walks through our doors. More than the work he does, Bobby brings warmth, laughter, and personality to our school each day. Whether he is sharing one of his unforgettable stories or talking about his latest hunting adventure, he has a way of making people smile and feel connected. Bobby, your dedication does not go unnoticed. We are grateful for the care, pride, and excellence you bring to Simon every single day. We are incredibly proud to celebrate you and thankful that you are part of our Simon family!
+
+### 2026-09-11 · Karon Branch (id 13087200)
+
+🚀 **What happens when you put students in the role of scientists?**
+
+They investigate, collaborate, observe, question, and discover! 🔬✨
+
+### 2026-09-15 · Conway Public Schools (id 13115097)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Angel Moix (id 13130806)
+
+This is an opportunity for active-duty military families to receive valuable information about services and resources available to support your child’s educational journey.
+
+If you are interested in learning more and accessing these resources, please click HERE.Simon Middle School
+
+### 2026-09-15 · Conway Public Schools (id 13116440)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-15 · Angel Moix (id 13138833)
+
+Reminder!!!!!!!📸 Say Cheese, Simon Middle School! Picture Day is September 18! 📸
+
+Get those smiles ready! Everyone will be photographed for the yearbook—no purchase necessary to get your picture taken.
+
+If you would like to order photo packages, here is what you need to know:
+
+In-Hand Orders: Bring your completed order form with payment on Picture Day. Payment must be exact cash or a check made payable to Strain Photography.
+
+Online Orders: Skip the paper and order online at https://www.strainschoolpics.com/pre-pay-school-pics. Note: Online orders close 48 hours before Picture Day!
+
+Give Back: A portion of all picture orders goes directly back to support our school!
+
+Student papers were sent home last week!. Let’s make this year’s yearbook the best one yet! 🤩✨
+
+#SimonMiddleSchool #WeAreSimon #SimonStrong
+
+
+Additional information can be found at https://www.strainschoolpics.com/high-school.
+
+### 2026-09-16 · Karon Branch (id 13143788)
+
+This is a friendly reminder that 'The Shack bouTEA' will serve beverages, in the bus loop, from 11:15-12:45, today. Cards & cash are accepted.
+
+### 2026-09-16 · Karon Branch (id 13149059)
+
+The Shack BouTea will be now be on our campus, at the bus loop, at 12:30. We will come by your classrooms to relieve those who would like to purchase a drink. Thanks.
+
+### 2026-09-16 · Angel Moix (id 13147630)
+
+Staff Shoutout!
+
+🎉 Huge congratulations to Ms. Richardson, our incredible Employee of the Month! 👏
+
+As a 1-10 classroom paraprofessional, Ms. Richardson brings patience, dedication, and endless heart to our school every single day. Whether she’s providing tailored one-on-one support or keeping the whole classroom running smoothly, her impact on our students and staff is truly unmatched. We are so grateful for everything she does!
+
+🍎 Big news! Huge congratulations to Ms. Barber, our amazing Teacher of the Month! ✨
+
+From making math actually make sense, to creating a classroom where every student feels confident tackling tough problems, Ms. Barber goes above and beyond every single day. We are so lucky to have her inspiring our students!
+
+Leave a comment below with a ❤️ or a message to help us celebrate these well-deserved recognition!#StaffAppreciation #SimonStrong #WeAreSimon
+
+### 2026-09-16 · Conway Public Schools (id 13033458)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-17 · Conway Public Schools (id 13158249)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+

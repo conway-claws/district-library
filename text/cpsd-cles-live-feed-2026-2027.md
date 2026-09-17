@@ -962,3 +962,116 @@ Congratulations to Mrs. Martin for being named CLE's Employee of the Month! We a
 
 #WeAreCLE
 
+### 2026-09-10 · Carolyn Lewis Elementary (id 13049216)
+
+Kindergarten kicked off their Arts and Letters by getting to use their senses and exploring! They talked about the connection of how these same senses help them to experience their world every day! #WeAreCLE
+
+### 2026-09-11 · Carolyn Lewis Elementary (id 13049510)
+
+Today, we pause to remember September 11, 2001, and honor the lives lost, the heroes who served, and the countless individuals and families forever changed. 🇺🇸
+
+We remember. We honor. We will never forget. ❤️🤍💙
+
+#WeAreCLE
+
+### 2026-09-11 · Carolyn Lewis Elementary (id 13035174)
+
+Reminder:📣 Our first PTO meeting is this Sunday! 💙
+
+Join us Sunday, September 13th at 3:00 PM in the CLE cafeteria! We’d love to see our CLE families and get this school year started together. 🐾
+
+We hope to see you there! 
+
+#WeAreCLE
+
+### 2026-09-11 · Carolyn Lewis Elementary (id 13091078)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-09-14 · Carolyn Lewis Elementary (id 13018447)
+
+🔬🎨 Ms. Brooks’ class kicked off their first OpenSciEd lesson with a fun challenge! Students were tasked with building a balanced sculpture to explore what causes sculptures to balance without falling over. They were busy creating, testing, and thinking like scientists! 🧠✨
+
+#WeAreCLE
+
+### 2026-09-14 · Carolyn Lewis Elementary (id 13048398)
+
+🐾 Our first CATS Camp in Kindergarten was a HUGE success! Our littlest Little Wampus Cats had a blast learning, playing, and making memories together!  💙 #WeAreCLE
+
+### 2026-09-14 · Carolyn Lewis Elementary (id 13114864)
+
+CLE Kindergarten Color Days! 
+
+Our kindergarten students are learning a new color each week and celebrating with a Dress Up in That Color Day every Friday! Join the fun:
+
+ Sept. 11  Yellow
+ Sept. 18  Green
+ Sept. 25  Blue
+ Oct. 2  Purple
+ Oct. 9  Pink
+Oct. 16  Orange
+ Oct. 30  Black
+ Nov. 6  Brown
+ Nov. 13  White
+Nov. 20  Tan
+
+Students could wear something as simple as a shirt in the featured color. Please no costumes or props. We can't wait to celebrate learning in colorful ways! 🌈
+
+#WeAreCLE
+
+### 2026-09-14 · Carolyn Lewis Elementary (id 13124507)
+
+📣 LAST CALL! 👕💙
+
+Tomorrow is the last day to turn in orders for CLE T-shirts and sweatshirts! Don’t forget to get your order in so you can show your CLE pride in style! 🐾💙
+
+#WeAreCLE
+
+### 2026-09-15 · Conway Public Schools (id 13115088)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Conway Public Schools (id 13116430)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-16 · Carolyn Lewis Elementary (id 13120432)
+
+🌬️💧 Science in action at CLE! 🌎
+
+Our second graders are learning how wind and water can change the land. They put their ideas to the test using straws to model wind and spray bottles to model rain. We love seeing our Little Cats ask questions, make predictions, and learn through hands-on experiments! 🔬🌟
+
+#WeAreCLE
+
+### 2026-09-16 · Carolyn Lewis Elementary (id 13058360)
+
+Our CLE students are putting their creative and critical thinking skills to work during Enrichment STEM stations with Ms. McClain! 🔍💡 
+
+#WeAreCLE
+
+### 2026-09-16 · Conway Public Schools (id 13033448)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-17 · Carolyn Lewis Elementary (id 13090415)
+
+Breakfast from the CLE PTO! 💙 Our PTO treated our teachers and staff to breakfast as a little “thank you,” but honestly, we couldn’t be more thankful for YOU! We are so blessed to have a PTO that loves and supports our CLE family so well! 🐾💙
+
+#WeAreCLE
+
+### 2026-09-17 · Conway Public Schools (id 13158240)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+

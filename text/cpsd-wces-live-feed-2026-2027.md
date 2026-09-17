@@ -902,3 +902,137 @@ If you are not parked in a designated parking spot, you are not participating in
 
 Thank you for helping us keep dismissal safe, orderly, and moving smoothly!
 
+### 2026-09-10 · Woodrow Cummins Elementary (id 13082390)
+
+First grade is working hard building CVC words!
+
+### 2026-09-11 · Woodrow Cummins Elementary (id 13095565)
+
+Check out what's going on next week in our Little Cat Chronicle!
+
+### 2026-09-15 · Conway Public Schools (id 13115086)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Woodrow Cummins Elementary (id 13130260)
+
+Math in Motion! 
+
+Mrs. Lute’s first graders got up and moving today as they did a walk around the room to find the totals for different number bonds! 
+
+We’re learning that math can happen anywhere, even while we’re on the move! 
+
+Way to go, Little Cats!
+
+### 2026-09-15 · Conway Public Schools (id 13116427)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-15 · Jenna Havlik (id 13135463)
+
+Get ready for some BIG fun, Little Cats! 💙🤍 Our Little Cat-A-Thon Color Run Fundraiser kicks off TODAY, September 15! 🎉
+
+This is a great way to support Woodrow Cummins Elementary, have some fun, and earn some AMAZING prizes along the way!
+
+📅 Important Dates:
+• Kick-Off: September 15
+• Donations Due: October 11
+• Prize Event: October 13
+
+🏆 SCHOOLWIDE GOAL: $50,000!
+If WCE raises $50,000 or more, ALL students will get to participate in the Megathon Adventure Obstacle Course! 🤩
+
+🎉 POWER-UP PRIZES:
+🏃‍♀️ Race to Register: All students registered online by 8 AM on September 17 unlock a BONUS RECESS!
+
+🍪 Dash for Dough: Qualify for the Megathon Adventure Color Run prize level by 8 AM on September 18 to earn a COOKIE PARTY! 🍪
+
+📲 Ready to get started? Scan the QR code on the flyer to register online and begin collecting donations!
+
+Let’s make this the BIGGEST and most FUN fundraiser yet!
+
+💙🤍 LET’S GO, LITTLE CATS! 🐾
+Run. Play. Raise. Repeat!
+
+### 2026-09-16 · Woodrow Cummins Elementary (id 13146140)
+
+MORNING DROP-OFF REMINDER 
+
+We are working to make our morning drop-off line more efficient and keep traffic moving, and we need everyone's help!
+
+👉Please pull all the way forward. We should be unloading several cars at a time, rather than waiting for the car in front of you to finish unloading before moving forward.
+
+👉Students should be ready to exit the vehicle immediately when the vehicle stops. Students from Mrs. Starnes all the way to the purple cone may exit their vehicles.
+
+👉 Students should NOT wait for an adult to open their door. Please have students ready to open the door, exit the vehicle, and walk straight to the sidewalk and into the building.
+
+Thank you for helping us keep our morning drop-off safe, smooth, and moving! 💙
+
+### 2026-09-16 · Conway Public Schools (id 13033445)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-17 · Conway Public Schools (id 13158237)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+
+### 2026-09-17 · Woodrow Cummins Elementary (id 13159066)
+
+We're excited to celebrate Dress-Up Color Days with our kindergarten students! This is a fun way for our Little Cats to add some color and excitement to their school days.
+
+Kindergarten students are invited to dress in the following colors:
+
+Monday, September 21: ❤️ Red
+Tuesday, September 22: 🧡 Orange
+Wednesday, September 23: 💛 Yellow
+Thursday, September 24: 💚 Green
+Friday, September 25: 💙 Blue
+Monday, September 28: 💜 Purple
+Tuesday, September 29: 🩷 Pink
+Wednesday, September 30: 🤎 Brown
+Thursday, October 1: 🖤 Black
+Friday, October 2: 🤍 White
+
+Students may wear clothing, accessories, or other school-appropriate items in the designated color each day. Participation is completely optional, but we hope our kindergarteners will enjoy making their days a little more colorful!
+
+Thank you for helping us make school fun and festive for our kindergarten Little Cats!
+
+### 2026-09-17 · Woodrow Cummins Elementary (id 13160792)
+
+Dear Woodrow Families,
+
+We are excited to announce that Grand's Week will be September 28–October 2, in conjunction with our Book Fair, just as it has been in the past!
+
+We call it “Grand's Week” rather than Grandparent's Week because we want every student to have the opportunity to invite an adult they think is “Grand” to join them. A “Grand” can be a grandparent, family member, friend, or any special adult in your child's life. It does not have to be a grandparent!
+
+Grand's Week Lunch Schedule
+Kindergarten: Tuesday, September 29 — 10:40 AM
+1st Grade: Wednesday, September 30 — 11:40 AM
+2nd Grade: Thursday, October 1 — 11:55 AM
+3rd Grade: Wednesday, September 30 — 11:00 AM
+4th Grade: Tuesday, September 29 — 11:20 AM
+
+On your child's assigned day, their “Grand” is invited to join them for lunch at school.
+
+Please keep the following in mind:
+
+Adults will not be able to purchase a school lunch, so they will need to bring lunch for themselves and their student, if they choose.
+Following lunch, adults and students can head directly to the library to shop the Book Fair together.
+We encourage students to invite someone special who they consider “Grand” to share this fun experience with them!
+
+We look forward to welcoming our special guests to Woodrow and making Grand's Week a memorable week for our Little Cats! 💙
+
+Thank you for helping us make this such a special tradition!
+

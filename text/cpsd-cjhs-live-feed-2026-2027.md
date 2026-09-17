@@ -660,3 +660,126 @@ Congratulations to 8th & 9th grade volleyball for winning tonight against Bryant
 9th grade is now 2-0 in conference after a win last week against Benton! 
 9th grade is wearing gold ribbon supporting their friend, Emmersyn Caldwell, in support of her battle against cancer! We love our former teammate and our thinking of her in this fight! 🤍
 
+### 2026-09-10 · Conway Junior High (id 13084870)
+
+🎉 Hispanic Heritage Community Night! 🎉
+
+Join Conway High School and Conway Junior High School on September 20 from 4:00–6:00 PM as we come together to celebrate our Hispanic students, families, and community! ❤️💙
+
+The evening will include student video celebrations and artwork, college representatives, counselor Q&A, campus tours, and information about resources available to students and families.
+
+📍 Conway High School Cafeteria
+📅 September 20, 2026
+⏰ 4:00–6:00 PM
+
+Everyone is welcome! We hope to see you there! 🎉
+
+### 2026-09-10 · Marcus Kordsmeier (id 13079547)
+
+WAMPUS CAT GOLF
+SEPTEMBER 3RD  & SEPTEMBER 9TH  RESULTS
+
+Another busy couple of days of competition for Wampus Cat Golf! Our teams competed in the Benton Invitational at Longhills Golf Course and the NLR Invitational at Burns Park. 
+
+Proud of the way our boys and girls continue to compete, battle through challenging courses, and represent Conway High School!
+
+Keep putting in the work!
+#CompeteEveryDay
+
+### 2026-09-11 · Jennifer Dozler (id 13089911)
+
+Good Morning
+Due to Weather we will be releasing students inside 5 minutes early. Teachers this means you are able to leave 5 minutes earlier than the required time to be here this afternoon. 
+Any questions please see an admin
+
+### 2026-09-11 · Marquis Rogers (id 13101692)
+
+Staff,
+
+First, I apologize for not communicating with you before the district's message was sent. I want to provide a few additional details for clarity and peace of mind.
+
+A student stated that he had a firearm in class. The student and his belongings were immediately searched, and no weapon was found. The student has been disciplined in accordance with Board Policies 4.30 and 4.31, and the matter has been turned over to law enforcement.
+
+Thank you for your continued commitment to the safety of our students and staff.
+
+Mr. Rogers
+
+### 2026-09-14 · Conway Junior High (id 13083076)
+
+Dear Parents and Students,
+We hope you have a great week! Here are the important updates and announcements for the upcoming week.
+
+Link to Announcements: 
+
+https://docs.google.com/document/d/1Od7p7r2ZqXVPTas6D62umJI99XyOCKWtUDlOlNcyL1Q/edit?usp=sharing
+
+### 2026-09-14 · Conway Junior High (id 13101658)
+
+📸 Picture Day is coming to CJHS!
+
+It's time to smile, Wampus Cats! We're excited to capture those school-year memories with our students.
+
+📅 8th Grade: September 15
+📅 9th Grade: September 16
+
+Mark your calendars and come ready to smile! 📸💙
+
+### 2026-09-14 · Conway Junior High (id 13101574)
+
+📅 Week at a Glance!
+
+Here's what's happening around CJHS the week of September 14–18! We have a busy week of golf, tennis, volleyball, and football. 🏌️‍♂️🎾🏐🏈
+
+Good luck to all of our Wampus Cats competing this week! Go Wampus Cats! 💙
+
+### 2026-09-15 · Conway Public Schools (id 13115104)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Marquis Rogers (id 13129759)
+
+Staff,
+
+As we continue with school pictures, please be aware that some classes may arrive late to the following period. Certain groups may take longer than anticipated as we work through the process.
+
+Please extend grace to students who arrive late because of pictures. Thank you for your patience and flexibility.
+
+### 2026-09-15 · Conway Public Schools (id 13116442)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-15 · Marcus Kordsmeier (id 13131704)
+
+WAMPUS CAT GOLF — RESULTS
+
+The Wampus Cats took on a strong field at the Little Rock Catholic High Invitational at Rebsamen Park Golf Course
+
+Our golfers put together a solid day on the course competing throughout the round and putting their hard work into action.
+
+Proud of our golfers and the way they continue to compete and represent Conway High School!
+#CompeteEveryDay
+
+### 2026-09-15 · Cheyenne Kuhn (id 13112596)
+
+Congratulations to the CJHS volleyball players of the week! We’re so proud of their hard work and leadership! 💙🏐🏆 Good job girls!
+
+### 2026-09-16 · Conway Public Schools (id 13033461)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-17 · Conway Public Schools (id 13158251)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+

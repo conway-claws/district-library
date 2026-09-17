@@ -373,3 +373,44 @@ Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our 
 
 #WeAreWampusCats #TeamConway #ChampionsForKid
 
+### 2026-09-11 · Conway Public Schools (id 13091308)
+
+This week we had honor to celebrate 7th grader Skylar Hampton and Mr. Kevin DeStefano from Ruth Doyle Middle School as our District Student & Teacher of the Month for the month of September at our September school board meeting! Listen in to all the wonderful things their peers and staff had to say about them! They are the true definition of what it means to be a Wampus Cat!! Congratulations Skylar and Mr. D!! 
+
+Skylar was also featured on the radio this week with JR and TriArk Radio. For more updates from around the district, tune it on Wednesday mornings at 7:30 to KAT Country 98.9 / 92.5, My Country Y107, and BIG 92.7.
+
+#TeamConway #WampusCats #WeareConway #6legs4life
+
+### 2026-09-15 · Conway Public Schools (id 13115083)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Conway Public Schools (id 13115908)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-16 · Conway Public Schools (id 13144334)
+
+If you've got the radio on This morning at 7:30, tune into KAT Country 98.9 / 92.5 FM & AM 800
+ BIG 92.7 or My Country Y107 to hear from our District Employee of the Year Mr. Tony McCoy from Ellen Smith Elementary!
+
+### 2026-09-16 · Conway Public Schools (id 13033441)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-17 · Conway Public Schools (id 13158233)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+

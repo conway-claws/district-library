@@ -345,3 +345,53 @@ Congratulations to Mr. Travis Jackson, recognized as Courtway’s Employee of th
 
 A special thank you to Misty Givens Agency, LLC – Horace Mann Insurance for recognizing and celebrating our outstanding employees. We truly appreciate your support! 👏🏽💙
 
+### 2026-09-11 · Courtway Middle School (id 13098657)
+
+Mrs. Jensen’s class used pipe cleaners to create characters for their short stories while reviewing elements of plot and characterization. Such a fun way to bring their stories to life! 📚✏️
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-09-14 · Courtway Middle School (id 13100723)
+
+Mrs. Wicker’s students worked together to identify subjects and predicates, then used them to build complete sentences. A little teamwork and a lot of grammar practice happening in class! ✏️📚
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Conway Public Schools (id 13115095)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Conway Public Schools (id 13116436)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-16 · Conway Public Schools (id 13033456)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-16 · Courtway Middle School (id 13153659)
+
+Picture Day has been rescheduled! 📸 Courtway Picture Day will now be Friday, October 2. Mark your calendars and come ready to shine! 💙
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-09-17 · Conway Public Schools (id 13158247)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+
+### 2026-09-17 · Courtway Middle School (id 13159380)
+
+Progress reports went home with students yesterday, September 16.
+

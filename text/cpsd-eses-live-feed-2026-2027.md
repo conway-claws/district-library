@@ -275,3 +275,70 @@ Congratulations to Ms. Walter for being named the Ellen Smith Staff Member of th
 
 We are so thankful for the positivity, dedication, and care you bring to our students and staff each day. You make Ellen Smith a better place, and we are lucky to have you on our team! Thank you to Misty Givens and Sonic for the goodies to celebrate our winner for the month!
 
+### 2026-09-10 · Ellen Smith Elementary (id 13085239)
+
+☕📚 READING REWARDS ARE BREWING! 📚☕
+
+Our first round of Starbooks Reading Cards are due in just ONE WEEK! ⭐
+
+Students, keep reading and working toward those goals! All completed reading cards must be turned in to the library by:
+
+📅 Thursday, September 17
+
+Students who meet their reading goal and turn in their card by the deadline will earn an invitation to our first:
+
+☕⭐ STARBOOKS CAFÉ ⭐☕
+📅 Tuesday, September 22
+
+A HUGE thank you to Dr. Brock King for sponsoring our September Starbooks Café and helping us celebrate our Little Cats who are reaching their reading goals! ❤️📚
+
+Keep reading, Little Cats! Your Starbooks treat is almost here! ☕📖⭐
+
+### 2026-09-11 · Matthew Coatney (id 13093476)
+
+📚🌧️ Students enjoying a good book read by Ms. Davis on this rainy morning!
+
+### 2026-09-11 · Ellen Smith Elementary (id 13102284)
+
+Tshirt orders are now closed. Thank you to those that have ordered!
+
+### 2026-09-14 · Ellen Smith Elementary (id 13112955)
+
+We can't wait to see you all tomorrow night, at our Showcase at the Park, 5:30-7:00.  Learn about clubs, upcoming events, and meet other families. Free hot dogs and chips, while they last.  Kona Ice and raffles for purchase.
+
+### 2026-09-14 · Ellen Smith Elementary (id 13114952)
+
+Tonight is our first Ellen Smith PTO meeting.  Join us in the cafeteria at 6pm to make some amazing plans for the 26-27 school year for our teachers and students.
+
+### 2026-09-15 · Conway Public Schools (id 13115092)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Conway Public Schools (id 13116433)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-15 · Matthew Coatney (id 13140281)
+
+We are ready to see everyone tonight and show you all the clubs we have going on this year! We are working away on getting the hot dogs ready!
+
+### 2026-09-16 · Conway Public Schools (id 13033452)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-17 · Conway Public Schools (id 13158243)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+

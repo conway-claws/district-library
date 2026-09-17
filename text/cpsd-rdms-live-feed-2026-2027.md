@@ -534,3 +534,144 @@ Bring a parent or guardian to our FINAL trip meeting to learn everything about t
 
 🙋‍♂️🙋‍♀️Have questions now? Email Angela Rogers: rogersa@conwayschools.info
 
+### 2026-09-10 · Rachel Fowler (id 13082726)
+
+When I Dip, You Dip, We Dip!
+
+🥳Our amazing RDMS staff enjoyed Dip Day today! 
+
+🍕To top it off, Maverick pizza was provided for everyone. 
+
+🎉Big thanks to everyone who made this happen—especially our RDMS Connection Crew!
+
+### 2026-09-11 · Rachel Fowler (id 13087780)
+
+🕯️ Today, Ruth Doyle Middle School pauses to honor the lives lost, the first responders who showed incredible bravery, and the resilience of communities across the nation. We teach our students the importance of compassion, unity, and service — values that they can carry forward every day.
+
+🇺🇸 #NeverForget
+
+### 2026-09-11 · Conway Public Schools Athletics (id 13096344)
+
+Ruth Doyle Football Players Of The Week 
+
+Bennett Paladino
+Jack Martin
+Cooper Dunlap
+Seven Reed
+
+### 2026-09-11 · Rachel Fowler (id 13099174)
+
+🏆Congratulations to Mr. DeStefano for being chosen as the Conway School District’s Teacher of the Month! 
+
+📚 Mr. D’s dedication, creativity, and commitment to students make Ruth Doyle Middle School and Conway School District stronger every day. He makes learning exciting and fun!
+
+🎉Congratulations Mr. D!!
+
+### 2026-09-11 · Rachel Fowler (id 13103844)
+
+🎉🎉Mr. Jason Campbell has been selected to participate in the Arkansas Excellence in Teaching Fellowship Program. After a highly competitive application process, he was one of only 30 teachers, and the only one in Faulkner County, chosen to participate.
+
+This fellowship program recognizes highest-performing educators, builds statewide peer connections, provides virtual convenings to advance professional practice, and elevates teacher voices.
+
+🎈🎈Ruth Doyle Middle School is so excited to congratulate Mr. Campbell on this well-deserved honor!!
+
+#WeAreRDMS #TeamConway #BeTheBest
+
+### 2026-09-13 · Conway Athletics (id 13109911)
+
+Ruth Doyle volleyball girls having fun during “Jersey ” day practice.
+
+### 2026-09-13 · Conway Athletics (id 13100683)
+
+Ruth Doyle Volleyball athletes of the week are Allison Nash, Harlee Fournier, and Jewels Strain-Mahar.
+
+### 2026-09-14 · Rachel Fowler (id 13112736)
+
+🌟 Looking for an unforgettable spring break for your 6th or 7th grader? 
+
+Ruth Doyle Middle School is heading to Washington, D.C., Williamsburg, and Jamestown — history, friendship, and adventure await! 
+
+Bring a parent or guardian to our FINAL trip meeting to learn everything about the itinerary, ask questions, and find out how to sign up. This is the last scheduled informational meeting — don’t miss it! 
+
+📅When: Tuesday, September 15
+🕕 Time: 6:00 PM
+📍Where: RDMS Cafeteria
+
+🙋‍♂️🙋‍♀️Have questions now? Email Angela Rogers: rogers@conwayschools.info
+
+### 2026-09-15 · Conway Public Schools (id 13115096)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Conway Public Schools (id 13116437)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-15 · Rachel Fowler (id 13137466)
+
+Meet our September STAR Player: Ms. Starr🌟
+
+She works tirelessly to help spread good vibes around the building and support the RDMS team!! Her dedication and heart make RDMS a better place daily!!
+
+We are so excited to congratulate Ms. Starr for being the September STAR player!!
+
+### 2026-09-16 · Rachel Fowler (id 13149487)
+
+Curious how classrooms turn math into teamwork? 🤔 
+
+
+💯In Mrs. Dacus’s room, WIN students are practicing writing equations to clear a 100 board — building number sense, connecting equations to problem-solving strategies, and supporting one another every step of the way. 
+
+
+👏 We love their persistence and excitement! 💡
+
+### 2026-09-16 · Conway Public Schools (id 13033457)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-16 · Rachel Fowler (id 13148755)
+
+📣 Reminder: The deadline to turn in free & reduced lunch forms is September 28! 📅
+
+📃📃You can send the completed paper form back to school with your student or complete it digitally on the district website. 
+
+If you have questions or need help, you can contact the RDMS Food Services Manager, Mrs. Mary McKim at (501)450-6675
+
+### 2026-09-17 · Conway Public Schools (id 13158248)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+
+### 2026-09-17 · Rachel Fowler (id 13160324)
+
+Dear 7th Grade Students and Families,
+
+Congratulations to our 7th grade class for demonstrating excellent hallway behavior last week! As a reward, students have earned Pajama Day this Friday, September 18.
+
+Please note:
+Students may wear pajamas to school on Friday.
+The school dress code still applies — outfits should remain school-appropriate.
+
+We're proud of the positive choices students made and encourage them to continue displaying respectful behavior throughout the school.
+
+### 2026-09-17 · Rachel Fowler (id 13160439)
+
+🐾 Caring Cats & WIN Time! 🐾
+
+Caring Cats and WIN time had a fun and productive afternoon! They practiced following a visual recipe to make delicious peanut butter and jelly snacks. 🥜🍓🍞
+
+After enjoying their snacks, they wrapped up their time with game time, giving them a chance to socialize, practice communication, take turns, and simply enjoy spending time together! 🎲😊
+
+What a great way to learn, connect, and have fun! ❤️🐾
+

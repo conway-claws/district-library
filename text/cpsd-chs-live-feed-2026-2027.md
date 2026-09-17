@@ -1476,3 +1476,307 @@ We are so proud of our students for demonstrating leadership, service, and cultu
 
 #ConwayHighSchool #WampusCats #HispanicHeritage #ElGrito #CommunityService
 
+### 2026-09-10 · Conway High School (id 13078177)
+
+🎶📜 Mrs. Casey Griffith’s UACCM Intro to Oral Communication classes explored the communication concept that language is dynamic by creating Pop Sonnets!
+
+Students chose a modern pop song and turned it into a Shakespearean sonnet! They then presented their new Pop Sonnet to their class, who tried to guess the modern pop song that inspired it. 🎤🎭
+
+The results were fabulous, creative, and a wonderful demonstration of how language can evolve while still following the structure and traditions of the past!
+
+#ConwayHighSchool #WampusCats #OralCommunication #UACCM  #CreativeLearning
+
+### 2026-09-10 · Conway High School (id 13082725)
+
+📚 Get your yearbooks now at their lowest price!
+
+Your Conway High School yearbook is currently just $55 — but don’t wait! This special offer ends October 16, 2026.
+
+Hurry up before the sale ends and make sure you get your memories in print! 📸💙🤍
+
+🛒 Order your yearbook here: https://www.jostens.com/apps/store/customer/1002194/Conway-High-School/
+
+#ConwayHighSchool #WampusCats #CHSYearbook
+
+### 2026-09-10 · Conway Athletics (id 13087449)
+
+CHS Men's tennis improved to 4-0 on the season by defeating the defending state champs PA on Thursday!  We have upcoming home matches next Tuesday, Wednesday, and Thursday next week at Conway Tennis Center if you want to catch them in action!  GO CATS!!!!!
+
+### 2026-09-11 · Conway High School (id 13082620)
+
+🌎 Celebrating Language, Culture & Biliteracy! 🎉
+
+As we look ahead to Hispanic Heritage Month, we’re proud to spotlight the students who are celebrating Hispanic culture while building their skills in the Spanish language!
+
+Last Wednesday, members of our Spanish Club and Seal of Biliteracy program represented these opportunities at the CHS Club Fair, sharing their enthusiasm for language, culture, and the many benefits of becoming bilingual and biliterate. ❤️👏
+
+The Seal of Biliteracy recognizes students who demonstrate proficiency in two or more languages—an accomplishment that celebrates both academic achievement and the value of multilingualism.
+
+We’re excited to celebrate our Spanish Club students and all of our students who are embracing the Spanish language and the cultures connected to it! 🇪🇸🌎
+
+#HispanicHeritageMonth #SpanishClub #SealOfBiliteracy #CHS #WampusCats
+
+### 2026-09-11 · Conway High School (id 13091230)
+
+Today, we pause to remember September 11, 2001, and the nearly 3,000 lives lost that day. We honor the victims, the families who continue to carry their memory, and the first responders and everyday heroes who stepped forward in the days that followed.
+
+On Patriot Day, we remember the courage, compassion, and unity that emerged from one of our nation’s darkest days.
+
+We remember. We honor. We will never forget.
+
+### 2026-09-11 · Conway Athletics (id 13093761)
+
+Cross Country travels to OBU for meet on Sept. 12th
+
+### 2026-09-11 · Marcelle Goins (id 13094361)
+
+The Wampus Cats will be traveling to Marion tonight! We would live to see you in the stands supporting our student athletes. If you you can't make it, please support by using the link below! 
+
+🔗 https://youtube.com/live/HDbwN9xCPcA?feature=share
+
+### 2026-09-11 · Trent Eskola (id 13063864)
+
+🚾 THE 2027 CONWAY SOCCER SCHEDULE IS HERE! 🐾
+
+The road to May starts now. From conference battles to tough non-conference matchups and tournament play, the Conway Soccer Programs are ready for another season of competing, growing, and representing the blue and white.
+
+#conwaysoccer #wampuscats #ladycats
+
+### 2026-09-11 · Conway High School (id 13078366)
+
+🩸 Give Blood. Give Hope. Save Lives. 🩸
+
+Conway High School’s Blood Drive is open to the community, and community donors are encouraged to participate!
+
+📅 Friday, September 25
+⏰ 8:30 a.m.–2:30 p.m.
+📍 Culinary Arts/Medical Professional Building — Room 8117
+
+Did you know?
+
+❤️ Every 2 seconds, someone in the United States needs blood.
+❤️ Only about 3% of eligible Americans donate blood each year.
+❤️ A single car accident victim may require up to 100 units of blood.
+
+And because blood and platelets cannot be manufactured, our community depends on generous donors to keep the supply available.
+
+🩸 Red blood cells can be stored for up to 42 days.
+🩸 Platelets last only 5 days, making a constant supply essential.
+🩸 Plasma can be frozen and stored for up to 1 year.
+
+If you’re eligible, consider rolling up your sleeve and helping save a life! Donors will receive a Fang-tastic T-shirt and more, while supplies last. Photo ID is required.
+
+👉 Schedule your donation: 
+
+https://www.yourbloodinstitute.org/donor/schedules/drive_schedule/691440
+
+#CHS #BloodDrive#CommunityStrong #WampusCats
+
+### 2026-09-11 · Conway High School (id 13096275)
+
+We are excited to invite our Conway Junior High and Conway High School students, families, and community to join us for a special evening celebrating Hispanic culture, heritage, and our amazing students!
+
+📅 Sunday, September 20, 2026
+⏰ 4:00 to 6:00 p.m.
+📍 Conway High School Cafeteria
+
+JOIN US FOR:
+
+🎥 STUDENT VIDEO CELEBRATION
+Watch a special video celebrating our Hispanic junior high and high school students.
+
+🎨 STUDENT ARTWORK
+View beautiful artwork created by our students that celebrates Hispanic culture, heritage, and identity.
+
+🎓 COLLEGE REPRESENTATIVES
+Meet college representatives and learn about opportunities available after high school.
+
+💬 COUNSELOR Q&A
+Visit with high school counselors to ask questions about graduation, credits, and planning for the future.
+
+🏫 CAMPUS TOURS & RESOURCES
+Tour our high school campus and learn more about the resources and opportunities available to our students and families.
+
+Everyone is welcome! Come celebrate our students, connect with other families, and learn more about the opportunities available to our students.
+
+¡Esperamos verlos! ❤️
+
+#HispanicHeritageMonth #HispanicHeritage #ConwayPublicSchools #ConwayHighSchool #ConwayJuniorHigh
+
+### 2026-09-11 · Six-leg media (id 13103896)
+
+It’s Friday night, and the Wampus Cats are getting ready to take on the Marion Patriots!
+
+Six-Leg Media caught up with Coach Buck James ahead of tonight’s matchup. Student reporter Abby Slay and Coach James break down last week’s game against Bentonville and look ahead to what the Wampus Cats can expect from Marion.
+
+Hear Coach James’ thoughts on tonight’s matchup and what the Wampus Cats will need to do to come away with the win!
+
+Check out the full interview at the link below!
+
+https://youtu.be/lQwc2LxnQHE
+
+### 2026-09-13 · Conway Athletics (id 13111419)
+
+Conway Cross competed at the Bob Gravette Invitational at Ouachita Baptist University. Senior High boys took 2nd place with Raven Fuller being in the top 5. Senior High Girls took 3rd place with 3 top 10 finalists in Ellie ONeal, Ava ONeal, and Thea Schwab. Jr. Boys took 6th place with Finn Counts being in the top 10.
+
+### 2026-09-14 · Conway High School (id 13062999)
+
+🎓 Senior Parent Night is tomorrow!
+
+Seniors and their parents/guardians are invited to Senior Parent Night on Tuesday, September 15, 2026, at Conway High School.
+
+📍 CHS Cafeteria
+🕠 5:30 PM: Arrive early to visit with local colleges in the CHS Main Building Lobby
+🕕 6:00 PM: Presentations begin
+
+Breakout sessions will cover important topics including:
+• College Selection & Admissions
+• Financial Aid (State & Federal)
+• Military Educational Benefits
+
+Join us for an evening of helpful information and resources as we prepare our seniors for life after high school! 🎓🐾
+
+### 2026-09-14 · Conway Athletics (id 13080419)
+
+Below you will find the ticket link for today's Simon/Stuart FB games at Bryant. 
+
+https://gofan.co/event/6829519?schoolId=AR4648
+
+### 2026-09-14 · Conway High School (id 13099727)
+
+Students in Club America gathered recently for their first meeting of the year to fellowship and honor the life and legacy of the founder of the club, Charlie Kirk. Also honored were the lives tragically lost on September 11th.
+
+### 2026-09-14 · Conway Athletics (id 13123603)
+
+Wrestling Parent Meeting will be Oct. 1 at 6pm for the up coming season.
+
+### 2026-09-15 · Conway Athletics (id 13128049)
+
+CHS tennis had a hard fought match against a great LR Central team yesterday!  The girls prevailed 3-1 and remain unbeaten in conference while the boys had their first loss 1-3.  Another great match at HOME today at 3:30 against LRCA!  GO CATS!
+
+### 2026-09-15 · Conway Public Schools (id 13115107)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Canaan Groesbeck (id 13076597)
+
+Home game tonight for our Lady Cats vs Van Buren! Good luck, ladies!! 
+
+Ticket Link: https://gofan.co/event/6687661?schoolId=AR4663
+
+Live Stream Link: https://www.youtube.com/live/1mSn_asuP1U
+
+### 2026-09-15 · Conway High School (id 13130863)
+
+🏐 CONWAY vs. CENTRAL VOLLEYBALL — GAME DAY INFORMATION
+
+If you’re planning to attend the Conway vs. Central volleyball game, please make note of the following important information:
+
+🎟️ Tickets
+• Tickets must be purchased online only — NO CASH SALES.
+• Purchase tickets at GoFan.co using https://gofan.co/event/6852814?schoolId=AR4663
+• Tickets must be purchased by 7:00 p.m. on game day.
+
+👜 Clear Bag Policy
+• A clear bag policy is in effect for the stadium.
+• No purses larger than a clutch will be permitted inside.
+
+🪪 Student Entry Requirements
+• All students must have a school ID badge AND an online ticket to enter.
+• Students may also enter if accompanied by a responsible adult age 21 or older.
+• A school administrator may also be present at the gate to verify that the student is enrolled at their school.
+
+🚫 Important Attendance Policy
+• Only students from Conway High School and Central High School may attend the game. Students from all other schools will NOT be permitted to enter.
+
+🥤 No Outside Food or Drinks
+• Outside food and drinks are not permitted inside the stadium.
+
+Thank you for helping us make game day safe, and enjoyable for everyone! 🏐💙🤍
+
+### 2026-09-15 · Conway Public Schools (id 13116444)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-15 · Conway High School (id 13133914)
+
+🦸‍♀️💻 Not all heroes wear capes. Some carry Chromebooks.
+
+Today is IT Professionals Day, and we’re celebrating Liz Duncan, our campus IT superhero! ⚡
+
+When technology goes down, devices misbehave, or something mysteriously stops working, Liz is ready to save the day—with a wealth of tech knowledge, a little patience, and a determination to figure it out. 🔧💻
+
+She may not wear a cape every day, but around CHS, we know she’s always ready for the next mission.
+
+💙🤍 Thank you, Ms. Duncan, for being our everyday technology hero!
+
+#ITProfessionalsDay#TechHero #WampusCats #WeAreCHS
+
+### 2026-09-16 · Conway Athletics (id 13144331)
+
+Both CHS tennis teams improved to 5-1 on the season with hard fought victories against LRCA in the heat yesterday!  Special thanks to Jimmy Johns for providing food before the match!  Big match Thursday 3:30 at home against Catholic/MSM!
+
+### 2026-09-16 · Conway Public Schools (id 13033467)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-16 · Conway High School (id 13154060)
+
+🎻🎶 A beautiful evening filled with music, community, and a little something sweet!
+
+CHS Orchestra students welcomed friends and families to the annual “Bach” to School Family Night last Friday evening in the CHS courtyard. With beautiful weather, great music, and delicious ice cream from Las Delicias, it was a wonderful night from beginning to end. 🍦✨
+
+But the best part? Bringing together our orchestra family from grades 6–12 across Conway and getting to enjoy an evening of music and fellowship together. 💙
+
+What a wonderful way to celebrate our students, our music, and our amazing orchestra community! 🎶
+
+#CHSOrchestra #BachToSchool #WampusCats #OrchestraFamily #MusicInOurSchools
+
+### 2026-09-16 · Conway Athletics (id 13154274)
+
+Your Conway Wampus Cat Cross Country took home two trophies from the Josh Park Memorial race in Heber Springs. Both Sr High teams took 1st. Jr High Boys took 2nd.
+
+### 2026-09-17 · Conway Athletics (id 13158144)
+
+Your Cross Country runners are Finn Counts and Ava ONeal! Congratulations to both.
+
+### 2026-09-17 · Conway Public Schools (id 13158255)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+
+### 2026-09-17 · Canaan Groesbeck (id 13094705)
+
+Game day for our Lady Cat Volleyball team! On the road against Little Rock Central. Let's go, Cats! 
+
+Ticket Link: 
+https://gofan.co/event/6852814?schoolId=AR4663
+
+### 2026-09-17 · Conway Athletics (id 13120625)
+
+Ticket information regarding JH Football @ Bryant. 
+
+ALL TICKETS must be purchased via smart phone prior to entering Hornet Stadium on game day. Tickets are $7.00, (NO CASH TICKETS)  AAA passes and Bryant District passes ONLY will allow for entrance to Hornet Stadium.  Please see the ticket link to BOTH games below...
+
+
+https://gofan.co/event/6829535?schoolId=AR4648
+
+### 2026-09-17 · Conway Athletics (id 13119591)
+
+Ticket information for tonight's volleyball games at LR Central. 
+
+Tickets can only be purchased on line (NO CASH) at GoFan.co or by using the QR code below.  This tickets must be bought by 7:00 on game day.  We have a clear bag policy for all bags.  No purses larger than a clutch may be brought inside the stadium.  All Students must have a School ID Badge and an online ticket to enter, or accompanied by a responsible adult of at least 21 years old, or a school administrator can be at the gate verifying that the student is one of their students.  No outside food or drink is permitted. NO STUDENTS FROM ANY OTHER SCHOOL WILL BE ALLOWED TO ATTEND THE GAME.
+
+LINK: https://gofan.co/event/6852814?schoolId=AR4660
+

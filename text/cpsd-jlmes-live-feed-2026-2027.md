@@ -530,3 +530,83 @@ Our 3rd graders spent their library time finding new adventures, practicing inde
 
 #JuliaLeeMoore #WeAreJLM #ThirdGrade #LoveOfReading
 
+### 2026-09-11 · Julia Lee Moore Elementary (id 13009729)
+
+Recess discoveries are the best kind of discoveries! 🐸🌿 These 4th graders made a new little friend on the playground and gathered around to check it out. Love seeing their curiosity and big smiles! ☀️🌳
+
+#JuliaLeeMoore #WeAreJLM #FourthGrade #RecessFun
+
+### 2026-09-14 · Julia Lee Moore Elementary (id 13009911)
+
+Marbles in motion! 🔮⚡ These 4th graders had a blast exploring energy and collisions hands-on. Nothing beats learning through play! 🎯💡
+
+#JuliaLeeMoore #WeAreJLM #FourthGrade #ScienceInAction
+
+### 2026-09-15 · Julia Lee Moore Elementary (id 13052452)
+
+Exploring the world around us, one sense at a time! 🔍✨ Our Kindergarteners had a blast rotating through hands-on activities to start their first Arts & Letters unit on the 5 Senses! 🖐️👀
+
+#JuliaLeeMoore #WeAreJLM #Kindergarten #FiveSenses
+
+### 2026-09-15 · Conway Public Schools (id 13115091)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Conway Public Schools (id 13116432)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-15 · Julia Lee Moore Elementary (id 13137520)
+
+🎬Our students have a special message for you! 👇
+
+https://drive.google.com/file/d/1AV6e4ZONWwLx-1_mD-SaqEvrQ5syD9YG/view?usp=sharing
+
+Mark your calendars! The JLM Fall Festival is happening Friday, October 9th, from 4:00 PM until dark, and we need your help to make it a blast!
+
+We’re currently collecting donations and would love your support. We are looking for:
+
+🍬 Bags of individually wrapped candy
+🥤 2-Liter drinks
+🧸 Small toys (Amazon wish list coming soon!)
+
+Send any donations to school with your student—the Candy Monster will be outside ready to gobble up all those sweet treats! 👾🍬
+
+Thank you for supporting our school! We can't wait to see everyone there!
+
+### 2026-09-16 · Julia Lee Moore Elementary (id 13076625)
+
+We wrapped up our Arts & Letters lessons by becoming artists ourselves! 🎨🍂 After observing, comparing, and contrasting different works of art, second grade created their own fall-inspired artwork to show how the world changes with the seasons. They used Q-tips and paint to add rich fall colors and details to their trees. Look at our artists at work! 🍁🖌️
+
+#JuliaLeeMoore #WeAreJLM #SecondGrade #HandsOnLearning
+
+### 2026-09-16 · Conway Public Schools (id 13033451)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-16 · Julia Lee Moore Elementary (id 13134087)
+
+JLM choir practice is cancelled for this Thursday, September 17th. Please make arrangements for a regular dismissal. Thank you!
+
+### 2026-09-17 · Julia Lee Moore Elementary (id 13076795)
+
+Our fourth grade students mastered the idiom "ace in the sleeve" today by discovering how it means keeping a secret advantage saved for the right moment. 🃏✨ They had a blast practicing their new vocabulary and showing off how to use the phrase correctly in their own creative writing! 📝💡
+
+#JuliaLeeMoore #WeAreJLM #FourthGrade #VocabularyInAction
+
+### 2026-09-17 · Conway Public Schools (id 13158242)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+

@@ -236,3 +236,79 @@ Happy Labor Day, Conway! Today we celebrate the dedication and hard work of our 
 
 #WeAreWampusCats #TeamConway #ChampionsForKid
 
+### 2026-09-14 · Sallie Cone Preschool (id 13110383)
+
+Hey my name is Sydney Stanisch, Ms. S, for the students. I’m very excited to be part of Sallie Cone Preschool team. This is my first year with CPSD. I am one of the Movement Paraprofessionals. I am going to school at UACCM for Early Childhood Education. It is such a joy teaching your babies everyday!
+
+### 2026-09-14 · Sallie Cone Preschool (id 13110401)
+
+Hi! I’m Mrs. Heath, and this is my fifth year at Sallie Cone Preschool, but my first year as a Lead Teacher! I absolutely love Pre-K and getting to watch children learn, grow, and discover new things each day.
+
+Outside of the classroom, I have been with my husband for 16 years. We have a 15-year-old daughter and two sweet foster babies who keep our family busy and our hearts full. I’m so excited for this new chapter and look forward to a wonderful year of learning, growing, and making memories with my students! ❤️
+
+### 2026-09-14 · Sallie Cone Preschool (id 13112347)
+
+I’m Anna Holstead, and I’m so happy to be back at Sallie Cone this year! After taking the last two years to stay home with my daughter, I’m returning for my 12th year in Pre-K leading a right brain classroom. Outside of school, I love camping with my family and friends, trying new crafts, and getting lost in a good book on my Kindle. I’m looking forward to a fantastic school year ahead!
+
+### 2026-09-14 · Sallie Cone Preschool (id 13124207)
+
+Welcome to one of our Lead Teachers here at Sallie Cone!
+This year marks my 20th year in education, and I am thrilled to return to PreK, where it all begins. As an educator, I love seeing students grow as they build a strong foundation for learning and confidence; watching them succeed is an exciting experience. I look forward to teaching our littlest cats and inspiring their joy for learning. Outside the classroom, I enjoy creating memories with my three children, traveling, and reading. I am grateful to start this next chapter at Conway schools with our youngest learners!
+
+### 2026-09-15 · Conway Public Schools (id 13115084)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Conway Public Schools (id 13116425)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-15 · Sallie Cone Preschool (id 13140124)
+
+Meet one of our new Paraprofessionals Mr. Horn! 
+I’m so excited to be spending my first year in education at Sallie Cone as a paraprofessional in left brain! 
+I’m currently in my graduate program for special education and I take so much pride in meeting all students where they are at so they can be successful. 
+Outside of the classroom, I love art, music, cycling, fishing with my wife, and anything else I can do with my hands. It’s going to be a great school year!
+
+### 2026-09-16 · Sallie Cone Preschool (id 13143920)
+
+Mr. Johnson is in his fourth year serving as an Assistant Principal. He previously served as Dean of Students/Assistant Principal at Conway Junior High School and Assistant Principal at Preston and Florence Mattison Elementary. Prior to his leadership roles, he spent ten years teaching middle school English Language Arts and Social Studies at Bob & Betty Courtway Middle School. 
+
+Mr. Johnson is excited to join Sallie Cone as the new Assistant Principal.
+
+Outside of education, he enjoys spending time with his two kids, Kaleb and Kynlei, traveling around the world, and collecting various shoes. He’s the proud owner of Shoe Junky Fitness, where he helps individuals achieve their health and fitness Mr. Johnson has a passion for serving students and believes that every child can learn regardless of their circumstances. One of his favorite quotes is, “Students don't care how much you know until they know how much you care."
+
+goals.
+
+### 2026-09-16 · Conway Public Schools (id 13033442)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-16 · Sallie Cone Preschool (id 13156170)
+
+Welcome our Principal Dr. Martin!!
+
+Dr. Marci Martin brings more than 20 years of educational experience to her role as Principal. Throughout her career, she has served as an elementary classroom teacher for 13 years, an instructional facilitator for 6 years, and an assistant principal for the past 2 years.
+
+A proud Conway native, Dr. Martin is a lifelong product of Conway Public Schools, having attended Conway schools from kindergarten through twelfth grade. Fun fact… she attended Sallie Cone Elementary– Kindergarten- Fifth grade!
+
+Dr. Martin earned a Bachelor’s degree in P–4 Early Childhood Education, a Master’s degree in Gifted and Talented Education, and a Doctorate in Educational Leadership.
+
+Dr. Martin is married to Gerard Martin, a counselor at Conway High School. Together, they are the proud parents of two daughters, Ella and Ava.
+
+### 2026-09-17 · Conway Public Schools (id 13158234)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+

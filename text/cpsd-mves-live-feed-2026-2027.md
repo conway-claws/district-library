@@ -738,3 +738,160 @@ We love seeing our students  wonder, investigate, and make sense of the world ar
 
 We are excited to celebrate Coach Jana Hedgecock  and Deanna Taylor 💙⭐ Thank you
 
+### 2026-09-10 · Audrey Cooper (id 13079628)
+
+🍎✨ Kindergarten is off to a GREAT start at Marguerite Vann!✨🍎
+
+Our kindergarten students have been busy learning, growing, and having fun along the way! 💙🐾
+
+👯 Twinning with their teachers
+🔢 Building number identification and one-to-one correspondence skills
+👀👂 Exploring their senses through Arts & Letters
+✏️ Strengthening writing skills—even by writing on their bellies!
+
+We love seeing our youngest learners engaged in meaningful, hands-on learning. Keep up the great work, kindergarten! 🌟
+
+#WeAreMVE#LevelUp
+
+### 2026-09-10 · Audrey Cooper (id 13073345)
+
+🐾💙 Our FIRST PAWSITIVE Office Referral! 💙🐾
+
+We are so excited to celebrate one of our amazing 4th grade students for receiving Marguerite Vann’s very first PAWSITIVE Office Referral!🎉⭐
+
+PAWSITIVE Office Referrals give our teachers an opportunity to recognize students who are going above and beyond by demonstrating the character, effort, and behaviors we want to see throughout our school.
+
+Instead of being called to the office because something went wrong, these students will be recognized  because they were caught doing something RIGHT! 🐾👏
+
+We can’t wait to see many more PAWSITIVE referrals coming to the office this year.  💙🐾⭐
+
+### 2026-09-11 · Audrey Cooper (id 13089372)
+
+🔤✏️ Learning Through Play!
+
+Students in  Mrs. Payne’s class  are busy practicing their letters! They are building important early literacy skills as they work on letter recognition, formation, and sounds. 🌟
+
+Over in  Mrs. Decesaro’s class, students are learning through hands-on exploration with  sensory tubs! These engaging activities give our little learners opportunities to explore, create, and strengthen important fine-motor skills. 🙌✨
+
+We love seeing our students learn, explore, and grow! 💙📚
+
+#WeAreMVE#LevelUp
+
+### 2026-09-12 · Audrey Cooper (id 13107751)
+
+📚🎮 The Book Fair has arrived at Vann! 🎮📚
+
+The Scholastic Book Fair is here, and we’re getting everything ready for our Little Cats to level up their reading! Students will have opportunities to shop during the school day, and we’re also looking forward to our special Loved Ones on the Lawn event.
+
+Check out the flyer for more information, and scan the QR code to learn more about the fair or set up an eWallet.
+
+We can’t wait to see what books our Little Cats choose! 📖✨
+
+#WeAreMVE
+
+### 2026-09-13 · Audrey Cooper (id 13107775)
+
+📚🎮 The Book Fair has arrived at Vann! 🎮📚
+
+The Scholastic Book Fair was delivered, and we're getting everything ready for our Little Cats! The fair will be open September 14–22, and students may shop during their library class or at the beginning and end of the school day.
+
+🌟 Loved Ones on the Lawn — Friday, September 18 from 1:00–2:00 PM
+Come shop the Book Fair with your favorite Vann student!
+
+Want to get a head start? Visit our Book Fair website to learn more or set up an eWallet:
+https://www.scholastic.com/bf/margueritevannelemschool
+
+We can't wait to level up our reading at the Vann Book Fair! 📖✨
+
+### 2026-09-14 · Audrey Cooper (id 13108140)
+
+🌎💧💨 Science in Action!
+
+Our 2nd grade students have spent the last few weeks making predictions about how wind and water can change landforms. Through hands-on investigations in our science lab, they put those predictions to the test!
+
+Students discovered that heavy water can quickly move materials like dirt, mulch, gravel, and sand, while wind often causes changes more gradually over time.
+
+We love seeing our students predict, investigate, observe, and use evidence to explain their thinking. Science truly comes alive when students get to experience it firsthand! 🔬🧪
+
+#WeAreMVE
+
+### 2026-09-14 · Audrey Cooper (id 13110751)
+
+🍂 REMINDER: Loved Ones on the Lawn! 🍂
+
+We are looking forward to a special afternoon with our Vann families! 💙🐾 Students are invited to bring a loved one and enjoy a sweet treat, smiles, laughter, and time together on the front lawn!
+
+📅 Friday, September 18
+⏰ 1:00–2:00 p.m.
+📍 Marguerite Vann Elementary Front Lawn
+🪑 Lawn chairs are encouraged!
+
+❤️ Don't forget to RSVP!* The deadline is Thursday, September 17 at 12:00 p.m.
+
+We can't wait to make some sweet memories with our Vann families! 🍪🧁🍁
+
+#LovedOnesOnTheLawn #MargueriteVannElementary #VannFamily #MakingMemories
+
+### 2026-09-15 · Conway Public Schools (id 13115094)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Conway Public Schools (id 13116435)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-15 · Audrey Cooper (id 13137483)
+
+🍦 Every Day Counts at MVE!
+
+Our September Attendance Board is filling up! Each day that a class meets our attendance goal, they get one scoop closer to a sweet celebration! 🎉🍨
+
+Families, you can help us reach our goal by making every school day count:
+⭐ Attend school every day
+⏰ Arrive on time and ready to learn
+📚 Make attendance a priority
+
+Being at school and being on time gives students the best opportunity to learn, grow, and succeed. Who will be the first class to reach 10 scoops and earn an ice cream party? 🍦🏆
+
+#EveryDayCounts #AttendanceMatters #BeHereBeReady #WeAreMVE
+
+### 2026-09-16 · Audrey Cooper (id 13148177)
+
+🔴🟡🔵 Celebrating International Dot Day! 🟢🟣🟠
+
+Some of our amazing activity teachers joined in the fun for Dot Day! 🎨✨ We love seeing our staff celebrate creativity, courage, and the idea that everyone can make their mark!
+
+What a fun way to bring a little extra color and creativity to MVE! ❤️🐾
+
+#WeAreMVE
+
+### 2026-09-16 · Conway Public Schools (id 13033455)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-16 · Audrey Cooper (id 13154332)
+
+🎨🎵🏃‍♀️📚 Our activity team is hard at work today with our students!
+
+From creativity and movement to exploration and hands-on learning, our activity teachers provide meaningful experiences that help our students learn, grow, and discover new talents. 
+
+We are so thankful for the energy and dedication they bring to our students each day! 💙🐾
+
+#WeAreMVE#LearningInAction
+
+### 2026-09-17 · Conway Public Schools (id 13158245)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+

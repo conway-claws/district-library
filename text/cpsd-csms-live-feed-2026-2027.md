@@ -590,3 +590,102 @@ Congratulations! We are lucky to have you! 🐾💙
 
 #WeAreCarlStuart #WeAreConway #ChampionsForKids
 
+### 2026-09-11 · Carl Stuart Middle School (id 13096841)
+
+🎩😴 HAT & PAJAMA DAYS AT CARL STUART🎉
+
+Students can pay $1 to wear a hat or pajamas on select Fridays throughout the school year. Be sure to save these dates!  Second semester dates will be sent out at a later date!📅
+
+🎩 HAT DAYS
+• September 18
+• October 16
+• November 20
+
+😴 PAJAMA DAYS
+• October 2
+• November 6
+• December 4
+• December 18
+
+These dates will also be shared each week in our parent newsletter as a reminder! 💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-09-14 · Carl Stuart Middle School (id 13105422)
+
+Immunization Deadline Approaching: 
+
+If your child is already 11 years old or will turn 11 yrs. before September 1, 2026, he/she will
+need the Tdap and the MCV4 vaccines before returning to school this year. If your child is
+entering 7 th grade and has not received the MCV4 vaccine, he/she must have this before
+returning to school this year.
+
+The deadline for receiving these immunizations is October 1, 2026. If your child
+does not have the required immunizations by this date, he/she will be sent home
+until immunizations are updated. There will be NO exceptions!
+
+All updated records must be turned in to Nurse Siegel.
+Any questions or concerns should be sent to Nurse Siegel at siegelh@conwayschools.info. Or,
+please call 501-329-2782 with any questions. Thank you!
+
+### 2026-09-14 · Carl Stuart Middle School (id 13111719)
+
+Who said reviewing simple sentences had to be boring?! 🎶🪑📚
+
+Mrs. Callaway and Mrs. Rogers’ classes had some fun reviewing simple sentences with a game of Musical Chairs! Students were learning, moving, and having a little fun along the way! 💙✨
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-09-14 · Carl Stuart Middle School (id 13118414)
+
+🌎 Carl Stuart is celebrating Hispanic Heritage Month! 🎉
+
+We’ll be celebrating later this month, and students can join in on the fun with a delicious treat from Las Delicias! 🍧💙
+
+Order forms were passed out today during WIN Time. If your student would like to purchase a paleta, please return the completed form along with $3 to their homeroom teacher. Money is due on Monday, September 21!
+
+We can’t wait to celebrate together! 🎉❤️💛💚
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-09-15 · Conway Public Schools (id 13115099)
+
+Happy National IT Professional Day! Today, we’re giving a huge shoutout to the incredible tech team keeping Conway Public Schools connected.
+
+Let’s be honest, these tech heroes do way more than just fix Chromebooks and reset passwords. They are the digital guardians keeping our entire school network cybersafe and secure every single day. Behind the scenes, they're constantly fending off sneaky phishing attempts, locking down student data privacy, and testing software updates at odd hours so teaching never misses a beat.
+
+Thank you for working hard behind the screens to keep our digital world safe and spinning. You are vital players on Team Conway! 🖥️🐾
+
+#NationalITProDay #TeamConway #BehindTheScreens #EdTech #TeamConway #WeAreWampusCats
+
+### 2026-09-15 · Conway Public Schools (id 13116441)
+
+National Hispanic Heritage Month (Sept 15 - Oct 15)
+
+From September 15th to October 15th, Conway Public Schools is proud to celebrate National Hispanic Heritage Month! Our district is beautifully diverse, and our Hispanic students, families, and staff make Team Conway stronger and brighter every single day. Let's honor the rich history, culture, and achievements together. 💙🐾
+
+Want to see how we’re celebrating across the district? Visit our Hispanic Heritage Month page for full event details: https://www.conwayschools.org/o/cps/page/celebrations
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-09-15 · Carl Stuart Middle School (id 13131262)
+
+🏀 Calling all 5th & 6th grade girls! 🏀
+
+Ready to work on your basketball skills, have some fun, and get on the court? Join us for our FREE Basketball Skills Nights at Carl Stuart Middle School!
+
+📅 Sunday, September 27
+📅 Sunday, October 25
+⏰ 4:00–6:00 PM
+📍 Carl Stuart Middle School
+
+Come learn, play, and have fun! We can't wait to see you on the court!
+
+### 2026-09-16 · Conway Public Schools (id 13033459)
+
+CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENFall Testing CycleStudents currently in 3rd grade or above may be referred for Gifted & Talented consideration. A referral begins the evaluation process and does not guarantee identification.A student may benefit from referral when they learn quickly and make meaningful connections, think deeply, creatively, or in unusual ways, show advanced reasoning, curiosity, or problem-solving, or need greater depth, complexity, or academic challenge.No special preparation is needed. Gifted & Talented identification is based on multiple measures.IMPORTANT DATESTeacher Referral Deadline: September 23, 2026Parent Referral Deadline: September 25, 2026Parent Permission to Test Deadline: September 25, 2026Fall Testing Window: September 28–October 9, 2026Questions? Contact your campus GT specialist or the district GT coordinator at reynoldsa@conwayschools.info.Parent Form: https://docs.google.com/forms/d/e/1FAIpQLSe8X2PhiQYd2oc02OjXThvM242oBgSIRq_PY4g-ZC8Kbba7tQ/viewform?pli=1
+
+### 2026-09-17 · Conway Public Schools (id 13158250)
+
+Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
+
