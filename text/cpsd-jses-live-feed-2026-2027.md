@@ -670,3 +670,102 @@ CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENF
 
 Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
 
+### 2026-09-17 · Conway Public Schools (id 13171085)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Barbara Clardy (id 13180032)
+
+💙 Huge thanks to PTO for the incredible lounge restock! We noticed and appreciated every detail, from the snacks and drinks to the 
+scented hand soaps!🧴
+
+Thank you for taking care of both our daily needs and our comfort! 🫶 
+
+#WeAreJSE
+
+### 2026-09-18 · Barbara Clardy (id 13180150)
+
+What a fun açaí bar from Mama and Me Açaí! Thank you for the hospitality! 🥥 🍍 🍓 😋 
+
+#WeAreJSE
+
+### 2026-09-18 · Barbara Clardy (id 13180218)
+
+So proud of their names in letter groups with Ms. Longing! 🔤 #WeAreJSE
+
+### 2026-09-19 · Barbara Clardy (id 13190852)
+
+📚Reading is better with a friend!!📚
+
+#WeAreJSE
+
+### 2026-09-22 · Barbara Clardy (id 13214237)
+
+🎉 BIG NEWS, Jim Stone Family! 🎉
+
+We are thrilled to announce that Jim Stone Elementary has reached GEM status with the State of Arkansas! 📚✨
+
+Not only that, but our school grade has risen from a C to a B — a testament to the incredible hard work and dedication of our entire community!
+
+This achievement belongs to ALL of us:
+
+✅ To our students — You showed up every day ready to learn and grow. Your progress is amazing!
+
+✅ To our teachers — Your passion, creativity, and commitment to every child made this possible.
+
+✅ To our families — Thank you for partnering with us, supporting learning at home, and believing in your children.
+
+✅ To our staff — From the front office to the cafeteria to custodial services, you help create a place where students thrive.
+
+When we work together, incredible things happen. This is just the beginning — let's keep reaching for the stars! 🌟
+
+#WeAreJSE
+
+### 2026-09-22 · Barbara Clardy (id 13221355)
+
+Twinning Tuesday-School Spirit Edition! 💙🤍
+
+#WeAreJSE
+
+### 2026-09-22 · Barbara Clardy (id 13222291)
+
+In Arts and Letters today, first graders had fun putting sticky notes on illustrations that had imaginary parts and then discussing them with the class! 🎨📝
+
+#WeAreJSE
+
+### 2026-09-22 · Barbara Clardy (id 13223514)
+
+Constitutional experts at work for Celebrate Freedom Week! 🇺🇸 Mrs. Clardy’s 4th-grade enrichment classes are analyzing scenarios and explaining whether the cases are protections or violations based on the Bill of Rights. Outstanding work! 👩‍⚖️ 👨‍⚖️ #WeAreJSE
+
+### 2026-09-23 · Barbara Clardy (id 13222463)
+
+🏃‍♀️ THAB Fun! ⚽
+
+These bags let students take home athletic equipment to stay active with their families. 💪✨
+
+Thank you to Mrs. Breashears for keeping our students moving! 💚
+
+#WeAreJSE
+
+### 2026-09-23 · Barbara Clardy (id 13222640)
+
+🗽🇺🇸 Freedom and responsibility go hand in hand!
+
+Our 2nd and 3rd graders in Mrs. Clardy's enrichment classes are diving into Celebrate Freedom Week! They are learning about the freedoms we enjoy and the important responsibilities that come with them.
+
+Way to go, future leaders! ❤️🤍💙
+
+#WeAreJSE
+
+### 2026-09-23 · Barbara Clardy (id 13236320)
+
+🍂 Fall is here, and first grade is LOVING this weather!! 🍁
+
+#WeAreJSE
+
+### 2026-09-24 · Barbara Clardy (id 13240796)
+
+CALI (Conway Area Leadership Institute) members came to greet and high five us in the car line this morning!! ✋
+
+#WeAreJSE
+

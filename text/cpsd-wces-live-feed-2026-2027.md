@@ -1036,3 +1036,63 @@ We look forward to welcoming our special guests to Woodrow and making Grand's We
 
 Thank you for helping us make this such a special tradition!
 
+### 2026-09-17 · Jenna Havlik (id 13163912)
+
+Inside recess- AGAIN?!😂🫠Third grade is making the most of it, but we are officially ready for cooler temps and OUTSIDE recess!☀️🍂
+
+### 2026-09-17 · Conway Public Schools (id 13171076)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Woodrow Cummins Elementary (id 13174495)
+
+Our Book Fair is coming up, and we are looking for parent volunteers to help students shop, keep things organized, and make the experience fun for our Little Cats!
+No experience is needed, just a willingness to help our students! Volunteers will assist with things like helping students find books, organizing displays, and keeping the book fair running smoothly.
+If you are available to volunteer, please sign up for a time that works for you using this link: https://www.signupgenius.com/go/10C084AA5AB2EAAFEC61-65974526-literati
+Thank you for supporting our students and our library! We couldn't do it without our wonderful WCE families! 🐾📖
+We can't wait to see our Little Cats fall in love with some new books!
+
+### 2026-09-18 · Woodrow Cummins Elementary (id 13163247)
+
+Check out what's going on at WCE in our Little Cat Chronicle.
+
+### 2026-09-21 · Woodrow Cummins Elementary (id 13205960)
+
+Dear Woodrow Families,You’ve Got a Friend in Reading! 📚🚀Grab your favorite reading buddy and join us for a fun-filled night of books, adventure, and reading at Woodrow Cummins Elementary!📅 Monday, November 3
+⏰ 5:30–7:00 PM
+📍 Woodrow Cummins ElementaryCome enjoy a night celebrating our love of reading and spending time together as a family. And PLUS, you’ll have the opportunity to take your picture with Buzz and Woody! 🤠🚀We can’t wait to see our Little Cats and their favorite reading buddies for a night of fun, books, and adventure… to infinity and beyond!Happy Reading!
+
+### 2026-09-21 · Jenna Havlik (id 13207382)
+
+Congratulations to last week's positive office referrals!! We are so proud of these CATS Kids!
+
+### 2026-09-21 · Woodrow Cummins Elementary (id 13207533)
+
+Dear Woodrow Families,We apologize for the misinformation from the previous email.  The information below is the correct information.  We hope to see you there! You’ve Got a Friend in Reading Family Night! 📚🚀Grab your favorite reading buddy and join us for a fun-filled night of books, adventure, and reading at Woodrow Cummins Elementary!📅 Tuesday, November 3
+⏰ 5:30–7:00 PM
+📍 Woodrow Cummins ElementaryCome enjoy a night celebrating our love of reading and spending time together as a family. You'll also have the opportunity to take your picture with Buzz and Woody! 🤠🚀We can’t wait to see our Little Cats and their favorite reading buddies for a night of fun, books, and adventure… to infinity and beyond!Happy Reading!
+
+### 2026-09-21 · Jenna Havlik (id 13207403)
+
+Kindergarten started color week strong! What a fun RED day ❤️
+
+### 2026-09-23 · Woodrow Cummins Elementary (id 13230237)
+
+Dear Parents and Families,With all of the exciting events happening in our building—including Running Club T-shirt sales, the PTO fundraiser, field trip collections, and the Book Fair—we want to make sure money sent to school is handled as efficiently as possible.To help us keep everything organized, please follow these simple procedures whenever sending money to school:All money should be sent in a sealed envelope or Ziplock bag clearly labeled with:Student’s NameTeacher’s NameWhat the money is for (for example: Kindergarten field trip, Running Club T-shirt, lunch money)Amount of money enclosedAny permission form or order form associated with the paymentThese steps help ensure that payments are properly credited and prevent money from becoming separated from the student or activity it is intended for.Thank you for your help and cooperation as we work to keep everything organized during this busy time!Sincerely,WCE
+
+### 2026-09-23 · Woodrow Cummins Elementary (id 13233181)
+
+Dear Woodrow Families,We are so excited to welcome our “Grands” to Woodrow next week for Grand’s Week and our Literati Book Fair! We want to share an important reminder about our school check-in procedures to help make the process as smooth as possible.🪪 Important Check-In ReminderEvery adult entering Woodrow Cummins Elementary must first check in at the front office with a government-issued photo ID.If your government-issued ID has not been scanned into our system THIS school year, it will need to be scanned before you may enter the school.Because we expect a large number of visitors for Grand’s Week lunches and the Book Fair, check-in may take longer than usual. We encourage anyone who is able to stop by the office sometime this week to have your ID scanned. This will help expedite the check-in process when you arrive for next week’s events.If you are unable to stop by before next week, please plan to arrive at least 30 minutes early to allow enough time for the check-in process.🍎 Grand’s Week Lunch TimesPlease plan to attend your child’s assigned lunch time, followed by the book fair:Kindergarten: Tuesday, Sept. 29 — 10:40 AM1st Grade: Wednesday, Sept. 30 — 11:40 AM2nd Grade: Thursday, Oct. 1 — 11:55 AM3rd Grade: Wednesday, Sept. 30 — 11:00 AM4th Grade: Tuesday, Sept. 29 — 11:20 AM📚 Immediately following your lunch, Grands are welcome to visit the Literati Book Fair with their student!We can't wait to see all of our Little Cats and their special “Grands” next week! Thank you for helping us keep our check-in process safe and efficient for everyone.Warmly,Woodrow Cummins Elementary
+
+### 2026-09-23 · Jenna Havlik (id 13236823)
+
+Thank you to our amazing PTO for treating our teachers to some sweet treats!
+
+### 2026-09-23 · Jenna Havlik (id 13237226)
+
+Friday is the last day to earn a tshirt!!
+
+### 2026-09-24 · Woodrow Cummins Elementary (id 13240533)
+
+Counting on from the greater number has been our goal the last two weeks in First Grade- and we always love a good walk around the room for a math lesson.
+

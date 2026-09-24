@@ -335,3 +335,35 @@ CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENF
 
 Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
 
+### 2026-09-17 · Theodore Jones Elementary (id 13169046)
+
+📣 Family Reminders!
+
+👕 T-Shirts: T-shirts went home today with students who ordered one.
+
+📚 Tomorrow: Interim reports will be sent home. Please take a moment to review your child’s report and check on their progress.
+
+💛 Monday: Everyone, wear YELLOW or GOLD in honor of Cancer Awareness Month.
+
+Thank you for your continued support!
+
+### 2026-09-17 · Conway Public Schools (id 13171077)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Theodore Jones Elementary (id 13182147)
+
+🥳 TONIGHT is Bingo Night!! PTO is excited to host this annual fun night for our TJ Families 🎉
+Important Info for the event:
+📍Simon Middle School
+⏰️ Doors open @ 5:30, Bingo starts at 6 
+💲Cash Only for the event
+🎟 Bingo Cards $5 each
+🎫 Door Prize tickets $1 each
+🍕 Concessions available 
+👕 Tshirts available for purchase
+
+### 2026-09-20 · Theodore Jones Elementary (id 13186585)
+
+Check out our Newsletter- https://conwaypublicschools.edurooms.com/newsletters/theodore-jones-elementary/newsletters/september
+

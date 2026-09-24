@@ -1780,3 +1780,237 @@ Tickets can only be purchased on line (NO CASH) at GoFan.co or by using the QR c
 
 LINK: https://gofan.co/event/6852814?schoolId=AR4660
 
+### 2026-09-17 · Conway High School (id 13166481)
+
+🩺 Students teaching students! ❤️
+
+Our Patient Care Technician students put their skills into action by helping our Foundations of Healthcare students practice taking blood pressure!
+
+We love seeing our more experienced students step into leadership roles, share what they’ve learned, and help the next group of healthcare students build confidence in their clinical skills. 💪🩺
+
+Learning together. Practicing together. Growing together. ❤️
+
+#FutureHealthcareProfessionals  #PatientCareTechnician #FoundationsOfHealthcare #StudentLeadership #CTE #CHS #WampusCats
+
+### 2026-09-17 · Beth Fluesmeier (id 13168008)
+
+Thank you Ott Insurance for being a 2026 Football Season Sponsor!
+
+### 2026-09-17 · Canaan Groesbeck (id 13166431)
+
+Wampus Cats and Conway Community Members,
+
+The Lady Cat volleyball team's annual pink night game is coming up on October 13th. Our Pink Night recipient this year is Emmersyn Caldwell. She is one of our very own Wampus Cats. Please see the post to learn more about Emmersyn and her fight! 
+
+Follow our posts for ways that you can help support Emmersyn!
+
+### 2026-09-17 · Conway High School (id 13167003)
+
+💗 Wampus Cats, it’s time to come together!
+
+The Lady Cats’ annual Pink Night is coming up on Tuesday, October 13, and this year, our Pink Night recipient is one of our very own Wampus Cats, Emmersyn Caldwell.
+
+Pink Night is about more than volleyball. It’s about surrounding one of our own with the love, encouragement, and support of the Conway community. 💗
+
+Join us at Buzz Bolding Arena as the Lady Cats take on Central at 6 p.m., and follow Conway Athletics and Conway High School social media for upcoming posts sharing more about Emmersyn and the ways you can help support her and her fight.
+
+Let’s fill the arena in pink and show Emmersyn just how strong the Wampus Cat family can be. 💙💗
+
+#PinkNight #EmmersynStrong #WampusCats #LadyCats #ConwayStrong #SixLegs
+
+### 2026-09-17 · Conway Public Schools (id 13171096)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Conway Athletics (id 13175051)
+
+Sign up today for the Conway Baseball golf tournament
+
+### 2026-09-18 · Conway High School (id 13184260)
+
+Hands-on learning is happening in Mrs. Tillery-Harris’s EMR class! 🚑
+
+Students have been busy building essential emergency medical response skills, including oxygen tank setup, regulation, and administration, as well as learning how to safely use a stair chair to evacuate patients from upper levels when an elevator isn’t an option.
+
+These are skills that can make a real difference when seconds matter. We’re proud to see our students learning, practicing, and preparing for careers where they can serve others and make an impact. 💙🤍
+
+Keep learning. Keep practicing. Keep making a difference, Wampus Cats! 🐾
+
+#WampusCats #CareerReady #HandsOnLearning #EmergencyMedicalResponse
+
+### 2026-09-18 · Conway Athletics (id 13187226)
+
+LADY CAT PLAYERS OF THE WEEK 🚾🏀
+
+Congratulations to our two Lady Cat Players of the Week!
+
+⭐ CJHS — Chelsea “CB” Brown
+⭐ CHS — Nicole Jones
+
+Proud of the work, effort, and energy these two bring to Lady Cat Basketball! Keep representing the Cats! 💙🤍
+
+### 2026-09-18 · Conway Athletics (id 13182551)
+
+Congratulations to Beckett Paladino for being in top 3 of 9th grade runners in the state!
+
+### 2026-09-19 · Canaan Groesbeck (id 13175827)
+
+Lady Cats are heading to Springfield today to play in the Kickapoo Tournament! Good luck, girls! #sixlegs
+
+### 2026-09-21 · Conway High School (id 13201174)
+
+📚✨ Interested in joining National Honor Society?
+
+The Conway High School chapter of National Honor Society recognizes students who demonstrate excellence in character, scholarship, leadership, and service. If you’re a junior or senior interested in applying, here are the qualifications:
+
+• 3.75+ GPA
+• Currently taking an AP and/or concurrent credit class
+• Completed an AP and/or concurrent credit class during the 2025–2026 school year
+• No major discipline infractions
+
+📅 The deadline to join is September 23, 2026!
+
+Applications are available at the NHS table during both lunches and/or outside Ms. Griffith’s room. Completed applications should be turned in to Ms. Griffith's room.
+
+Don’t miss your opportunity to apply! 🐾
+
+#ConwayHighSchool #NationalHonorSociety #WampusCats #StudentLeadership
+
+### 2026-09-21 · Canaan Groesbeck (id 13203507)
+
+Calling our Conway Family!!!
+Here is a great way to show your support for Emmersyn Caldwell and her fight.  Plus you get a cute Wampus Cat shirt out of it! 
+Orders will close on Thursday, October 1st. 
+We are offering kids sizes, as well. 
+
+Link:
+https://conwayvolleyball26.itemorder.com/shop/home/
+
+### 2026-09-21 · Katy Gorden (id 13207673)
+
+Conway cheer and dance as well as our mascots had the best time cheering at Carl Stuart's pep rally today!
+
+### 2026-09-21 · Conway Athletics (id 13209357)
+
+CHS tennis continued a great year with both teams defeating Valley View today in Jonesboro!  Overall the two teams are 13-3!  Come watch us tomorrow with a home match against Jonesboro High School at 3:30!
+
+### 2026-09-22 · Canaan Groesbeck (id 13201748)
+
+Home game tonight for your Lady Cats against Jonesboro! JV starts at 5pm and Varsity is to follow. Let's go Lady Cats!! 
+
+Ticket Link:
+https://gofan.co/event/6687089?schoolId=AR4663
+
+Live Stream Link:
+https://youtube.com/live/Vh-7jOxwRxw?feature=share
+
+### 2026-09-22 · Conway High School (id 13202701)
+
+📚 Meet the English Language Arts Department at Conway High School!
+
+High energy, highly involved, and never afraid to show a little Wampus Cat spirit, our ELA teachers bring enthusiasm into their classrooms and throughout the halls of CHS. From sponsoring clubs and embracing spirit days to creating welcoming spaces for students, they believe that student involvement matters—and they work hard to make students excited to be part of our school community. 🐾
+
+But the opportunities in ELA go far beyond the classroom. CHS students can explore Creative Writing, take advantage of concurrent college credit through UACCM, and soon have even more options, including World Literature I & II and AP Research. The department is continually expanding opportunities to meet students at every level and help them prepare for what comes next.
+
+The department also has plenty to celebrate. CHS English students made double-digit gains on their ATLAS scores this past testing season, placing our students above the state average. And each spring, every CHS junior has the opportunity to take the ACT for free—because the English Department believes every student deserves access to opportunities that can open doors to college and scholarships.
+
+At the heart of it all, though, are the conversations. ELA teachers are often named favorites or Teachers of Honor by current and former students, and the department believes that comes from the way classroom discussions about literature connect to students’ real lives. There is something special about seeing a discussion hit home and knowing a student feels encouraged and seen—or watching a literary character come to life in a way that helps students develop empathy and reminds them to be kind and caring.
+
+That’s what the ELA department hopes every Wampus Cat takes with them: an understanding that reading and writing aren't just academic skills, but practical and meaningful tools that can make our lives better. ❤️💙
+
+#WampusCats #WeAreCHS #EnglishLanguageArts #TeamConway
+
+### 2026-09-22 · Conway Public Schools (id 13217054)
+
+🤼‍♂️ WRESTLING RUMMAGE SALE! 🤼‍♀️
+
+Looking for some great finds while supporting our wrestling program? Come shop our Wrestling Rummage Sale!
+
+📅 October 3
+⏰ 7:00 AM – 3:00 PM
+📍 1610 Prince Street
+
+There will be plenty of items to browse, so bring your family, friends, and a little extra room in the car! 🛍️
+
+Come shop, find some great deals, and support our wrestlers! 💪🤼‍♂️
+
+### 2026-09-22 · Conway Public Schools (id 13220337)
+
+Conway Public Schools is pleased to participate in the launch of the Arkansas A.C.C.E.S.S. Portal, a single, statewide universal college application now available to Conway High School seniors. Arkansas ACCESS Portal grants provisional admission to students who meet the baseline admissions requirements of participating in Arkansas institutions of higher education, replacing multiple, repetitive applications with one streamlined process.  Plus, you can apply for FREE!  CHS counselors have presented information about the ACCESS portal to all seniors, so now it's time to get started at https://araccessportal.adhe.edu/.  Have your application ready to submit when the application period opens on October 1!
+
+### 2026-09-22 · Conway High School (id 13221914)
+
+💜🩵 CHS Beta invites all students and community members to join us this Thursday as we come together to honor Suicide Awareness & Prevention Month.
+
+Join us for an evening of reflection and remembrance as we take time to support one another and help raise awareness around suicide prevention.
+
+📅 Thursday, September 24
+⏰ 6:45 PM
+📍 Veterans Memorial Park on Tucker Creek
+Near the Neighborhood Walmart
+
+Come together, take time to reflect, and remind one another that no one has to face difficult moments alone. 💜🩵
+
+### 2026-09-22 · Conway Athletics (id 13224452)
+
+🥞🏀 PANCAKE BREAKFAST THIS SUNDAY!
+
+Come hungry and support Wampus Cat & Lady Cat Basketball at Stoby’s!
+
+📅 Sunday, September 27th
+⏰ 8:00 AM – 1:00 PM
+🥞 $6 All-You-Can-Eat Pancakes
+🚗 Drive-Thru or Dine-In
+
+Bring the whole family, enjoy a great breakfast, and help support our boys and girls basketball programs! 🚾🏀
+
+We’re thankful for a community that continues to show up for our student-athletes. Come eat some pancakes with us Sunday!
+
+📲 SHARE & help us spread the word!
+
+### 2026-09-23 · Conway High School (id 12987179)
+
+🎓 STUDENTS! YOUR FUTURE STARTS HERE! 🎓
+
+The Faulkner County College Fair is coming up, and this is your opportunity to connect with representatives from nearly 70 colleges, trades, and military organizations all in one place! 💙🐾
+
+📅 Wednesday, September 30
+⏰ 8:00 AM–12:30 PM
+📍 Buzz Bolding Arena
+
+Whether you already know what you want to do after high school or you're still exploring your options, come EXPLORE. CONNECT. PLAN YOUR FUTURE.
+
+📝 Students must register themselves to attend!
+👉 Register at: StriveFair.com
+
+Don’t miss this chance to take the next step toward your future! 🎓🐾
+
+### 2026-09-23 · Canaan Groesbeck (id 13220762)
+
+Conway Elementary Schools! SAVE THE DATE! 
+Our Lady Cat volleyball team will be coming to you for their annual change runs on October 9th. 
+This change will go towards our Pink Night recipient, Emmersyn Caldwell. 
+Bring your change and make a difference!!
+
+### 2026-09-24 · Canaan Groesbeck (id 13236818)
+
+Lady Cat Volleyball is heading to Bryant today! Big away game to finish up the first half of conference. Let's go, girls!! 
+
+Ticket Link: 
+https://gofan.co/event/6907732?schoolId=AR4648
+
+Live Stream Link:
+https://www.youtube.com/@bryanthighschoolhornetmedi9058
+
+### 2026-09-24 · Conway High School (id 13241803)
+
+What a beautiful night celebrating Hispanic Heritage at Conway High School! ❤️💙
+
+Thank you to all of our students, families, and staff who joined us for this special evening. We enjoyed student artwork, a student-created video, campus tours, college resources, and opportunities for families to connect with our counselors.
+
+A special thank-you to Mamas Unidas, Las Delicias, and El Fuego for being part of our celebration and for supporting our students and families. We are so grateful to everyone who helped make this night so meaningful and memorable!
+
+¡Gracias por celebrar con nosotros! 🇪🇸✨
+
+#ConwayHighSchool #HispanicHeritage #WampusCats
+

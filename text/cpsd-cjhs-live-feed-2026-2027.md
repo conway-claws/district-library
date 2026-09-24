@@ -783,3 +783,109 @@ CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENF
 
 Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
 
+### 2026-09-17 · Conway Junior High (id 13167138)
+
+💗 Pink Night is Coming! 💗
+
+The Lady Cat Volleyball team’s annual Pink Night is coming up on October 13th, and this year’s Pink Night recipient is one of our very own Wampus Cats, Emmersyn Caldwell. 🩷🐾
+
+Please take a moment to read the post to learn more about Emmersyn and her fight. 💗
+
+Be sure to follow along with our upcoming posts for ways you can support Emmersyn and her family as we rally around one of our own!
+
+🎀 We’re all in this fight with you, Emmersyn! 💙
+
+### 2026-09-17 · Conway Public Schools (id 13171092)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Jennifer Dozler (id 13176152)
+
+It's Friday!!! Popcorn is at the front office 🍿
+
+### 2026-09-19 · Conway Athletics (id 13191700)
+
+CJHS 8th grade coming home with some hardware from the Benton tournament! Congrats to Conway 1 for coming home the gold bracket CHAMPIONS! And congrats to Conway 2 for getting 2nd in silver! We're so proud of our girls and all their work today! 🏐🏐💙💙🏆🏆
+
+### 2026-09-20 · Marquis Rogers (id 13194193)
+
+Reminder: CJHS families, our Hispanic Heritage Community Night celebration is happening now in the Conway High School cafeteria! Stop by anytime before 6:00 p.m. We hope to see you there!
+
+### 2026-09-21 · Conway Junior High (id 13166006)
+
+📣 WEEK AT A GLANCE! 📣
+
+It’s another busy week for our Wampus Cats! Check out the schedule below and come out to support our students and teams throughout the week.
+
+📅 September 21–26
+🏐 Volleyball
+🎾 Tennis
+⛳ Golf
+🏈 Football
+🏃‍♀️ Cross Country
+
+### 2026-09-21 · Conway Junior High (id 13165642)
+
+Dear Parents and Students,
+We hope you have a great week! Here are the important updates and announcements for the upcoming week.
+
+Link to Announcements: 
+
+https://docs.google.com/document/d/1Od7p7r2ZqXVPTas6D62umJI99XyOCKWtUDlOlNcyL1Q/edit?usp=sharing
+
+### 2026-09-21 · Conway Junior High (id 13198653)
+
+Recently, Mrs. McKee 9th grade ELA Advanced students took on “The Fight: Survival Mode” as they explored John Montague’s poem The Fight.
+
+Instead of simply answering questions about the poem, students had to build their understanding—literally! Working in teams, students used LEGO bricks to represent important elements of the poem, including the setting, conflict, key moments, language, paradox, and theme.
+
+But there was a catch: Every build had to have a purpose. Students had to use evidence from the poem to explain why they made the choices they did and defend their interpretations to their classmates.
+
+It was so much fun watching students take something they had read on a page and turn it into something they could see, build, discuss, and defend. 
+
+Who says rigorous literary analysis can't be hands-on and fun?!
+
+### 2026-09-21 · Conway Junior High (id 13202144)
+
+Join us on September 25 as we celebrate Hispanic Heritage Month with a special Hat Day! Students can wear their favorite school-appropriate hat for just $1.
+
+Wristbands will be available for purchase during all lunches September 21–24. Grab your wristband and help us celebrate and recognize the rich cultures and contributions of the Hispanic community! 💙🤍
+
+### 2026-09-21 · Cheyenne Kuhn (id 13196797)
+
+Congratulations to the CJHS volleyball players of the week! We’re so proud of their hard work and leadership! 💙🏐🏆 Good job girls!
+
+### 2026-09-21 · Conway Junior High (id 13198821)
+
+🎉 CJHS Spirit Week is coming up! 🎉
+
+Get ready to show your Wampus Cat spirit October 5–9 with a fun lineup of themed dress-up days! 💙🤍
+
+📅 Monday: Rhyme Without Reason
+🎬 Tuesday: Adam Sandler Day
+⭐ Wednesday: Character Day
+🐾 Thursday: School Spirit Day
+👯 Friday: Duo/Group Day
+
+Grab your friends, get creative, and let's make it a great Spirit Week! Dress code still applies.
+
+💙🤍 Go Wampus Cats!
+
+### 2026-09-22 · Marquis Rogers (id 13220286)
+
+Parents, please be aware that several roadways east of the campus are closed due to the Faulkner County Parade. 
+
+Please allow for extra time for student pickup.
+
+### 2026-09-23 · Conway Junior High (id 13233061)
+
+Join us on September 25 as we celebrate Hispanic Heritage Month with a special Hat Day! Students can wear their favorite school-appropriate hat for just $1.
+
+Wristbands will be available for purchase during all lunches September 21–24. Grab your wristband and help us celebrate and recognize the rich cultures and contributions of the Hispanic community! 💙🤍
+
+### 2026-09-23 · Conway Junior High (id 13216985)
+
+Congratulations to Coach Frazier and Mr. Gibson’s 4th and 8th period classes for earning the highest class average on their most recent test! 📚👏
+
+We’re proud of all their hard work and dedication! Keep it up, Wampus Cats!
+

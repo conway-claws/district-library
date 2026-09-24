@@ -895,3 +895,161 @@ We are so thankful for the energy and dedication they bring to our students each
 
 Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
 
+### 2026-09-17 · Conway Public Schools (id 13171086)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Audrey Cooper (id 13173912)
+
+📚🍂 Story Elements in Action!
+
+Our 2nd grade students brought learning to life during their Arts & Letters lesson with The Little Yellow Leaf! As they listened to the story, students used special poses to identify important story elements and prepare to write their own stories about a leaf facing a problem.
+
+🦸 Character — Superman Pose
+🏠 Setting — House Pose
+😱 Problem— “Oh No!” Pose
+✔️ Solution — Check Mark Pose
+
+By connecting movement with reading, students practiced identifying characters, setting, problem, and solution while building the understanding they’ll need to become storytellers themselves.
+
+From  readers to writers, our students are learning that strong stories have important elements—and sometimes learning is better when you can strike a pose! 🍂📖✏️
+
+#WeAreMVE#LevelUp
+
+### 2026-09-18 · Audrey Cooper (id 13137545)
+
+💦 DUNK A PRINCIPAL! 💦
+
+Get ready for some FUN! Our Dunk A Principal Fundraiser is coming up on  September 25! 🎯
+
+Students can purchase 3 balls for $2.00 for a chance to send one of our principals SPLASHING into the dunk tank! 💦😂
+
+💵 Cash only
+🎯 3 balls = $2.00
+📅 September 25
+
+Send your money and order form back to school and get ready to take your best shot!
+
+Thank you for supporting Marguerite Vann Elementary and helping us make this fundraiser a SPLASH! 🐾💙
+
+### 2026-09-18 · Audrey Cooper (id 13180024)
+
+✏️ Learning can be messy—and fun! 🫧
+
+Our kindergarten students in Mrs. Holder's class practiced letter formation using shaving cream! This hands-on activity gives students a fun, sensory way to strengthen correct letter formation while building important fine-motor skills.
+
+Who knew practicing letters could be this much fun? 💙🐾 
+
+#LearningIsFun #WeAreMVE
+
+### 2026-09-20 · Audrey Cooper (id 13193383)
+
+☀️💙 A Special Thank You to Our MVE Families!💙☀️
+
+A special thank you to all of the families who joined us for our Loved Ones on the Lawn family event! We are so grateful you came out, braved the heat, and helped make this event such a memorable one for our students, families, and staff. Your smiles, laughter, and time together made the afternoon extra special! 🥰
+
+We also want to thank everyone who supported our school by stopping by and shopping at the Book Fair! 📚❤️
+
+We loved seeing our MVE families come together and create such wonderful memories with our students. 
+
+📸 Have more pictures from Loved Ones on the Lawn? Drop them in the comments below! We’d love to see them!
+
+#LovedOnesOnTheLawn #MVEFamily #MakingMemories #LevelUp
+
+### 2026-09-20 · Audrey Cooper (id 13193232)
+
+📚 Interim Progress Report 
+
+Interim progress reports were sent home with your child on Friday.  Please take a few moments to review your child's report,  sign it, and return it to school tomorrow.
+
+If you have any questions or concerns regarding your child's progress, please reach out to your child's teacher through the Thrillshare app.
+
+Thank you for partnering with us to support your child's success! 💙
+
+### 2026-09-21 · Audrey Cooper (id 13202832)
+
+Hello Parents,
+
+I want to personally thank all the families who have already participated in our SchoolStore program!  We are on our way to reaching our goal, but we need everyone's help to make sure our teachers get the essential tools they need to help our students succeed.
+
+If your family has not participated, there's still time!
+
+This safe and easy program is 100% online so there is no face-to-face selling, collecting money, or delivering products.  Your child will receive a prize just for participating, and more prizes will be awarded when goals are reached.
+
+Please help now. It really will make a difference.
+
+Go to https://www.schoolstore.net/sid.t?0000139521 to show our valued teachers your support. To earn a book buddy, there must be at least 8 emails listed per student.
+
+Thanks
+Marguerite Vann Elementary School
+
+P.S. Family participation is the key to our success, and we are counting on you!
+--
+Jana Irvin, Ed.S,
+
+Principal
+
+Marguerite Vann Elementary School
+
+2845 Carl Stuart Rd
+
+Conway, AR 72034
+
+501-450-4870
+
+### 2026-09-21 · Audrey Cooper (id 13208540)
+
+📸 Picture Day is Coming Soon! 📸
+
+Mark your calendars! Picture Day is Wednesday, September 30!🍎✨
+
+📄 Order forms will be coming home with students this week, so be sure to check those backpacks!
+
+We can't wait to see all of those MVE smiles! 😁📸
+
+### 2026-09-22 · Audrey Cooper (id 13222874)
+
+Today,  a statement of a concerning nature was made by a kindergarten student in  a classroom. Administration immediately addressed the matter, confirmed no weapon or physical threat was present, and completed a thorough investigation with the student's family. The safety and well-being of our students and staff remain our highest priority. Thank you for your continued support in maintaining a safe learning environment.
+
+### 2026-09-22 · Audrey Cooper (id 13223944)
+
+🐾🪙 Our First Crittercoin Store! 🪙🐾
+
+We held our very first Crittercoin Store today, and our students were so excited to cash in the points they’ve worked hard to earn!
+
+Throughout the day, students earn Crittercoins by demonstrating positive behaviors and character traits such as cooperation, courage, empathy, gratitude, honesty, leadership, perseverance, respect, responsibility, good citizenship, and making positive choices throughout the building.
+
+The Crittercoin Store is a fun way to recognize and celebrate our students for making choices that help make our school a positive place to learn and grow. 💙
+
+We are so proud of our students and the great character they show each day! Keep earning those Crittercoins! 🐾🪙🌟
+
+### 2026-09-22 · Audrey Cooper (id 13224198)
+
+🍂🍁 Welcome, Fall!🍁🍂
+
+Our students are loving the cooler weather and enjoying some extra fun with friends at recess! There’s nothing better than fresh air, sunshine, and time to play. ☀️🛝
+
+We’re officially welcoming  FALL at MVE! 🍁🐾
+
+#WeAreMVE
+
+### 2026-09-23 · Audrey Cooper (id 13224266)
+
+✨🐾 New Leadership Opportunities at Marguerite Vann!🐾✨
+
+New to Marguerite Vann this year are our 4th Grade Sparkle Club and  Boys Leadership Club! Both groups held their kickoff meetings yesterday, and we are excited to see these students grow throughout the year.
+
+These clubs are designed to reinforce leadership skills, build confidence, encourage positive character, and equip our students with skills for future success.
+
+We can’t wait to watch these young leaders learn, grow, and SHINE! 🌟💙
+
+#WeAreMVE#LevelUp
+
+### 2026-09-23 · Audrey Cooper (id 13236905)
+
+🥁 We’ve Got Rhythm!🎶
+
+After reading Rap a Tap Tap, our kindergarten students brought the story to life by practicing how to find and keep a rhythm! Students had fun listening, moving, and tapping along as they connected literacy and music through hands-on learning. 🎵👏
+
+#KindergartenLearning#WeAreMVE
+

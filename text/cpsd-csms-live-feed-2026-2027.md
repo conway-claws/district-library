@@ -689,3 +689,65 @@ CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENF
 
 Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
 
+### 2026-09-17 · Carl Stuart Middle School (id 13167872)
+
+REMINDER: Hat Day is tomorrow (Friday, September 18). Students can bring $1 to participate.
+
+### 2026-09-17 · Conway Public Schools (id 13171091)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Carl Stuart Middle School (id 13118430)
+
+REMINDER: Monday, September 21  is the last day to turn in your Las Delicias treat order form and $3 for our Hispanic Heritage Month celebration!
+
+Please return forms and money to your homeroom teacher. We can't wait to celebrate!
+
+### 2026-09-21 · Carl Stuart Middle School (id 13189067)
+
+Our 5th grade ELA students in Mrs. Mosley’s classes have been putting their creativity to work! ✏️📚 Students wrote short Idiom Stories using a variety of narrative techniques to enhance and elaborate their writing, then partnered up to share their stories with one another. We love seeing our students grow as writers and storytellers! 💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-09-21 · Carl Stuart Middle School (id 13208173)
+
+🏈 GAMEDAY! 🏈
+
+Our boys are playing at home tonight! Carl Stuart takes on Simon at 5 PM at John McConnell Stadium in Conway!
+
+Come out and cheer on our Cats! 🐾💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-09-22 · Carl Stuart Middle School (id 13189061)
+
+Nothing better than seeing our Wampus Cats doing what they love! ⚽️💙 Ms. Wiles spent part of her weekend cheering on a few of our students at their soccer game. We love seeing our teachers show up and support our students outside the classroom, too! Way to go, girls! 👏⚽️
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-09-22 · Carl Stuart Middle School (id 13208247)
+
+🏐 TWO HOME GAMES THIS WEEK! 🏐
+
+Come cheer on our Lady Cats as they hit the court at home twice this week!
+
+📅 Tuesday, Sept. 22 at 4:30 PM
+🐾 vs. Simon Middle School
+
+📅 Thursday, Sept. 24 at 4:30 PM
+🐾 vs. Bethel
+
+Grab your crew and come support our volleyball girls! Let’s go, Cats! 💙🏐
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-09-22 · Carl Stuart Middle School (id 13222603)
+
+📣 FBLA MEMBERS & PARENTS!
+
+Be sure to check in with your student about their FBLA membership letter! 💙
+
+Membership information and letters were sent home Tuesday, September 22, through Rooms. Be sure to take a look so you don’t miss any important information! 🐾
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+

@@ -395,3 +395,24 @@ Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum
 
 Progress reports went home with students yesterday, September 16.
 
+### 2026-09-17 · Conway Public Schools (id 13171088)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Courtway Middle School (id 13186140)
+
+Mrs. Curry’s students put their creativity to work by creating their own children’s books about the importance of punctuality and attendance. 📚 They even had the chance to share their books with their classmates! We loved seeing all of the creative ideas they came up with! 💙
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-09-21 · Courtway Middle School (id 13207594)
+
+Picture forms went home with students today! 📸
+
+If you’d rather order online, you can do that here until October 1:
+https://v2.myproimages.com/strain-photography-schools/60929/search?code=BCMS26
+
+Picture Day is next Friday, October 2, so mark your calendars!
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+

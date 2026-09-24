@@ -556,3 +556,63 @@ CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENF
 
 Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
 
+### 2026-09-17 · Angel Moix (id 13166524)
+
+Important Notice: Interim reports went home yesterday with your student.
+
+### 2026-09-17 · Conway Public Schools (id 13171090)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Angel Moix (id 13179536)
+
+📚 6th Grade Math in Action! ➕
+
+Students in Ms. Barber’s 6th-grade math classroom put their mathematical thinking into action during a lesson led by UCA student intern Ceana Reed.
+
+Students worked toward the objective of representing opposite quantities in real-world situations using integers.
+
+Students explored a real-world scenario involving a school of fish, a diver, a boater, and a kite at different positions relative to the water's surface. After listening to the description, students used the whiteboards around the classroom to draw and represent each location using positive and negative integers.🧮✏️
+
+### 2026-09-19 · Karon Branch (id 13191818)
+
+📣6th Grade Opportunity! On Monday, 6th grade students will have the opportunity to enjoy outside time during WIN Time and purchase snacks ranging from $1–$2. Students may bring money if they would like to purchase a snack. We’re excited to offer our students this opportunity! #SimonStrong
+
+### 2026-09-21 · Angel Moix (id 13202735)
+
+🎉 WE DID IT, SIMON MIDDLE SCHOOL FAMILY! 🎉
+
+We are thrilled to officially announce that Ray & Phyllis Simon Middle School has improved from a "C" to a "B" letter grade rating! 💙✨
+
+This incredible milestone is a direct result of the dedication, hard work, and relentless effort of our entire community:
+
+👏 To our amazing Students: Thank you for showing up every day ready to learn, push your boundaries, and do your best!
+🍎 To our outstanding Staff & Teachers: Thank you for your tireless commitment, passion, and belief in every student who walks through our doors.
+💙 To our dedicated Parents & Families: Thank you for your ongoing partnership, support, and encouragement at home.
+
+Growth takes teamwork, and together, we are proving what makes Simon Middle School so special. Let’s keep this momentum going! 🚀📊#Simon Strong #WeAreSimon #RaisingtheStandard
+
+### 2026-09-21 · Karon Branch (id 13205048)
+
+Hello Parents/Guardians,
+
+As a Purple Star School, we are committed to supporting active duty military families and their children in our school community. We would appreciate your help in understanding your family's needs. Please  click on the link below and complete the brief survey to help us better serve you and your child.
+
+Thank you for your time and response.
+
+https://docs.google.com/forms/d/e/1FAIpQLSfomd5A4QM5cZXaE9JbrL4M5r50FjpmpS9Ps9aI-rqEaFWM_g/viewform?usp=sharing&ouid=112493643602063022031
+
+### 2026-09-23 · Angel Moix (id 13216072)
+
+🌟 Big congratulations to our 5th Grade Students of the Month! 🌟
+
+Please join us in celebrating Leah S. and Kameron C.!
+
+🎓 Leah S. — Leah is a model student who comes to class prepared, respectful, and ready to learn. Her positive attitude, kind heart, and best effort make her a true joy to have in class.
+
+🎓 Kameron C. — Kameron brings outstanding responsibility and enthusiasm every day. He is always eager to lend a helping hand to teachers and peers while making sure everyone feels included in our classroom family.
+
+We are so proud of you both—keep shining bright! 👏✨
+
+#WeAre Simon #SimonStrong
+

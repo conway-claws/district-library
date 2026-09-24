@@ -610,3 +610,72 @@ Our fourth grade students mastered the idiom "ace in the sleeve" today by discov
 
 Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
 
+### 2026-09-17 · Conway Public Schools (id 13171083)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Julia Lee Moore Elementary (id 13122835)
+
+Wrapping up another great week of learning at JLM! Happy Friday! 🎨📚✨
+
+#JuliaLeeMoore #WeAreJLM #KindergartenLife
+
+### 2026-09-18 · Julia Lee Moore Elementary (id 13174293)
+
+Starting Monday morning, September 21st, our Fall Festival Monster Trash Can is hungry and ready to eat! 
+
+We need your help feeding him to make this year's Fall Festival amazing. Please bring:
+
+🍬 Bags of individually wrapped candy
+🎁 Small prizes
+🥤 2-Liter soda bottles
+
+Drop off your donations at the front office during school hours, right inside the Monster Trash Can all week long! Let's see how full we can get him! 🎉
+
+#JuliaLeeMoore #WeAreJLM #FallFestival
+
+### 2026-09-20 · Julia Lee Moore Elementary (id 13166317)
+
+Kona Ice is coming to JLM on Friday, September 25th. Please return the Kona Ice envelope with exact cash or a check made payable to Kona Ice if you wish to have your child participate. Thank you for supporting JLM!
+
+#JuliaLeeMoore #WeAreJLM #KonaIce
+
+### 2026-09-21 · Julia Lee Moore Elementary (id 13122991)
+
+Fully locked in, focused, and learning! Our students had an absolute blast diving into their music lesson today. 🎶✨
+
+#JuliaLeeMoore #WeAreJLM #MusicEducation #FourthGrade
+
+### 2026-09-21 · Julia Lee Moore Elementary (id 13206489)
+
+Reminder: Field trip permission slips and waivers are due Thursday, October 1st for "Get Moving Arkansas." Students must have both submitted to attend. If you need replacement copies, please contact your child's teacher.
+
+### 2026-09-22 · Julia Lee Moore Elementary (id 13123145)
+
+Little scientists at work! Our kindergartners took their learning outdoors to investigate how temperature changes around the playground, recording their findings just like real scientists. ☀️🌡️📋
+
+#JuliaLeeMoore #WeAreJLM #Kindergarten #LittleScientists
+
+### 2026-09-23 · Julia Lee Moore Elementary (id 13123451)
+
+Munching, crunching, and catching up! Nothing beats the energy of the cafeteria at lunch.🍎🥪 😋
+#JuliaLeeMoore #WeAreJLM #LunchTime #RefuelAndRecharge
+
+### 2026-09-23 · Julia Lee Moore Elementary (id 13217386)
+
+📸 JLM Picture Day is Tuesday, Sept. 29th! Be on the lookout for order forms in your child's backpack today! Payments can be made via cash or check (payable to Strain Photography).
+
+#JuliaLeeMoore #WeAreJLM #PictureDay
+
+### 2026-09-23 · Julia Lee Moore Elementary (id 13234671)
+
+A massive thank you to Uncle Tim's Catering for feeding us today—it was fantastic! 🙌 And a huge shoutout to our first-grade teacher, Ms. Columbus, for winning this delicious reward for us at the Conway Public Schools Teachers' Convocation! You rock! ✨
+
+#JuliaLeeMoore #WeAreJLM #UncleTimsCatering
+
+### 2026-09-24 · Julia Lee Moore Elementary (id 13158525)
+
+Bringing the sunshine indoors with non-stop building, bonding, and epic victories. Nothing beats the smiles and high fives from a fun indoor afternoon! ❤️🙌😊
+
+#JuliaLeeMoore #WeAreJLM #FourthGrade #InsideRecess
+

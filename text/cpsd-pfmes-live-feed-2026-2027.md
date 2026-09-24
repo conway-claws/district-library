@@ -276,3 +276,25 @@ CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENF
 
 Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
 
+### 2026-09-17 · Conway Public Schools (id 13171082)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Preston and Florence Mattison Elementary (id 13183932)
+
+📣 Little Cat Families — please take a moment to review these important school reminders regarding breakfast, afternoon checkouts, car rider procedures, morning drop-off, identification, and transportation changes.
+
+Thank you for helping us keep our students safe and our school day running smoothly! 💙🤍🐾
+
+### 2026-09-18 · Preston and Florence Mattison Elementary (id 13184076)
+
+Dear Mattison Families,
+
+Please take a moment to review the attached reminders regarding arrival, dismissal, student checkouts, identification, and transportation changes.
+Thank you for your cooperation and continued support as we work together to keep our students safe and our school day running smoothly.
+It’s Game Time at Mattison! 💙🤍🐾
+
+### 2026-09-20 · Melissa Spence (id 13193521)
+
+Reminder that Game Day Grub orders are due tomorrow, Monday, September 21st. This is optional. Flyers attached. Thank you for supporting our school!
+

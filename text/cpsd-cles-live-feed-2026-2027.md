@@ -1075,3 +1075,116 @@ Breakfast from the CLE PTO! 💙 Our PTO treated our teachers and staff to break
 
 Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
 
+### 2026-09-17 · Carolyn Lewis Elementary (id 13135080)
+
+We are so proud of Princeton! He helped take care of his classroom without being asked by noticing a mess that was left by someone else, without hesitation! Way to be a CATS kid at CLE!  #WeAreCLE
+
+### 2026-09-17 · Conway Public Schools (id 13171081)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Carolyn Lewis Elementary (id 13161094)
+
+Ms. Storie's classes reviewed identifying figurative language, while playing trash-ketball! Learning is fun!
+
+#WeAreCLE
+
+### 2026-09-18 · Carolyn Lewis Elementary (id 13172065)
+
+Baptist health representatives stopped by CLE to make a garden tool donation for our school garden. Thank you for partnering with us and supporting our students and school garden. #WeAreCLE
+
+### 2026-09-18 · Carolyn Lewis Elementary (id 13173917)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-09-21 · Carolyn Lewis Elementary (id 13163690)
+
+Mrs. Fairchild’s 4th graders partnered up to dive into informational text about the circulatory system.  Students worked together to find and identify key details building their understanding while practicing important reading skills. 
+#WeAreCLE
+
+### 2026-09-21 · Carolyn Lewis Elementary (id 13178406)
+
+Putting a little “heart” into our figurative language!  Mrs. Fairchild’s class explored similes, metaphors, and idioms using heart-themed words and expressions.  #WeAreCLE
+
+### 2026-09-22 · Carolyn Lewis Elementary (id 13207250)
+
+🚲🐾 Bike to School Day at CLE! 🐾🚲
+
+Join us on October 9, 2026, for National Bike to School Day! Bike to school and then grab your blanket and tailgate breakfast with your child at CLE before school starts! 🥞🧺🚲
+
+We can’t wait to see our Little Cats rolling in! 💙
+
+#WeAreCLE
+
+### 2026-09-22 · Carolyn Lewis Elementary (id 13207185)
+
+🐾 LITTLE CAT-A-THON COLOR RUN FUNDRAISER
+Carolyn Lewis Elementary — Little Cats, Big Possibilities!
+
+We’re excited to kick off our Little Cat-a-thon Color Run Fundraiser! Our schoolwide goal is $50,000, and every student will get to participate in the Megathon Adventure Obstacle Course!
+
+📅 Fundraiser: September 15–October 15
+🎉 School Event: October 19 — Color Run & Prizes!
+
+How it works:
+Run • Play • Raise • Repeat! Every donation helps support our school, fuel our students, and create amazing opportunities.
+
+🏆 Class Prize: The top-collecting class wins a Popsicle Party!
+
+⭐ Top Collector Prizes:
+• The top collector in each grade gets to Silly String their grade-level teacher!
+• The top collector in the school wins a Kindle!
+• If our school raises $10,000 or more, 10 Amazon gift cards will be given to the school to distribute among the top collectors. The more we raise, the higher the amount on each card!
+
+⚽ Top Collector Prize Games:
+• Top 2 primary-grade collectors (K–2nd): Each gets 5 chances to kick a soccer ball past their teacher for a chance to win a gold medal.
+• Top 2 elementary-grade collectors (3rd–4th): Each may choose 4 teammates who have qualified for a bracelet to compete in a 5-on-5 dodgeball game.
+
+ 📲 Register online and start collecting donations the website or scanning the QR code on the flyer: https://megadoughshop.com/pumpkin-bash-1827.html
+
+ ▶️ Want to see the prize event in action? Scan the second QR code on the flyer to watch a video sample of the Megathon Adventure!
+
+Together, we can do big things!
+Every donation makes a difference.
+Every student. Every day. A brighter tomorrow.
+
+### 2026-09-22 · Carolyn Lewis Elementary (id 13219341)
+
+💎 We are proud to share that Carolyn Lewis Elementary has been recognized as an Arkansas GEM School!
+CLE earned this honor for demonstrating both high achievement and high growth in ELA—a reflection of the hard work, dedication, and commitment happening in our classrooms every day.
+
+We are incredibly proud of our students for their effort and growth and our teachers for the intentional work they do each day to help every Little Cat succeed.
+
+This recognition belongs to all of Team CLE. Congratulations, Little Cats! 💙🐾💎
+
+### 2026-09-23 · Carolyn Lewis Elementary (id 13213598)
+
+🎃🌈 CLE Pumpkin Bash Color Run Fundraiser! 🌈🎃
+
+Help us color our school brighter together! 💙🐾
+
+Raise $25 and you’ll get to participate in our Chalk Battle, play Carnival Games, AND receive a bracelet! 🎨🎪💜
+
+Ready to join the fun? Register online here:
+https://megadoughshop.com/pumpkin-bash-1827.html
+
+Let’s make this Pumpkin Bash colorful, fun, and unforgettable! 🎃🌈🐾
+
+#WeAreCLE
+
+### 2026-09-23 · Carolyn Lewis Elementary (id 13202993)
+
+Kindergarten had a great time during CATS Club with a dance party!
+
+#WeAreCLE
+
+### 2026-09-23 · Carolyn Lewis Elementary (id 13231522)
+
+💗🐾 Conway Elementary Schools, we’ll see you soon! 🐾💗
+The Lady Cats Annual Change Drive is coming October 9! Bring your spare change and help make a difference. We’ll see you in the morning drop-off line! 💕🏀
+#WeAreCLE
+
+### 2026-09-24 · Carolyn Lewis Elementary (id 13203037)
+
+Kindergarten students looked great wearing green last week! #WeAreCLE
+

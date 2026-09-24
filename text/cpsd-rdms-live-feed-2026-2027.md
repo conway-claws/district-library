@@ -675,3 +675,108 @@ After enjoying their snacks, they wrapped up their time with game time, giving t
 
 What a great way to learn, connect, and have fun! ❤️🐾
 
+### 2026-09-17 · Erika Easley (id 13166386)
+
+The GT classes studied the life cycle of Painted Lady butterflies and raised them from caterpillars. We released them today with songs, poems, and sweet farewells!
+
+### 2026-09-17 · Rachel Fowler (id 13149371)
+
+Hello,
+We had a great meeting last night about our March 2027 trip to Washington DC, Jamestown & Williamsburg! If you were not able to make it, please visit our trip website that includes itinerary highlights, how to register, and other important information. Be sure to watch the video to see just how much fun your student will have on the trip!
+
+Here’s some additional information about our trip:Our Trip ID is 224733 Use this to sign up at worldstrides.com/signup or by phone at 800-468-5899.There’s FLAG financial assistance that may be available to help offset your trip price. You can learn more about FLAG by calling 800-468-5899.Register by September 22nd to save $75 off the trip cost!All the best,
+Angela Rogers
+rogersa@conwayschools.info
+
+### 2026-09-17 · Conway Public Schools (id 13171089)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-18 · Holly Houston Martinazzi (id 13167153)
+
+🎨How amazing is student art when culture and technique come together? 🌶️ In honor of Hispanic Heritage Month, Mrs. Martinazzi’s 7th-grade art students studied the forms and colors of peppers. Using the grid method, they carefully recreated their images and applied value and complementary color schemes to produce striking colored-pencil pieces. Students strengthened drawing skills while celebrating the influence of Hispanic culture on art, food, and tradition.
+
+### 2026-09-18 · Conway Public Schools Athletics (id 13180962)
+
+RDMS Football Players of the Week 
+
+Declan Smith 
+Mason Davis 
+Luke Brown 
+Abbott Young
+
+### 2026-09-19 · Conway Athletics (id 13186805)
+
+Ruth Doyle Volleyball athletes of the week are Violet Janelle, Pryor Webb, Harper Bishop, Harper Casteel, and Janice Jhang.
+
+### 2026-09-20 · Conway Athletics (id 13193648)
+
+Ruth Doyle volleyball enjoying  having fun during “Twin ” day practice.
+
+### 2026-09-21 · Rachel Fowler (id 13199014)
+
+🎉A BIG Wampus Cat shoutout! 🎉
+
+We have some exciting news to celebrate at Ruth Doyle Middle School!
+
+RDMS finished as the top-achieving school in all of Conway Public Schools and tied for 1st place in the district for student growth! 🐾📈
+
+We are incredibly proud of this accomplishment, but what makes the growth piece especially meaningful to us is what it represents.
+
+Achievement tells us where students are. Growth tells us how far we can help them go.
+
+Every student walks through our doors at a different starting point. Some are ahead, some are on grade level, and some are facing significant challenges. Our job is to meet every student where they are and help them grow from there.
+
+That is why this recognition means so much to us. It isn't just about where our students ended up, it is about the progress they made along the way.
+
+This is a reflection of the incredible work of our students, teachers, paraprofessionals, counselors, support staff, and families. It takes an entire school community believing in kids, challenging them, supporting them, and refusing to let their starting point determine their destination.
+
+We are proud of our students. We are grateful for our staff. And we are humbled by the trust our families place in us every day.
+
+Brick by brick, we’re building hope—and helping every Wampus Cat grow. 🐾💙
+
+Way to go, RDMS!
+
+#WeAreRDMS #TeamConway
+
+### 2026-09-21 · Rachel Fowler (id 13201084)
+
+📸Yearbook Picture Day for Ruth Doyle Middle School is October 9. 
+
+Picture order forms are being sent home today, Monday, September 21. 
+
+All students will have their picture taken for the yearbook; no purchase is necessary. 
+
+💲If you wish to purchase photos, please return the completed form and payment on Picture Day.  Money and order form will be turned in to Strain Photography so teachers will not be able to take it if it is brought back early.
+
+### 2026-09-21 · Rachel Fowler (id 13208285)
+
+💖✨ RD FAMILY — IT’S DOLLY DAY! ✨💖
+
+This Friday, September 25, RDMS is celebrating “9 to 5: Dolly Parton Day!” 🎀🎶
+
+In honor of one of the world’s biggest icons and her incredible heart for helping others, we’re asking everyone to THINK DOLLY!
+
+💗 Wear PINK!
+✨ Add some SPARKLE!
+🎀 Rock anything DOLLY PARTON!
+👢 Boots, big hair, rhinestones, bows, country flair — if Dolly would wear it, we want to see it!
+
+Let’s fill RDMS with a little extra pink, sparkle, kindness, and Dolly spirit this Friday!
+
+“Find out who you are and do it on purpose.” — Dolly Parton 💕✨
+
+9 to 5… what a way to make a school day! 🎶
+
+### 2026-09-23 · Rachel Fowler (id 13228535)
+
+Mrs. Willcutt and Mrs. Daniel's WIN time were able to create Symmetry Ghosts with the help of our fantastic Caring Cats. It was a "boo-tiful" way to practice spatial reasoning and reflection while getting into the Halloween spirit!👻💙👻
+
+### 2026-09-23 · Rachel Fowler (id 13230401)
+
+📝✨ Grammar Gallery Walk! ✨📝
+
+Today, our students became grammar detectives! 🔎📚 They practiced identifying and editing sentences, looking for grammar mistakes and making corrections as they moved through our Grammar Gallery Walk.
+
+Learning, collaborating, and putting those editing skills to work—one sentence at a time! 💪📝
+

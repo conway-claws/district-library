@@ -342,3 +342,46 @@ CONWAY PUBLIC SCHOOLS GIFTED & TALENTEDGIFTED & TALENTED REFERRALS ARE NOW OPENF
 
 Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum—focused on Communication, Action, and Transparency!Join us TONIGHT, Thursday, September 17th, from 6:00 to 7:00 PM at the Conway High School Lecture Hall. Our district leaders will share how we’re serving students, supporting our staff, and continuing to strengthen our community.We’re also excited to provide updates on our strategic plan, Project Conway Forward (PC4W), which is dedicated to enhancing educational experiences and outcomes for all our students. You’ll hear about our initiatives, progress, and how we envision our future together.This is a great opportunity to engage, ask questions, and be part of the conversation as we work towards our shared goals. Your voice matters, and we’d love to see you there!Let’s come together to build a stronger Conway!
 
+### 2026-09-17 · Conway Public Schools (id 13171084)
+
+📣 Big news for Conway! Conway Public Schools earns a B district rating for the 2025-2026 school year, with overall performance increasing compared to last year. Several campuses also saw notable score gains. This progress reflects the hard work of our teachers, staff, and administrators, along with the continued commitment of our students and families. We're proud of how far we've come and excited to keep building on this momentum! #TeamConway #WeAreWampusCats Read more here: https://www.conwayschools.org/article/3137990
+
+### 2026-09-21 · Matthew Coatney (id 13205684)
+
+Good afternoon,
+
+I wanted to give everyone a quick update on where we are with our fundraiser. We are just 6 days in, and between online and cash donations, we have already eclipsed $1,700! 🎉
+
+Our goal is to raise $20,000, and we have until October 30th to reach that goal. We have a long way to go, but we are off to a great start!
+
+Thank you so much to everyone who has donated so far. We truly appreciate your support of Ellen Smith Elementary and our students!
+
+If you would rather not participate through the online fundraising option, you can also send cash or a check to the school. Please make checks payable to Ellen Smith PTO.
+
+The money raised will help us fund some exciting opportunities for our students and families throughout the year, including:
+
+👟 Sneaker Ball
+🎪 Spring Carnival
+⭐ Student incentives
+🏃‍♀️ School 5K and 1-Mile Fun Run
+
+I have also attached the flyer that was sent home with students last week with more information about the Adventure Run students will get to participate in as part of our fundraiser.
+
+Thank you again for supporting our students and helping make these events possible. We are excited about what we can accomplish together by October 30th!
+
+Have a great afternoon!
+
+### 2026-09-23 · Matthew Coatney (id 13236445)
+
+See below on what your student gets to participate in on our Adventure Run day if the raise $25. You can donate online through the fundraising portal or send cash/check to the school! Thank you to all who have donated to the fundraiser so far!
+
+### 2026-09-24 · Matthew Coatney (id 13240460)
+
+Yesterday, the school board visited Ellen Smith Elementary, and we had the opportunity to showcase some of the great things happening in our school! We talked about the incredible work our teachers are doing each day and the time, energy, and care they pour into our students.
+
+We’d love to hear from our families! ❤️
+
+What has been your favorite experience or moment at Ellen Smith so far this school year? 
+
+Leave a comment below and let us know! We love hearing about Ellen Smith through the eyes of our students and families! 🐾
+
