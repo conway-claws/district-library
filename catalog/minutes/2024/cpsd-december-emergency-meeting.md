@@ -11,10 +11,10 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-december-emergency-meeting.md
 retrieved: 2026-08-09
-verified: 2026-09-21
+verified: 2026-09-28
 status: current
 tags: [ppc, personnel-policy-committee, minutes, 2024-2025]
-last_check: 2026-09-21
+last_check: 2026-09-28
 fail_since:
 fail_reason:
 ---

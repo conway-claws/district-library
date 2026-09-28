@@ -11,10 +11,10 @@ drive_kind: folder
 rights: public-record
 text:
 retrieved:
-verified: 2026-09-21
+verified: 2026-09-28
 status: current
 tags: [finance, monthly-financial-reports, 2021-2022]
-last_check: 2026-09-21
+last_check: 2026-09-28
 fail_since:
 fail_reason:
 ---
