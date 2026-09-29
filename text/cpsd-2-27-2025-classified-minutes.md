@@ -1,5 +1,3 @@
-# Tab 1
-
 Combined Committees for February
 
 - I. **Date of Meeting:** February 27, 2025

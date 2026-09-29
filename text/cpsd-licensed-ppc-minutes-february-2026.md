@@ -1,5 +1,3 @@
-# 2.17.26
-
 **February Licensed PPC Minutes**
 
 - I. **Date of Meeting:** February 17, 2026

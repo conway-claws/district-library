@@ -1,5 +1,3 @@
-# 25-26
-
 **CPSD EOY Dyslexia Info 2025-2026**
 
 Act 1039 of 2017 Reporting By the School District (Ark. Code Ann. § 6-41-606 (b))
@@ -15,8 +13,6 @@ During the 2025–2026 school year, 649 students enrolled in the Conway Public S
 **Number of Students Identified as Exhibiting the Characteristics of Dyslexia**
 
 During the 2025–2026 school year, a total of 756 students in the Conway Public School District were identified as exhibiting characteristics of dyslexia.
-
-# 24-25
 
 **CPSD EOY Dyslexia Info 2024-2025**
 

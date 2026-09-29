@@ -1,5 +1,3 @@
-# 1.20.26
-
 **January Licensed PPC Agenda**
 
 - I. **Date of Meeting:** January 20, 2026

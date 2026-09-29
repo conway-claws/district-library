@@ -1,5 +1,3 @@
-# 3.17.26
-
 **March Licensed PPC Agenda**
 
 - I. **Date of Meeting:** March 17, 2026

@@ -1,5 +1,3 @@
-# 12.4.25
-
 - I. **Date of Meeting:** December 4, 2025
 
 - II. **Members Present for Quorum:**

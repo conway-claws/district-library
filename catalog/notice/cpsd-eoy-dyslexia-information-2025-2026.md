@@ -10,7 +10,7 @@ drive_id: 1XxaTRHtPFKSQGMXeeZDo4Vqf0Fx0UkRoTAgFPKDC0eY
 drive_kind: file
 rights: public-record
 text: text/cpsd-eoy-dyslexia-information-2025-2026.md
-retrieved: 2026-08-25
+retrieved: 2026-09-29
 verified: 2026-09-28
 status: current
 tags: [notice, dyslexia, state-required, 2025-2026]

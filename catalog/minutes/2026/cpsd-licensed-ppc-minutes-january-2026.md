@@ -10,7 +10,7 @@ drive_id: 1AiEbJVtNG1n_ZBvrzHAST5g8R26eZTgnPUm7Ixr0BgU
 drive_kind: file
 rights: public-record
 text: text/cpsd-licensed-ppc-minutes-january-2026.md
-retrieved: 2026-08-09
+retrieved: 2026-09-29
 verified: 2026-09-28
 status: current
 tags: [ppc, personnel-policy-committee, minutes, 2025-2026]
@@ -18,5 +18,6 @@ date: 2026-01-31
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.1.7
 ---
 Source file 'Licensed PPC Minutes - January 2026' from the [cpsd-ppc-minutes-2025-2026] container; extracted with anydoc.
