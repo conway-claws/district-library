@@ -17,9 +17,9 @@ jobs:
           persist-credentials: false
 
       # RSS is reachable credential-less from GitHub; caption fetching is not
-      # (YouTube walls off datacenter IPs — measured by transcript-probe), so
+      # (YouTube blocks datacenter IPs, as transcript-probe shows), so
       # this job only discovers and mints. Transcripts are made host-side by
-      # bin/seed_youtube.py — no secrets in this repo, none permitted.
+      # bin/seed_youtube.py. The repo holds no secrets.
       - name: Discover new streams
         run: python3 bin/stream_watch.py | tee stream-watch.log
 

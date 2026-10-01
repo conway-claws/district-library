@@ -60,17 +60,17 @@ jobs:
         run: |
           if grep -q '^FAIL ' verify.log; then
             {
-              echo "The weekly verify pass could not reach these sources anonymously — each link opens the record (which now carries fail_since / fail_reason):"
+              echo "The weekly verify pass could not reach these sources anonymously. Each link opens the record (which now carries fail_since / fail_reason):"
               echo
               grep '^FAIL ' verify.log | while read -r _ slug rest; do
                 path=$(find catalog -name "${slug}.md" | head -1)
-                echo "- [\`$slug\`](https://github.com/${GITHUB_REPOSITORY}/blob/main/${path}) — ${rest}"
+                echo "- [\`$slug\`](https://github.com/${GITHUB_REPOSITORY}/blob/main/${path}): ${rest}"
               done
               echo
               echo "Repeated failures mean the record should move to \`status: vanished\` or the source should be re-pinned."
             } > issue-body.md
             gh issue create \
-              --title "verify: $(grep -c '^FAIL ' verify.log) unreachable source(s) — $(date -u +%F)" \
+              --title "verify: $(grep -c '^FAIL ' verify.log) unreachable source(s), $(date -u +%F)" \
               --body-file issue-body.md \
               --label verify
           fi

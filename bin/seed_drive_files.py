@@ -29,7 +29,7 @@ def view_title(file_id):
         "utf-8", errors="replace")
     m = re.search(r"<title>(.*?)</title>", page, re.S)
     if not m or "Google Drive" not in m.group(1):
-        raise ValueError("no public /view title — file may not be public")
+        raise ValueError("no public /view title; file may not be public")
     return html.unescape(m.group(1)).replace(" - Google Drive", "").strip()
 
 

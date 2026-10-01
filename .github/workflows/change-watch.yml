@@ -25,7 +25,7 @@ jobs:
       - name: Install extraction dependencies
         run: sudo apt-get update && sudo apt-get install -y poppler-utils tesseract-ocr
 
-      # anydoc runs locally on the runner via npx (pinned in bin/) — no API key,
+      # anydoc runs locally on the runner via npx (latest release), with no API key,
       # which keeps this job credential-less like verify.
       - name: Refetch and re-extract all tier-1 sources
         run: python3 bin/change_watch.py | tee change-watch.log
@@ -74,7 +74,7 @@ jobs:
               echo "The weekly change-watch pass found source documents that changed (or could not be safely re-extracted)."
               echo
               if grep -q '^CHANGED ' change-watch.log; then
-                echo "Changed — each link opens that document's diff in the capture commit:"
+                echo "Changed. Each link opens that document's diff in the capture commit:"
                 echo
                 # GitHub anchors a file's diff by the SHA-256 of its repo path
                 grep '^CHANGED ' change-watch.log | while read -r _ slug; do
@@ -84,7 +84,7 @@ jobs:
                 echo
               fi
               if grep -q '^SUSPECT ' change-watch.log; then
-                echo "Suspect — fresh extraction refused (empty, shrunken, or an error page); the committed text was left alone:"
+                echo "Suspect. Fresh extraction refused (empty, shrunken, or an error page); the committed text was left alone:"
                 echo
                 echo '```'
                 grep '^SUSPECT ' change-watch.log
@@ -99,7 +99,7 @@ jobs:
               fi
             } > issue-body.md
             gh issue create \
-              --title "change-watch: $(grep -c '^CHANGED ' change-watch.log) changed, $(grep -cE '^(SUSPECT|FAIL|RETRY-EXHAUSTED) ' change-watch.log) flagged — $(date -u +%F)" \
+              --title "change-watch: $(grep -c '^CHANGED ' change-watch.log) changed, $(grep -cE '^(SUSPECT|FAIL|RETRY-EXHAUSTED) ' change-watch.log) flagged, $(date -u +%F)" \
               --body-file issue-body.md \
               --label change-watch
           fi

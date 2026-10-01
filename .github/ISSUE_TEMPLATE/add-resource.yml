@@ -40,5 +40,5 @@ body:
     attributes:
       label: Access
       options:
-        - label: This resource opens without any login (public records only — see README)
+        - label: This resource opens without any login (public records only; see README)
           required: true

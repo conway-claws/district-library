@@ -12,7 +12,7 @@ record's text came from an older anydoc than this run's (stale_extractor), so
 each upstream release re-extracts every affected record exactly once. Diffs are
 compared after whitespace normalization so re-renders don't read as content
 changes, and a fresh extraction that comes back empty or sharply shrunken is
-refused (SUSPECT) rather than committed — a soft-404 or extractor failure must
+refused (SUSPECT) rather than committed: a soft-404 or extractor failure must
 not overwrite good text. Prints CHANGED/SAME/SUSPECT/FAIL/RETRY-EXHAUSTED per
 record; the workflow turns CHANGED lines into commits and an issue.
 """

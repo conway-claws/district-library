@@ -6,10 +6,10 @@ Usage: python3 bin/verify.py [--only <slug> [<slug> ...]]
 Runs with no credentials on purpose: a source this script cannot reach is not
 public enough for this catalog. Every probe stamps `last_check:`; success stamps
 `verified:` and clears any failure fields; failure stamps `fail_since:` (first
-failing date, kept until a success) and a one-line `fail_reason:` — so a clone
+failing date, kept until a success) and a one-line `fail_reason:`, so a copy
 of the catalog answers "how long has this source been dark" without GitHub.
 A 200 is not enough: binary formats must open with their magic bytes, so a
-soft-404 or parked page no longer counts as alive. Never flips status itself —
+soft-404 or parked page no longer counts as alive. Never flips status itself:
 a human moves a repeatedly-failing record to `vanished`.
 """
 
@@ -37,7 +37,7 @@ def fetch_head(url):
 def fetch_ok(rec, url):
     status, final, head = fetch_head(url)
     # A private Drive object redirects to the Google sign-in page and still
-    # returns 200 — landing on accounts.google.com means "not public".
+    # returns 200: landing on accounts.google.com means "not public".
     if "accounts.google.com" in final:
         return False, "redirected to Google sign-in (not public)"
     if status != 200:
@@ -47,7 +47,7 @@ def fetch_ok(rec, url):
         if rec.get("drive_id") and rec.get("drive_kind") != "folder":
             # large public files answer uc?export=download with an HTTP-200 HTML
             # scan interstitial; the usercontent host skips it (same fallback as
-            # seed_drive_folder.download) — retry there before calling it dead
+            # seed_drive_folder.download), so retry there before calling it dead
             status, final, head = fetch_head(
                 "https://drive.usercontent.google.com/download"
                 f"?id={rec.get('drive_id')}&export=download&confirm=t")
@@ -59,7 +59,7 @@ def fetch_ok(rec, url):
 
 
 def probe(rec, url):
-    """(ok, reason) with one retry — a transient blip must not stamp fail_since."""
+    """(ok, reason) with one retry; a transient blip must not stamp fail_since."""
     try:
         return fetch_ok(rec, url)
     except Exception:  # noqa: BLE001 - retry once

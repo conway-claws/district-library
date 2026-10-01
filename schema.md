@@ -1,9 +1,8 @@
 # Record schema
 
-One markdown file per resource under `catalog/<type>/`, flat YAML frontmatter, then a
-one-or-two-line body: what this is and why it is in the library. The **slug** is the
-filename stem and is the record's stable ID — everything references the slug, never
-the path.
+One markdown file per document under `catalog/<type>/`: flat YAML frontmatter, then
+a one- or two-line body saying what the document is. The slug is the filename stem
+and the record's stable ID. Everything references the slug, never the path.
 
 ```markdown
 ---
@@ -44,84 +43,84 @@ records drive) do not belong in this catalog.
 | `title` | yes | Human title, authority first where one exists |
 | `org` | yes | Owner/publisher: `conway-public-schools`, `state-of-arkansas`, `media`, … |
 | `unit` | no | School or department within the district (`conway-high-school`, `athletics`, …); blank = district-wide |
-| `type` | yes | `policy` `minutes` `finance` `statute` `news` `site` `drive` `form` `dataset` `media` `plan` `handbook` `calendar` `notice` `feed` — must match the record's folder |
+| `type` | yes | `policy` `minutes` `finance` `statute` `news` `site` `drive` `form` `dataset` `media` `plan` `handbook` `calendar` `notice` `feed`; must match the record's folder |
 | `format` | yes | What the original is: `pdf` `docx` `xlsx` `pptx` `html` `gdoc` `gsheet` `folder` `video` `csv` … |
 | `location` | yes | Where it lives: `district-site` `boarddocs` `drive` `state-site` `news` … |
 | `url` | one of url/drive_id, unless `status: pending` | Direct link to the resource |
-| `drive_id` | (same) | Google Drive file/folder ID — IDs outlive share URLs |
+| `drive_id` | (same) | Google Drive file or folder ID; IDs outlive share URLs |
 | `drive_kind` | if drive_id set | `file` (default) or `folder` |
-| `rights` | yes | `public-record` (gov record; extraction default) · `public-web` (public but transient, revocable, or rights-encumbered — live-feed captures and caption transcripts live here; extraction allowed, and feed content honors the removal policy in the README) · `restricted` (pointer only, **never** an extraction) |
+| `rights` | yes | `public-record` (gov record; extraction default) · `public-web` (public but transient, revocable, or rights-encumbered: live-feed captures and caption transcripts; extraction allowed, and feed content follows the removal policy in the README) · `restricted` (pointer only, never an extraction) |
 | `text` | no | Exactly `text/<slug>.md`; presence = tier 1 |
 | `retrieved` | if `text` set | Date the extraction was captured |
 | `verified` | no | Stamped by `bin/verify.py`; blank until first successful anonymous fetch |
-| `date` | no | The document's own date (meeting held, policy last revised, reporting month ended), `YYYY-MM-DD` — distinct from the capture dates above |
+| `date` | no | The document's own date (meeting held, policy last revised, reporting month ended), `YYYY-MM-DD`; distinct from the capture dates above |
 | `sha256` | no | Hex digest of the fetched source bytes, stamped at seed/re-extraction. Only byte-stable sources carry it; gdoc/gsheet exports are re-zipped per request and are never hashed |
-| `extractor` | no | Tool that produced the extraction, `name@version` (e.g. `anydoc@0.2.4`, `tesseract@5.5.1+pdftoppm`, `pdftotext@25.07.0+finance-table`, `yt-dlp@2026.07.04`). Blank on extractions made before provenance stamping began (2026-08) |
-| `last_check` | no | Stamped by `bin/verify.py` on **every** probe, success or failure — "when did automation last look" |
-| `fail_since` | no | First date the source failed anonymous fetch; kept until a success clears it. With `fail_reason`, the record itself carries the negative observation ("404 on anonymous fetch since 2026-08-09") instead of an expiring CI log |
+| `extractor` | no | Tool that produced the extraction, `name@version`: `anydoc@0.2.4`, `tesseract@5.5.3+pdftoppm`, `anydoc@0.2.4+tesseract@5.5.3` (scanned pages OCR'd, the rest anydoc), `pdftotext@26.08.0+finance-table`, `yt-dlp@2026.07.04`. Blank on extractions older than the stamp; change-watch treats a blank or older anydoc stamp as due for re-extraction |
+| `last_check` | no | Stamped by `bin/verify.py` on every probe, success or failure |
+| `fail_since` | no | First date the source failed anonymous fetch; kept until a success clears it. With `fail_reason`, the failure lives in the record ("404 on anonymous fetch since 2026-08-09"), not only in a CI log that expires |
 | `fail_reason` | no | One line, ≤120 chars, set/cleared with `fail_since` |
 | `supersedes` | no | Slug of the older revision this record replaces |
-| `superseded_by` | no | Slug of the successor; requires `status: superseded`. This is the machine answer to "which text is current" — see Supersession below |
+| `superseded_by` | no | Slug of the successor; requires `status: superseded`. See Supersession below |
 | `status` | yes | `pending` (source not yet pinned) · `current` · `superseded` (set `superseded_by`, or for an instrument that expired with no successor, a body note) · `vanished` (verify failing; flipped by a human, not the runner) |
-| `tags` | yes | `[a, b, c]` — topics, statutes, initiatives; this is where the taxonomy lives |
+| `tags` | yes | `[a, b, c]`: topics, statutes, initiatives |
 
 ## Supersession
 
-The district's containers genuinely hold multiple revisions of the same policy, and its
-CMS pages post the same document at more than one asset URL. Both revisions stay in the
-catalog (each published asset URL is watched independently), but only one may be
-`status: current`:
+The district's folders hold more than one revision of some policies, and its CMS
+posts some documents at more than one URL. Every posting keeps a record, since each is
+watched separately, but only one may be `status: current`:
 
-- An older **revision** gets `status: superseded` + `superseded_by:`; the survivor gets
+- An older revision gets `status: superseded` and `superseded_by:`; the survivor gets
   `supersedes:`. Lint enforces that two current policy records never share a policy
   number (the leading `8-42`-style component of the slug).
-- A byte-identical **duplicate posting** is retired to a pointer record: `superseded`,
+- A byte-identical duplicate posting becomes a pointer record: `superseded`,
   `superseded_by:` the survivor, extraction deleted, body note saying it is a duplicate
   posting rather than a revision.
-- The convention for humans stays in the body: a one-line note naming the sibling and
-  the relationship (`Superseded revision; the current text is [slug].`). The `-2`/`-dup`
-  slug suffixes are mint-time collision artifacts and carry no meaning on their own —
-  the frontmatter, not the suffix, says which text is current.
+- The body carries a one-line note naming the sibling and the relationship
+  (`Superseded revision; the current text is [slug].`). The `-2` and `-dup` slug
+  suffixes only resolve name collisions at seeding and mean nothing; the frontmatter
+  says which text is current.
 
 ## Slug conventions
 
 Lowercase, hyphenated, authority/date first where natural:
 `ark-code-6-24-105-nepotism`, `2026-07-24-nea-conway-board-foia-ruling`,
 `cps-board-policy-1-14-vacancies`. Minutes are date-first
-(`cpsd-2026-05-12-board-minutes`) — the seeders compose this from the meeting date in
-the district's filename, so IDs sort chronologically and never collide.
+(`cpsd-2026-05-12-board-minutes`): the seeders take the meeting date from the
+district's filename, so IDs sort by date and never collide.
 
 ## Folder rules
 
 - `catalog/<type>/` only. A year subfolder (`catalog/minutes/2026/`) is allowed once a
   type's listing gets unwieldy (~50 records). Nothing deeper; year-less records live in
   the type root.
-- Moving a record between allowed folders is free — nothing links by path except its own
-  `text:` field, which is keyed by slug and does not move.
+- A record can move between allowed folders freely. Nothing links by path except its
+  own `text:` field, which is keyed by slug and does not move.
 
 ## Citing the library
 
-Cite a document as: **slug · official source URL · pinned raw URL**. The official URL
-comes from the record (`url`, or derived from `drive_id` — `catalog.jsonl` carries it
-resolved as `source_url`). The pinned raw URL is
+Cite a document as slug · official source URL · pinned raw URL. The official URL is
+the record's `url`, or derived from `drive_id`; `catalog.jsonl` carries it resolved as
+`source_url`. The pinned raw URL is
 
 ```
 https://raw.githubusercontent.com/conway-claws/district-library/<commit>/text/<slug>.md
 ```
 
-which is immutable even after later re-extractions. `catalog.jsonl` carries each
-record's `raw_url` on the `main` ref plus a first-line `_meta.generated_at_commit`;
-substitute that commit for `main` to pin. (The jsonl committed by a scheduled workflow
-is generated after its content commit, so its `generated_at_commit` is a true pin; a
-hand push regenerates moments later via the lint-and-index workflow.)
+which does not change when the document is later re-extracted. `catalog.jsonl`
+carries each record's `raw_url` on `main` and, on line 1, `_meta.generated_at_commit`;
+put that commit in place of `main` to pin. The MCP server's results are already
+pinned. (A workflow generates the jsonl after its content commit, so the commit it
+names holds that content; a hand push is regenerated minutes later by
+lint-and-index.)
 
 ## Machine consumers
 
-`catalog.jsonl` at the repo root is the machine entry point: line 1 is a `_meta`
-object, then one JSON object per record — all non-empty frontmatter plus `tags[]`,
-`source_url` (resolved), `text_bytes`/`text_sha256`/`raw_url` for tier-1 records, and
-`body`. Regenerated with the index by `bin/lint_index.py`. `AGENTS.md` documents the
-conventions; `bin/mcp_server.py` serves the same data as MCP tools.
+`catalog.jsonl`: line 1 is a `_meta` object, then one JSON object per record with
+all non-empty frontmatter, `tags[]`, resolved `source_url`, `text_bytes`,
+`text_sha256` and `raw_url` for records with text, and `body`. `bin/lint_index.py`
+regenerates it with the indexes. `bin/mcp_server.py` serves the same data as MCP
+tools, from a checkout or over HTTPS; see [AGENTS.md](AGENTS.md).
 
 ## Lint (enforced by `bin/lint_index.py`; the scheduled workflows run it before every commit)
 

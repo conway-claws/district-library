@@ -9,7 +9,7 @@ permissions:
   contents: read
 
 jobs:
-  # PR path: read-only — it executes the PR's own lint code, so it gets no token
+  # PR path: read-only. It runs the PR's own lint code, so it gets no token
   lint-pr:
     if: github.event_name == 'pull_request'
     runs-on: ubuntu-latest
@@ -20,7 +20,7 @@ jobs:
       - name: Lint catalog
         run: python3 bin/lint_index.py --check
       - name: Search smoke test
-        run: python3 bin/search.py "board policy student transfers" --limit 1
+        run: python3 bin/mcp_server.py search "board policy student transfers" --limit 1
 
   index-push:
     if: github.event_name == 'push'

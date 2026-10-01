@@ -6,7 +6,7 @@ policy, and its CMS pages post the same contract more than once; seeding
 faithfully minted them all as `status: current`, which made the catalog vouch
 for repealed policy text. This pass flips each older revision to `superseded`
 with a `superseded_by:` link (decisions below were made by diffing the pair and
-reading Last Revised lines — recorded here, not inferred at runtime), retires
+reading Last Revised lines, recorded here rather than inferred at runtime), retires
 byte-identical duplicate postings to pointer-only records, and chains the
 superintendent contract lineage. Idempotent; kept in bin/ as the record of what
 was decided and why.
@@ -15,7 +15,7 @@ was decided and why.
 from catalog import ROOT, records
 
 # (older slug, newer slug, kind); kind 'revision' links both directions,
-# 'duplicate' retires the older to pointer-only (text deleted — byte-identical
+# 'duplicate' retires the older to pointer-only (text deleted: byte-identical
 # to the survivor's) with only superseded_by set: a duplicate posting is not a
 # revision, so the survivor claims no `supersedes` lineage over it.
 DECISIONS = [

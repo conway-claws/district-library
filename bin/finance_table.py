@@ -2,7 +2,7 @@
 
 The reports are born-digital Excel PDFs whose tables collapse under flow-order
 extraction (figures glom into one cell, labels into another). `pdftotext -layout`
-keeps the column geometry, so every figure reads on the same line as its label —
+keeps the column geometry, so every figure reads on the same line as its label:
 the property an agent needs to answer "what was state revenue in August". The
 output is the layout text in fenced blocks, one per page, not a reconstructed
 markdown table: reconstruction is where the mis-mapping risk lives.

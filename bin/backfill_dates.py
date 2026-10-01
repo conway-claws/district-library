@@ -5,7 +5,7 @@
 reporting month ended) as distinct from retrieved/verified, which are capture
 dates. Sources tried in order: an ISO or M-D-Y date in the slug, a month-name
 plus year in the slug (monthly reports date to month end), a date in the title,
-then the extraction's Date Adopted / Last Revised footer (Last Revised wins —
+then the extraction's Date Adopted / Last Revised footer (Last Revised wins:
 it is the revision the text embodies). Ambiguous records stay blank: a wrong
 date is worse than none. Feed records span a school year and get no date.
 Idempotent: records with a date already set are left alone.

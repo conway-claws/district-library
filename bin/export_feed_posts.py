@@ -2,8 +2,8 @@
 """Regenerate exports/feed-posts.jsonl from the live-feed capture anchors.
 
 The 85 per-school-year feed files are the corpus's chunking-hostile tail (up to
-480KB each); this export makes the same 19k+ posts individually addressable —
-one JSON line per post — for embedding pipelines and anything else that wants
+480KB each). This export makes the same 19k+ posts individually addressable,
+one JSON line per post, for embedding pipelines and anything else that wants
 units instead of files. Derived entirely from the `### date · author (id N)`
 anchors, so the append-only text/ contract is untouched; feed-watch re-runs it
 after each capture. Posts redacted by the reconcile pass export with

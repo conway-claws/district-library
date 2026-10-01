@@ -8,7 +8,7 @@ body:
       value: |
         The library honors removal of **live-feed captures** (school social posts):
         they are transient communications, and a post the district deletes upstream
-        is redacted here on the next weekly reconcile pass — this form covers
+        is redacted here on the next weekly reconcile pass. This form covers
         anything that pass missed or that needs to move faster. Board minutes,
         policies, contracts, and financial reports are the permanent public record
         and are not subject to removal. Redaction applies going forward: the
@@ -19,7 +19,7 @@ body:
     id: what
     attributes:
       label: What should be removed
-      description: A link to the file in this repository, a post date and school, or the text itself — enough to find it.
+      description: A link to the file in this repository, a post date and school, or the text itself: enough to find it.
     validations:
       required: true
   - type: textarea

@@ -33,7 +33,7 @@ YTDLP = ["yt-dlp", "--js-runtimes", "node"]
 
 def _run(args, timeout):
     """subprocess.run wrapper that reports failures as returncode + stderr tail,
-    not str(exc) — the raw exception text embeds the full argv."""
+    not str(exc): the raw exception text embeds the full argv."""
     try:
         return subprocess.run(args, capture_output=True, timeout=timeout, check=True)
     except (subprocess.CalledProcessError, subprocess.TimeoutExpired) as exc:
@@ -100,7 +100,7 @@ def mint(video_id, title, existing_slugs, today):
         n += 1
         slug = f"{base}-{n}"
     ymatch = re.search(r"20\d\d", title)
-    # year-less titles land in the type root — the one layout lint allows
+    # year-less titles land in the type root, the one layout lint allows
     parent = ROOT / "catalog" / "media" / ymatch.group(0) if ymatch else ROOT / "catalog" / "media"
     parent.mkdir(parents=True, exist_ok=True)
     (parent / f"{slug}.md").write_text("\n".join([

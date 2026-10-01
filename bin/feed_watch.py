@@ -16,7 +16,7 @@ their files.
 
 Reconcile honors the district's own takedown mechanism: a post deleted upstream
 (including a parent revoking directory-information consent) gets its captured
-body redacted in place — the `### date · author (id N)` header line stays, so
+body redacted in place. The `### date · author (id N)` header line stays, so
 dedupe still counts it and a briefly-reappearing post is never re-appended. A
 feed whose walk hit any SKIPped page is exempt that run: a transient 500 must
 not manufacture a false "removed upstream". (Persistent bad pages move at a
@@ -158,7 +158,7 @@ def entry(post):
 
 
 def walk_feed(org_id, section_id, slug_frag):
-    """(posts, clean) — the feed's full history; clean means zero SKIPped pages."""
+    """(posts, clean): the feed's full history; clean means zero SKIPped pages."""
     posts, clean = [], True
     page_no, bad_streak = 1, 0
     while True:

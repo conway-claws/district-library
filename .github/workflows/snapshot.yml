@@ -1,8 +1,7 @@
 name: snapshot
 
-# Monthly checksummed dataset release: a versioned "the library as of date X"
-# artifact that archives, researchers, and mirrors can take without a git
-# clone, and an evidence point that outlives any single commit's reachability.
+# Monthly checksummed release of the library as of that date, for archives and
+# mirrors that want the data without git history.
 
 on:
   schedule:
@@ -36,7 +35,7 @@ jobs:
         run: |
           set -euo pipefail
           if gh release view "$TAG" > /dev/null 2>&1; then
-            echo "release $TAG already exists — skipping"
+            echo "release $TAG already exists, skipping"
             exit 0
           fi
           gh release create "$TAG" "$ZIP" SHA256SUMS \

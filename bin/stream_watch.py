@@ -53,7 +53,7 @@ def main():
             n += 1
             slug = f"{base}-{n}"
         ymatch = re.search(r"20\d\d", title)
-        # year-less titles land in the type root — the one layout lint allows
+        # year-less titles land in the type root, the one layout lint allows
         parent = ROOT / "catalog" / "media" / ymatch.group(0) if ymatch else ROOT / "catalog" / "media"
         parent.mkdir(parents=True, exist_ok=True)
         (parent / f"{slug}.md").write_text("\n".join([

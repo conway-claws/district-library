@@ -10,7 +10,7 @@ mints only the new ones. Anonymous download doubles as the publicness proof, so
 minted records are stamped verified.
 
 Reads the folder's embedded first-page listing (~50 items); a folder bigger than
-that needs pagination this script doesn't do — it warns if the page looks full.
+that needs pagination this script doesn't do. It warns if the page looks full.
 """
 
 import functools
@@ -81,11 +81,11 @@ def list_folder(folder_id):
         "utf-8", errors="replace")
     m = re.search(r"window\['_DRIVE_ivd'\]\s*=\s*'(.*?)';", html, re.S)
     if not m:
-        raise ValueError("no embedded listing — folder empty or not public")
+        raise ValueError("no embedded listing; folder empty or not public")
     blob = m.group(1).replace("\\/", "/")
     items = json.loads(_decode_js_escapes(blob))[0] or []
     if len(items) >= 50:
-        print(f"WARN folder {folder_id} listing has {len(items)} items — "
+        print(f"WARN folder {folder_id} listing has {len(items)} items; "
               "first page only, pagination not implemented")
     return [(it[0], it[2].strip(), it[3]) for it in items]
 
@@ -223,8 +223,8 @@ def extract_document(data, fmt, rtype=None):
 
     Returns (markdown, extractor_tag) so the record carries provenance. Finance
     PDFs go through the layout-preserving table path first; a thin anydoc result
-    on any PDF (words/page below the floor) is OCR'd too and the longer text wins
-    — anydoc exiting 0 with a fraction of the document is how truncations got in.
+    on any PDF (words/page below the floor) is OCR'd too and the longer text wins,
+    because anydoc can exit 0 with a fraction of the document.
     A PDF anydoc rejects for some scanned pages is split: those pages are OCR'd,
     the rest still go through anydoc, so one scanned cover never costs a
     document its text layer.
@@ -355,7 +355,7 @@ def mint(container, file_id, name, mime, existing_slugs, existing_ids, policy_nu
             # a second current text for one policy number needs a human: mint it
             # by hand and mark the loser superseded, or the catalog contradicts itself
             return (f"SKIP {name} (policy {num} already current as "
-                    f"{policy_nums[num]} — supersede one by hand)")
+                    f"{policy_nums[num]}; supersede one by hand)")
 
     parent = record_dir(container)
     if parent is None:
