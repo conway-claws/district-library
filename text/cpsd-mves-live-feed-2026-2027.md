@@ -1053,3 +1053,187 @@ After reading Rap a Tap Tap, our kindergarten students brought the story to life
 
 #KindergartenLearning#WeAreMVE
 
+### 2026-09-24 · Audrey Cooper (id 13244752)
+
+A speciall THANK YOU  to the Conway Chamber of Commerce, Conway Area Leadership Institute, for helping us greet our students this morning!
+
+### 2026-09-24 · Audrey Cooper (id 13244577)
+
+A big  THANK YOU to Century 21 Sandstone Real Estate Group for treating our staff to snacks today! We are so grateful for our amazing community partners and their continued support of Marguerite Vann Elementary. 💙🐾
+
+#ThankfulThursday #CommunityPartners #WeAreMVE
+
+### 2026-09-25 · Audrey Cooper (id 13260173)
+
+💦 Dunk A Principal Fundraiser Update! 💦
+
+Our Dunk A Principal Fundraiser has been rescheduled for Monday, September 28! 🎯💦
+
+We look forward to all the fun and appreciate your support of Marguerite Vann Elementary! 💙🐾
+
+### 2026-09-25 · Conway Public Schools (id 13260360)
+
+We are proud to celebrate the incredible progress our students and educators made on the ATLAS state assessments! Several of our schools showed significant growth in overall school scores and performance levels.
+
+These results represent more than numbers, they represent students learning, teachers teaching, and schools growing together. We are grateful to our students, teachers, administrators, and families for their continued commitment to excellence.
+
+Theodore Jones Elementary: +67 points (less than 1 point away from a B)
+Conway High School: +46 points (including a 12-point gain in literacy)
+Simon Middle School: +44 points (moved from a C to a B)
+Marguerite Vann Elementary: +42 points (moved from a D to a C)
+Jim Stone Elementary: +36 points (moved from a C to a B)
+Woodrow Cummins Elementary: +29 points (moved from a C to a B)
+
+We are so proud of this growth and excited for what is ahead! #WeAreWampusCats #TeamConway
+
+### 2026-09-25 · Audrey Cooper (id 13264567)
+
+What a great day at Marguerite Vann! 💙🐾
+
+We kicked off our first Character Assembly of the year with a very special guest—Miss Arkansas 2026, Ava Weeks! 👑 We are especially proud to welcome Ava back because she is a former Marguerite Vann student! What a wonderful opportunity for our students to hear from someone who once walked the same halls they do today.
+
+We are also so proud of the students who were recognized with Character Awards for RESPECT this month! 🌟 These students have done an outstanding job demonstrating respect for others and being positive examples throughout our school. Way to go!
+
+The learning and celebrating continued in the library, where students are learning about Hispanic Heritage Month and the rich cultures and traditions it honors. To make the experience even sweeter, every student enjoyed a paleta today!🌎📚🍧
+
+It was a day filled with character, culture, learning, and fun! We love making memories at Marguerite Vann! 💙🐾
+
+#WeAreMVE#CharacterMatters
+
+### 2026-09-27 · Audrey Cooper (id 13270289)
+
+💛 A BIG THANK YOU to our amazing PTO! 💛
+
+We are so grateful for the time, energy, and heart our PTO pours into Marguerite Vann Elementary! From supporting special events to providing resources and creating memorable experiences for our students and staff, your dedication makes a difference throughout our school. 🏫❤️
+
+Thank you for always being willing to lend a hand and for helping make Marguerite Vann such a special place to learn, grow, and belong.
+
+We appreciate ALL that you do! 🌟
+
+#WeAreMVE #ThankYouPTO #Grateful #LevelUp
+
+### 2026-09-27 · Audrey Cooper (id 13270329)
+
+🌟 Great things are happening at MVE!🌟
+
+From learning and creating in art class 🎨, to enjoying the cooler temperatures at recess 🍂, to celebrating students who earn Pawsitive Office Referrals🐾💙—there is always something to smile about at Marguerite Vann Elementary!
+
+We love seeing our students learn, grow, create, and make positive choices each and every day. It’s a great time to be at MVE! 💙🐾
+
+#WeAreMVE#GreatThingsAreHappening
+
+### 2026-09-28 · Audrey Cooper (id 13270342)
+
+🌎❤️ More special moments from Hispanic Heritage Month at MVE!❤️🌎
+
+Our students have been learning through meaningful experiences at school. We love providing opportunities that help our students learn more about the cultures and traditions that make our world so special! 🎉
+
+A HUGE thank you to our amazing PTO and Ms. Etter for helping make this wonderful experience possible for our students and staff. Your time, support, and dedication helped create memories that our MVE students and staff will cherish! 💙🐾
+
+#WeAreMVE
+
+### 2026-09-28 · Audrey Cooper (id 13289418)
+
+💦 Dunk A Principal Day was a SPLASH! 💦
+
+Our students had so much fun participating in Dunk A Principal Day! There were lots of smiles, laughter, and excitement as students took their best shot at sending our principals into the water! 🎯💦
+
+Thank you to everyone who participated and helped make this day such a fun and memorable experience for our students. We love creating special moments and making memories together at MVE! 💙
+
+#WeAreMVE
+
+### 2026-09-29 · Audrey Cooper (id 13289353)
+
+📚✏️ ATLAS Testing is Coming Up!
+
+Our 3rd and 4th grade students will complete ATLAS Interim I testing on October 1, 5, 6, and 7. October 8-9 will be make-up testing days.
+
+Families, you can help your student be ready to do their very best by making sure they:
+
+⏰ Arrive at school on time each day  
+😴 Get a good night's sleep
+🍎 Eat a nutritious breakfast
+💪 Come to school ready to focus and do their best
+
+We are so proud of our students and all the hard work they put in each day. We believe in you!🐾💙
+
+#WeAreMVE
+
+### 2026-09-29 · Audrey Cooper (id 13289368)
+
+📸 Say Cheese, MVE! Picture Day is Coming!
+
+MVE Picture Day is Wednesday, September 30! 🍎📚
+
+Order forms were sent home with students last week. Please be sure to check backpacks and have your child ready to show off their best smile! 😁
+
+If you have any questions, please reach out to your child's teacher through Thrillshare.
+
+We can't wait to see all of our MVE students looking picture-perfect! 💙📸
+
+### 2026-09-29 · Audrey Cooper (id 13296594)
+
+The Conway Art Walk is this Friday, October 2, from 5:00pm - 8:00pm. The Vann Maker Club will have a booth set up on Chestnut Street if anyone would like to stop by! The students will be selling 3D printed items this week. We hope to expand our wares for next month!
+
+### 2026-09-29 · Audrey Cooper (id 13302894)
+
+🚒🔥 Fire Safety at MVE!🔥🚒
+
+A special thank you to the Conway Fire Department for visiting MVE and helping our students learn important lessons about fire safety! Our students enjoyed learning from our local firefighters and practicing ways to stay safe in an emergency.
+
+And remember—if your clothes ever catch fire: STOP, DROP, and ROLL!🛑⬇️🔄
+
+Thank you, Conway Fire Department, for taking the time to educate our students and help keep our community safe! ❤️🚒
+
+#MVE #FireSafety #ConwayFireDepartment
+
+### 2026-09-30 · Audrey Cooper (id 13309446)
+
+This is a friendly reminder that we will have our monthly PTO meeting this Thursday evening, October 1st, from 6:00-6:30pm in the counselor's room 116 at MVE. 
+
+It is completely free to join, and we would love to have you involved! Children are welcome to attend.
+
+
+Whether you can make in-person meetings or not, please join our GroupMe to stay informed: https://groupme.com/join_group/116475754/E5aWMdvO 
+
+
+Also, if you would like to help our teachers by making copies, sign up here to volunteer:  https://www.signupgenius.com/go/10C0E48AAAA2AA4FDCF8-65580111-help 
+
+
+Hope to see you soon! 
+
+
+Kindly,
+
+Leah Stauffer and MVE PTO
+
+### 2026-09-30 · Audrey Cooper (id 13320062)
+
+⚽️ Matching Monday! ⚽️
+
+Our Vann students are showing off their matching Messi gear and celebrating one of soccer’s all-time greats! 💙⚽️
+
+Wishing Lionel Messi all the best as he wraps up his international playing career. Our students loved showing their Messi spirit for Matching Monday! 🌟
+
+#WeAreMVE
+
+### 2026-09-30 · Audrey Cooper (id 13320169)
+
+🔤 Phonics Skills in Action! 🔤
+
+Our students are putting their phonics skills into action! Today, they used magnetic tiles to build and spell short  "i" words. 
+
+This hands-on activity gives students a fun and engaging way to practice identifying sounds, blending words, and connecting sounds to letters. We love seeing our students build strong foundational reading skills while learning through hands-on practice! 📚✨
+
+#WeAreMVE
+
+### 2026-10-01 · Audrey Cooper (id 13326132)
+
+💙 Learning and Growing Together! 💙
+
+A special thank you to the D3/G3 students from Carl Stuart Middle School for spending time with our students today and helping them with a special project! 🌟
+
+We love seeing students work together, build connections, and support one another. Thank you for making today extra special for our  students! ☀️💙
+
+#WeAreMVE
+

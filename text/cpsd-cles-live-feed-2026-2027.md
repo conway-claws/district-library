@@ -1188,3 +1188,112 @@ The Lady Cats Annual Change Drive is coming October 9! Bring your spare change a
 
 Kindergarten students looked great wearing green last week! #WeAreCLE
 
+### 2026-09-24 · Carolyn Lewis Elementary (id 13241649)
+
+Save the date: CLE Plant Sale will be held on Wednesday October 21, 2026. It will be held during the PTO conferences. We will be located in front of school. We will have cool season vegetables and assorted houseplants for sale. #WeAreCLE
+
+### 2026-09-25 · Carolyn Lewis Elementary (id 13243221)
+
+These ladies were recognized by Mrs. Spicer for recognizing a mess made by other students in Art. They not only cleaned up the pastels but other things as well! That’s the type of caring heart we love at CLE! #WeAreCLE
+
+### 2026-09-25 · Carolyn Lewis Elementary (id 13152138)
+
+💙🐾 Tomorrow is National PTO Appreciation Day, but at CLE, we’re celebrating our amazing PTO today! 🐾💙Thank you, CLE PTO, for everything you do to support our students, staff, and school. Your time, energy, and dedication make such a difference in the lives of our Little Cats! We are so grateful for YOU! 💙#WeAreCLE
+
+### 2026-09-25 · Carolyn Lewis Elementary (id 13255222)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-09-28 · Carolyn Lewis Elementary (id 13267900)
+
+🐾🎨 Let’s make a BIG impact, CLE! 🎨🐾
+Our Color Run Fundraiser is underway! Students can earn fun rewards as they raise money for CLE:
+💙 $0-$25: Chalk Battle, bracelet & carnival games
+💙 $50: MegaThon Adventure Color Run
+💙 $100: Bubble Dash/Bubble Bash
+💙 $150: Snow Party
+💙 $200: Slime Fest
+💙 $250: Silly String Officer Worley
+💙 $300: Popcorn & Movie Party
+💙 $400: Silly String the Principals
+💙 $500: Lunch with the Principals
+Collect. Achieve. Celebrate! We are so excited to see what our Little Cats can accomplish! 🐾💙
+#WeAreCLE
+
+### 2026-09-28 · Carolyn Lewis Elementary (id 13213690)
+
+🐾🌈 Don’t forget to register for CLE’s Little Cat-A-Thon Color Run Fundraiser! 🌈🐾
+
+Our fundraiser is underway! Help CLE reach our $50,000 schoolwide goal and support opportunities for our students. 💙
+
+📅 Fundraiser: September 15–October 15
+🏃 Color Run & Prize Event: October 19
+💰 The more you raise, the more prizes you can earn!
+
+ Register at: https://megadoughshop.com/pumpkin-bash-1827.html
+
+🐾 Let’s work together to make a BIG difference for our Little Cats!
+
+#WeAreCLE
+
+### 2026-09-28 · Carolyn Lewis Elementary (id 13278822)
+
+📝 Testing Begins This Week at CLE! 📝
+
+Our 3rd and 4th grade students will start their Interim 1 tests this week. Testing begins Thursday, October 1 and continues through next week.
+
+Please help our students do their best by getting plenty of rest, eating a good breakfast, and arriving at school on time each day! We are proud of you, Little Cats! 💙💛
+
+#WeAreCLE
+
+### 2026-09-29 · Carolyn Lewis Elementary (id 13243399)
+
+Thank you to Sandstone Real Estate Group for the snacks you provided to CLE Teachers and Staff. We appreciate you supporting us at CLE! #WeAreCLE
+
+### 2026-09-29 · Carolyn Lewis Elementary (id 13258163)
+
+We are thankful for Coach Newberry and the UCA Volleyball team helping us welcoming kiddos to school last week! There were high fives and fist bumps all around! #WeAreCLE
+
+### 2026-09-29 · Arlona Sturdivant (id 13302025)
+
+Bus 135 has experienced some mechanical issues.  We are currently waiting for a replacement bus to arrive at CLE.  The bus will run 20-30 minutes late.
+
+### 2026-09-30 · Carolyn Lewis Elementary (id 13243414)
+
+Khylan was recognized by Mrs. Fisher for stepping up and helping another student that was struggling! Way to be a CATS kid! #WeAreCLE
+
+### 2026-09-30 · Carolyn Lewis Elementary (id 13309562)
+
+❄️ Raise $150 and join the Snow Party! ❄️
+
+CLE Little Cats, it’s time to start collecting! Students who reach the $150 fundraising goal can celebrate with TWO epic attractions: a Foam Party Pit and Tiger Tumble Foam Slip ’n Slide! 🫧🐯
+
+🎉 Bonus: Qualify for this prize level by 8:00 AM on October 2 to score a Snowy Surprise!
+
+Scan the QR code on the flyer or click the link to register and start collecting today! 
+
+https://megadoughshop.com/pumpkin-bash-1827.html
+
+#WeAreCLE
+
+### 2026-10-01 · Carolyn Lewis Elementary (id 13292191)
+
+🐾 October Family Newsletter: Responsibility! 💙
+
+This month, we’re focusing on Responsibility—taking action, completing tasks, making good choices, and understanding how our actions impact others. Students will also be building important skills like focusing, organizing, and goal-setting as they continue to Be Strong! 💙🐾
+
+#WeAreCLE
+
+### 2026-10-01 · Carolyn Lewis Elementary (id 13292275)
+
+🐾 Conversation Starters: Responsibility 💙
+
+This month, take a few minutes to talk together as a family about Responsibility!
+
+💬 What does it mean to be responsible?
+💬 How can we help each other practice being more responsible?
+
+Small conversations can lead to big growth! Let’s work together to help our Little Cats build strong responsibility skills at home and at school. 💙🐾
+
+#WeAreCLE
+

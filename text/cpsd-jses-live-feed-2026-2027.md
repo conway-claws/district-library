@@ -769,3 +769,114 @@ CALI (Conway Area Leadership Institute) members came to greet and high five us i
 
 #WeAreJSE
 
+### 2026-09-24 · Barbara Clardy (id 13236700)
+
+📝 First grade has been working on planning a narrative during Arts and Letters! We have been filling out a story map with the characters and setting before writing our story. 
+
+#WeAreJSE
+
+### 2026-09-24 · Barbara Clardy (id 13248613)
+
+💙🤍 Thank you to Centennial Bank for cooking for our tailgate today! The burgers and hot dogs were grilled to perfection! 🍔 🌭 
+
+#WeAreJSE
+
+### 2026-09-24 · Barbara Clardy (id 13236731)
+
+🌼🔢🎤🔬Mrs. Andrews' students found so many things to investigate in enrichment class.
+
+#WeAreJSE
+
+### 2026-09-25 · Barbara Clardy (id 13258946)
+
+✨ Working 9 to 5... and dressing like a 10 out of 10! ✨Our teachers went all out for Dolly Day today with big hair, rhinestones, and plenty of sparkle! 💕🦋 We love celebrating Dolly Parton’s incredible music and her heart for reading. #WeAreJSE
+
+### 2026-09-25 · Barbara Clardy (id 13263099)
+
+💙🤍High-fives, big smiles, and tons of Wampus Cat spirit! 💙🤍
+
+The Conway Cheer and Dance teams surprised our students at Jim Stone Elementary this morning with the ultimate VIP welcome! 📣Thank you to these amazing athletes for bringing so much energy and making the start of our day extra special.
+
+#WeAreJSE
+
+### 2026-09-25 · Conway Public Schools (id 13260359)
+
+We are proud to celebrate the incredible progress our students and educators made on the ATLAS state assessments! Several of our schools showed significant growth in overall school scores and performance levels.
+
+These results represent more than numbers, they represent students learning, teachers teaching, and schools growing together. We are grateful to our students, teachers, administrators, and families for their continued commitment to excellence.
+
+Theodore Jones Elementary: +67 points (less than 1 point away from a B)
+Conway High School: +46 points (including a 12-point gain in literacy)
+Simon Middle School: +44 points (moved from a C to a B)
+Marguerite Vann Elementary: +42 points (moved from a D to a C)
+Jim Stone Elementary: +36 points (moved from a C to a B)
+Woodrow Cummins Elementary: +29 points (moved from a C to a B)
+
+We are so proud of this growth and excited for what is ahead! #WeAreWampusCats #TeamConway
+
+### 2026-09-25 · Barbara Clardy (id 13236770)
+
+📚On Wednesday, first graders enjoyed a guest reader from Ridgemere in the library. We are thankful for our supportive community!
+
+#WeAreJSE
+
+### 2026-09-25 · Barbara Clardy (id 13252320)
+
+Mrs. Sandefer’s kindergarten class completed an Art Gallery Walk as they learned about Characters in a story and using their senses to experience the world! 👀 👃 👂 👄 🤚 🌎 #WeAreJSE
+
+### 2026-09-26 · Barbara Clardy (id 13268122)
+
+Ms Tyler and Mrs Andrews’s class has been learning all about dinosaurs. Look at our creative standing dinosaurs! 🦕 🦖
+
+### 2026-09-27 · Barbara Clardy (id 13272709)
+
+Learning about dinosaurs is fun and TASTY! 😋 🍉 🍓 🍌 🍊 
+
+Fruit dinos and chocolate bones make for yummy treats! 🦖🦕🦴 
+
+#WeAreJSE
+
+### 2026-09-28 · Barbara Clardy (id 13272263)
+
+🍎 Sending a big thank you to Sandstone 21 Realty! 🍎
+
+Thank you so much for dropping off delicious snacks for our team! We are so grateful to have amazing local partners like you helping to fuel our school days. 🎒✨
+
+#WeAreJSE
+
+### 2026-09-29 · Barbara Clardy (id 13223354)
+
+🎶In perfect harmony without even trying! 🎹🌸
+
+#WeAreJSE
+
+### 2026-09-30 · Barbara Clardy (id 13303830)
+
+📣 STUDENT SHOUTOUT SPOTLIGHT! 
+
+We are so proud of these amazing students who received Shoutouts for demonstrating outstanding RESPECT! 🤝✨👏
+
+#WeAreJSE
+
+### 2026-09-30 · Barbara Clardy (id 13303847)
+
+✏️📚 Narrative Writing is in full swing in Mrs. Carger’s first grade classroom!
+
+Yesterday, our first graders planned their character and the problem their character will face in their second narrative. And, of course, sharing their story maps with friends makes the planning process even more fun! 💭📝💬
+
+We can’t wait to see where their stories take us! ✨
+
+#WeAreJSE
+
+### 2026-09-30 · Barbara Clardy (id 13301455)
+
+THAB fun! Thanks, Mrs. Breashears!
+
+#WeAreJSE
+
+### 2026-10-01 · Barbara Clardy (id 13329988)
+
+Second graders working with Mrs.Dismuke on their phonics skills so they can learn how to read and spell new words! 📖📝
+
+#WeAreJSE
+

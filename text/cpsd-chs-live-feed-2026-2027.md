@@ -2014,3 +2014,195 @@ A special thank-you to Mamas Unidas, Las Delicias, and El Fuego for being part o
 
 #ConwayHighSchool #HispanicHeritage #WampusCats
 
+### 2026-09-24 · Conway High School (id 13246163)
+
+A big THANK YOU to Century 21 Sandstone Real Estate Group for treating our faculty and staff to such a fantastic snack table! 💙🤍
+
+Your thoughtfulness and generosity are so appreciated. We’re grateful for community partners who take the time to show our staff a little extra love and make their day a little sweeter! 🐾
+
+#WampusCatPride #CommunityPartners #ThankYou
+
+### 2026-09-24 · Conway High School (id 13243388)
+
+✨ Big news for Conway High School! ✨
+
+Conway High School has been recognized by the Arkansas Department of Education as an Arkansas Gem School for Achievement by Content Area — ELA, placing CHS among the top-performing schools statewide in our grade span for ELA achievement. 💙🐾
+
+And while our 2026 state letter grade is a C, the numbers tell an important story of growth:
+
+📈 435.89 total points — our highest score under the current system, up from 392.02
+📈 Overall growth increased from 127.56 to 139.32
+📈 Lowest 25% growth increased from 112.22 to 147.86
+📈 ELA achievement increased from 38.34% to 50.31%
+📈 Science achievement increased from 33.52% to 40.35%
+🎓 Graduation rate increased to 91.53%
+🎓 357 merit/distinction graduates, up from 303
+
+A C is a snapshot of where we are. Our growth tells the story of where we're headed.
+
+We are proud of the hard work of our students, teachers, staff, families, and community—and we're just getting started. We'll celebrate this progress while continuing to focus on achievement, growth, and success for every Wampus Cat. 💙
+
+It’s a great day to be a Wampus Cat! 🐾
+
+#ArkansasGemSchool #WampusPride #ConwayHighSchool #StudentGrowth #ContinuousImprovement
+
+### 2026-09-25 · Conway Athletics (id 13254551)
+
+Wrestling Meeting on Oct. 1 at 6pm in the High School Cafeteria. If you are in 8th, 9th, or 10th grade and interested please come and talk to the coaches!
+
+### 2026-09-25 · Conway Athletics (id 13262974)
+
+Can't make it Ft. Smith to support the Wampuscats? Tune in and support using the link below! 
+
+https://www.youtube.com/live/y0uwLoSfx-M
+
+### 2026-09-25 · Conway High School (id 13263536)
+
+🎉 Hispanic Heritage Month Trivia Winners! 🎉
+
+We have our winners for the first biweekly Hispanic Heritage Month trivia question!
+
+🏆 10th Grade: Chloe Hausman
+🏆 11th Grade: Genesis Guzman
+🏆 12th Grade: Dylan Simmons
+🏆 Teacher: Mrs. Knapp
+
+A big ¡felicidades! to all of our winners! 🎊 And a huge thank-you to everyone who participated. We had lots of great answers, but there could only be one winner per grade level!
+
+#HispanicHeritageMonth #CHSWampusCat
+
+### 2026-09-25 · Conway Public Schools (id 13260364)
+
+We are proud to celebrate the incredible progress our students and educators made on the ATLAS state assessments! Several of our schools showed significant growth in overall school scores and performance levels.
+
+These results represent more than numbers, they represent students learning, teachers teaching, and schools growing together. We are grateful to our students, teachers, administrators, and families for their continued commitment to excellence.
+
+Theodore Jones Elementary: +67 points (less than 1 point away from a B)
+Conway High School: +46 points (including a 12-point gain in literacy)
+Simon Middle School: +44 points (moved from a C to a B)
+Marguerite Vann Elementary: +42 points (moved from a D to a C)
+Jim Stone Elementary: +36 points (moved from a C to a B)
+Woodrow Cummins Elementary: +29 points (moved from a C to a B)
+
+We are so proud of this growth and excited for what is ahead! #WeAreWampusCats #TeamConway
+
+### 2026-09-25 · Conway Athletics (id 13265293)
+
+LADY CAT PLAYERS OF THE WEEK 🚾🏀
+
+Congratulations to our two Lady Cat Players of the Week!
+
+⭐ CJHS — Delakyn Carter
+⭐ CHS — Aaliah Johnson 
+
+Proud of the work, effort, and energy these two bring to Lady Cat Basketball! Keep representing the Cats! 💙🤍
+
+### 2026-09-26 · Katy Gorden (id 13269130)
+
+Conway cheer and dance had a successful mini clinic today! Come watch them perform Friday night at halftime 🚾💙
+
+### 2026-09-27 · Conway Athletics (id 13271499)
+
+💙🏀 𝐓𝐇𝐀𝐍𝐊 𝐘𝐎𝐔, 𝐂𝐎𝐍𝐖𝐀𝐘! 🏀💙
+
+What a great morning at Stoby’s! We are incredibly thankful for everyone who came out to enjoy breakfast and support our Conway Boys & Girls Basketball Programs!
+
+A huge THANK YOU to Stoby’s for hosting us and for always being such a great supporter of our student-athletes. We are so fortunate to live in a community that continues to show up and invest in our kids and our programs.
+
+To everyone who bought breakfast, donated, volunteered, or simply stopped by to show your support  THANK YOU! We couldn’t do what we do without you.
+
+We are proud to represent Conway, and we’re grateful to have such an amazing community behind Wampus Cat & Lady Cat Basketball! 💙🤍🏀
+
+### 2026-09-27 · Conway Athletics (id 13270319)
+
+Come out to Stoby's today and support the Wampus Cat Basketball Program! 🚾🏀
+
+### 2026-09-28 · Canaan Groesbeck (id 13272227)
+
+Lady Cats are heading to Greenbrier today! Good luck, girls! 💙 
+
+Ticket link: https://gofan.co/event/6731938?schoolId=AR4679
+
+### 2026-09-28 · Conway Athletics (id 13276359)
+
+Your Cross Country runners of the week are Tanner Bryan and Noella Case-Lentz. Congratulations to both runners.
+
+### 2026-09-28 · Conway Athletics (id 13276310)
+
+Conway Cross Country competed at the Cyclone Invitational Saturday! Both Senior high teams took 2nd place, Jr. High boys took 8th, and our Jr. High girls all placed within the top 50 out of 300 runners.
+
+### 2026-09-28 · Beth Fluesmeier (id 13281708)
+
+Friday night football game.  Conway vs NLR.
+
+### 2026-09-28 · Conway High School (id 13285934)
+
+Last Thursday, Señora Tedford’s Spanish classes held their first Conversation Café during WIN time! 🎉
+
+Every other Thursday, students from different levels of Spanish class, who sign up in advance, have the opportunity to practice their Spanish conversational skills in a relaxed, welcoming environment. While enjoying a cup of coffee ☕, students engage in meaningful conversations about a variety of current topics, building their confidence, expanding their vocabulary, and strengthening their speaking skills.
+
+Learning a language goes beyond the classroom—it’s about making connections, sharing ideas, and communicating with others! 
+
+¡Estamos muy orgullosos de nuestros estudiantes y de su entusiasmo por aprender español! ❤️💛
+
+### 2026-09-28 · Conway High School (id 13286821)
+
+📚 PSAT/NMSQT Parent Meeting
+
+Conway High School families, join us for an upcoming PSAT/NMSQT Parent Meeting on Thursday, October 8 at 6:00 p.m. in the Conway High School Lecture Hall.
+
+All 10th graders and 11th graders who have opted in will have the opportunity to take the PSAT/NMSQT. At the meeting, we’ll share more about the assessment, its benefits, and how it can support your student’s academic journey.
+
+We hope to see you there! 📖💙
+
+#ConwayHighSchool #PSATNMSQT #WampusCats
+
+### 2026-09-29 · Canaan Groesbeck (id 13285850)
+
+2nd round of conference starts tonight at home for our Lady Cat Volleyball Team!! We are at home against Little Rock Southwest. Let's go, Cats! 
+
+Ticket Link: 
+https://gofan.co/event/6687090?schoolId=AR4663
+
+Live Stream Link:
+https://youtube.com/live/CynpnTQxazg?feature=share
+
+### 2026-09-29 · Conway Athletics (id 13290753)
+
+20-4!  CHS tennis finished a historic season yesterday with their senior night against North Little Rock.  Boys (11-1) and Girls (9-3) both had amazing seasons!  Thank you to all our seniors for their leadership and commitment to excellence this year as we had one of CHS' greatest tennis seasons ever!  Conference tournament is this Thursday and Friday at Burns Park!
+
+### 2026-09-29 · Beth Fluesmeier (id 13301238)
+
+There are 13 seats still available for purchase in the reserved section at the football stadium.  Call 501-450-6631 to secure your seats for the remainder of the season.
+
+### 2026-09-30 · Canaan Groesbeck (id 13308745)
+
+Lady Cat Pink Night shirts are still available! The link will close tomorrow. Make sure you get your shirt before it closes! 
+This is a great way to help the Lady Cat volleyball team raise money for Emmersyn Caldwell. 
+
+Link to order:
+https://conwayvolleyball26.itemorder.com/shop/home/?fbclid=IwY2xjawUp_yBleHRuA2FlbQIxMABwZG9mBWJyaWQRMVpqd2c2NnZZZ0g4UTVPT2FzcnRjBmFwcF9pZBAyMjIwMzkxNzg4MjAwODkyAAEeYs7IdYQZzHkjArh6mrnjEOxZGw_n9v97n_2EBYC1flxbk7YTBKOEhFSDOzg_aem_nWts8sHF_opphTbfMy6IfQ
+
+### 2026-10-01 · Conway Athletics (id 13324524)
+
+Your Conway Wampus Cats competed at the Lyon Invitational and had a fantastic showing! 🎉
+
+🥇 Senior Boys — 1st Place
+🥉 Junior High Boys — 3rd Place
+🥉 Senior High Girls — 3rd Place
+🏅Junior Girls — multiple runners finished in the Top 10!
+
+Congratulations to all of our runners on a great day of competition! We’re proud of the hard work, determination, and Wampus Cat spirit you showed! 💙🐾
+
+### 2026-10-01 · Conway High School (id 13326572)
+
+💙 Making a difference in our community!
+
+The Conway High School Black Student Union had the incredible opportunity to serve alongside the Conway Morning Optimist Club as they prepared for their 2nd Annual Spaghetti Dinner & Silent Auction! 🍝
+
+Our students were happy to lend a helping hand to an organization dedicated to bringing hope, positive vision, and opportunities to youth while strengthening our community.
+
+We’re proud of our students for giving their time and energy to support such a wonderful cause! 🐾
+
+#WampusCats #CommunityService #BlackStudentUnion
+

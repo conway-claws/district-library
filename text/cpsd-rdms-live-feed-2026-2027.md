@@ -780,3 +780,111 @@ Today, our students became grammar detectives! 🔎📚 They practiced identifyi
 
 Learning, collaborating, and putting those editing skills to work—one sentence at a time! 💪📝
 
+### 2026-09-24 · Rachel Fowler (id 13248140)
+
+⌚There’s still time for current 6th, 7th, and 8th grade students to sign up for the Spring Break trip to Washington D.C.🎉
+
+📅Trip Dates: 3/23/27-3/26/27
+⏱️Registration Deadline: 9/30/27
+💲Deposit: Only $115
+🆔 Trip ID: 224733
+
+You can register online at worldstrides.com/register or call World Strides Customer Service at 800-468-5899.
+
+❓Questions❓ Email Angela Rogers at rogersa@conwayschools.info or call 501-450-6675.
+Visit the trip website at https://myprogram.worldstrides.com/custom/20276-ruth-doyle-ms-dc-224733/
+
+### 2026-09-25 · Conway Public Schools (id 13259065)
+
+LOCATION CHANGE FOR TONIGHT'S REGION CHOIR CONCERT
+Please note that tonight’s (Sept. 25) Junior High and Middle School Region Choir concert has been moved to a new venue on the UCA campus.
+
+New Location:
+Windgate Center for Fine and Performing Arts
+2150 Bruce Street, Conway, AR 72035
+(Located on the corner of Bruce St. and Donaghy St.)
+
+Schedule:
+Doors Open: 6:00 PM
+Concert Starts: 6:30 PM
+
+Maps and parking details: https://uca.edu/windgate/about/maps-and-directions/
+
+Come out and support our incredible student performers tonight!
+
+### 2026-09-25 · Conway Public Schools (id 13259227)
+
+LOCATION CHANGE FOR TONIGHT'S REGION CHOIR CONCERT
+
+Please note that tonight’s (Sept. 25) Junior High and Middle School Region Choir concert has been moved to a new venue on the UCA campus.
+
+New Location:
+Windgate Center for Fine and Performing Arts
+2150 Bruce Street, Conway, AR 72035
+(Located on the corner of Bruce St. and Donaghy St.)
+
+Schedule:
+Doors Open: 6:00 PM
+Concert Starts: 6:30 PM
+
+Maps and parking details: https://uca.edu/windgate/about/maps-and-directions/
+
+Come out and support our incredible student performers tonight!
+
+### 2026-09-25 · Rachel Fowler (id 13259414)
+
+🥳Fun things are happening at RDMS! 5th Grade students will be having a "Dress Like an Idiom Day." 
+
+📅When? Wednesday, September 9
+
+🤷Who? 5th Grade Students
+
+❓What? An idiom is a phrase whose meaning is different than the literal definition of the words.
+🐈🐕Example: It’s raining cats and dogs!
+
+Props are allowed as long as they are school appropriate. Please reach out to your student's ELA teacher for any questions. 
+
+#WeAreRDMS #TeamConway
+
+### 2026-09-25 · Conway Athletics (id 13264910)
+
+Volleyball athletes of the week are Madyson Miser, Sophia Tolliver, Aven Reibe, and Paisley Zimmerman.
+
+### 2026-09-25 · Rachel Fowler (id 13260528)
+
+🎀 Ruth Doyle Pink Night
+
+🏐 Ruth Doyle Volleyball vs. Carl Stuart
+
+📆 Tuesday, September 29
+
+🕟 4:30 pm at the RDMS Gym
+
+This year’s RDMS Pink Night is dedicated to a very special Ruth Doyle alumni, Emmersyn Caldwell.
+
+Join us live or stream online at https://www.nfhsnetwork.com/schools/ruth-doyle-middle-school-conway-ar?utm_source=school-console&utm_medium=qrcode&utm_campaign=school-page
+
+### 2026-09-25 · Eugenio Gallegos (id 13265380)
+
+RDMS Football Players of The Week Princeton Smith Sam Sward Luke Whitehead Jude Pierce
+
+### 2026-09-26 · Rachel Fowler (id 13254022)
+
+🎉Huge shoutout to the Ruth Doyle Middle School PTO! 🎉 
+
+Thank you for your time, energy, and dedication — you make our school community better in countless ways. From events to classroom support, your work truly matters. 🐾
+
+### 2026-09-27 · Conway Athletics (id 13270331)
+
+Congratulations to Ruth Doyle volleyball on playing great at the Bryant 7th gr End of season tournament. They finished #1 in pool play and #2 overall out of 16 teams.
+
+### 2026-09-30 · Rachel Fowler (id 13317467)
+
+ATLAS Interim 1 Writing Test starts Thursday, October 1. 
+
+Parents and guardians: Please help your students remember to charge their Chromebook, get a good night’s sleep, and eat a healthy breakfast.
+
+### 2026-10-01 · Conway Athletics (id 13328617)
+
+Ruth Doyle volleyball team loved Pink Night and the fact that they could honor Emmersyn Caldwell, an RDMS Alumni.
+

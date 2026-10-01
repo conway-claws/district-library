@@ -569,3 +569,78 @@ Parent News letter for the week of 9-21-26.  Parent Newsletter
 
 Ida Burns Trunk or Treat....more information coming soon!
 
+### 2026-09-24 · Caroline Baker (id 13252006)
+
+Kona Ice is coming next Friday! 
+Dear Parents,
+
+Kona Ice is coming Friday Oct 2nd!
+
+Use the attached QR code to place your student’s order, or follow the link below.
+
+https://customer.kona-ice.com/#/K308X6632742
+
+Pick your size from $3 up to $7, then add a candy spoon, a sour packet, or a color changing spoon for a little extra! All items are on the prepay site!
+
+Please consider buying a Pay it Forward Kiddie cup for a less fortunate student for $3
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic).  Please make sure the cups are clean and not cracked. We do not replace broken cups
+
+The ordering deadline for this event is Thursday Oct 1st at 9pm sharp.
+
+Note: Please remember to add your student’s name when you select their teacher from the drop down list, otherwise it will be blank!
+
+Kona Ice donates a portion of all sales from this event to your student’s school.
+
+### 2026-09-25 · Ida Burns Elementary (id 13223948)
+
+💗 Change for a Cause! 💗On the morning of October 9, some special student-athletes will be joining us in the car line to collect change for their annual Pink Night fundraiser! 🎀Each year, the team chooses a community member (or members) who is fighting cancer and raises money to help support them. We are so proud to be a small part of this meaningful tradition! 💕As you come through the car line that morning, bring your coins, change, or a few dollars and help us fill those buckets! 🪙💵 Every little bit adds up when a community comes together.🎀 October 9 — Morning Car Line
+💗 Bring your change!
+💗 Support a local family fighting cancer!
+💗 Help our students see the power of giving back!Our Little Cats have BIG hearts! 🐾💙💗#PinkNight #ChangeForACause #LittleCatsBigHearts #CommunityStrong #WampusCats
+
+### 2026-09-25 · Ida Burns Elementary (id 13266178)
+
+🎬✨ **Lights, Camera, ACTION!** ✨🎬
+
+Mark your calendars! Our talented **Ida Burns 3rd and 4th graders** are taking the stage to celebrate the history of music from the movies! 🎶🍿 From *The Wizard of Oz* to *The Little Mermaid* to *Coco*, this show is sure to have your hands clappin’ and toes tappin’! 👏🎵
+
+📅 **October 15, 2026**
+📍 **James H. Clark Auditorium**
+🚪 Doors open at **6:00 PM** | 🎭 Show begins at **6:30 PM**
+
+We can’t wait to see our Little Cats shine on stage! 💙🐾🌟 **Save the date and come enjoy the show!**
+
+### 2026-09-25 · Ida Burns Elementary (id 12970462)
+
+Last call for cheer camp! Link to sign up - https://gofan.co/event/6794667?schoolId=AR4663
+
+### 2026-09-27 · Ida Burns Elementary (id 13267974)
+
+Parent Newsletter for the week of September 28.
+
+https://app.smore.com/n/mep73
+
+### 2026-09-29 · Ida Burns Elementary (id 13293253)
+
+📚 ATLAS Interim Testing is coming up! ✏️🐾Please help our Little Cats do their very best by making sure they:😴 Get a good night’s sleep
+🥞 Eat a good breakfast
+⏰ Arrive at school on time — testing begins at 8:30 a.m.
+🏫 Avoid checking out before 12:00 p.m. on testing days, if possibleThank you for helping our students come to school rested, ready, and confident! 💙🐾 We know our Little Cats will do their best!
+
+### 2026-10-01 · Caroline Baker (id 13328206)
+
+Dear Parents,
+
+Kona Ice is coming Friday Oct 2nd! Use the attached QR code to place your student’s order, or follow the link below. https://customer.kona-ice.com/#/K308X6632742
+
+Pick your size from $3 up to $7, then add a candy spoon, a sour packet, or a color changing spoon for a little extra! All items are on the prepay site! Please consider buying a Pay it Forward Kiddie cup for a less fortunate student for $3
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic).  Please make sure the cups are clean and not cracked. We do not replace broken cups
+
+The ordering deadline for this event is Thursday Oct 1st at 9pm sharp.
+
+Note: Please remember to add your student’s name when you select their teacher from the drop down list, otherwise it will be blank!
+
+Kona Ice donates a portion of all sales from this event to your student’s school.
+

@@ -385,3 +385,32 @@ What has been your favorite experience or moment at Ellen Smith so far this scho
 
 Leave a comment below and let us know! We love hearing about Ellen Smith through the eyes of our students and families! 🐾
 
+### 2026-09-24 · Matthew Coatney (id 13252213)
+
+🐝🐉🦅🥷 Ellen Smith Team Competition
+
+For the past month, the Bad Bees, Dragons, Eagles, and Green Ninjas have been competing to earn points for great character, good choices, teamwork, and helping others.
+
+Every positive choice has helped move their team closer to the top!
+
+Now, the first round is coming to an end…
+
+🏆 At the Character Assembly tomorrow morning, we will reveal which team earned the MOST points this month!
+
+Will the Bad Bees buzz to the top?
+Will the Dragons soar high together?
+Will the Eagles take flight?
+Or will the Green Ninjas complete their mission?
+
+There can only be one winner.
+
+🔥 Who will it be? We’ll find out tomorrow morning! 🏆
+
+### 2026-09-30 · Matthew Coatney (id 13303860)
+
+Sign ups for K-2 running club will end at the end of the day today. If you haven’t signed up and want to, you can email your child’s teacher to let them know. But after today, k-2 running club sign ups will be closed. Thank you!
+
+### 2026-10-01 · Ellen Smith Elementary (id 13331105)
+
+Tomorrow our school store will open at 7:30. Students needing breakfast must report to the cafeteria before going to the store.
+

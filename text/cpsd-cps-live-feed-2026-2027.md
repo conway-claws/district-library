@@ -446,3 +446,76 @@ The 2025–2026 Arkansas School Letter Grades are here! We’re proud to recogni
 
 Conway Public Schools is pleased to participate in the launch of the Arkansas A.C.C.E.S.S. Portal, a single, statewide universal college application now available to Conway High School seniors. Arkansas ACCESS Portal grants provisional admission to students who meet the baseline admissions requirements of participating in Arkansas institutions of higher education, replacing multiple, repetitive applications with one streamlined process.  Plus, you can apply for FREE!  CHS counselors have presented information about the ACCESS portal to all seniors, so now it's time to get started at https://araccessportal.adhe.edu/.  Have your application ready to submit when the application period opens on October 1!
 
+### 2026-09-25 · Conway Public Schools (id 13258609)
+
+A message from Superintendent Jason Black and School Board President Leona Walton:
+
+Every Voice Matters
+
+To our Conway Public Schools Team,
+
+From the bus barn to the board room, every person in this district has a voice that matters. You see what our students need, you know where we can improve, and you bring ideas that help us move forward. We want to hear them.
+
+We want you to feel comfortable sharing concerns with your principal or immediate supervisor and using your PPC representatives and channels. Those conversations give us a chance to listen, respond, and work through issues together. 
+
+We also want to clear up misinformation circulating that teachers or staff have been told not to attend or speak at Board of Education meetings. That is not true. We welcome your presence and your voice at board meetings. Encouraging conversations with your leaders is never intended to discourage you from speaking to the board. 
+
+We also want to thank you for staying focused on what matters most, the students of Conway Public Schools. Our district continues to show growth in student achievement, and great things are happening every day in academics, arts, athletics, and activities. We have a great district because of the people who serve in it every day. 
+
+Thank you for continuing to show up, speak up, and do this work together.
+
+### 2026-09-25 · Conway Public Schools (id 13259063)
+
+LOCATION CHANGE FOR TONIGHT'S REGION CHOIR CONCERT
+Please note that tonight’s (Sept. 25) Junior High and Middle School Region Choir concert has been moved to a new venue on the UCA campus.
+
+New Location:
+Windgate Center for Fine and Performing Arts
+2150 Bruce Street, Conway, AR 72035
+(Located on the corner of Bruce St. and Donaghy St.)
+
+Schedule:
+Doors Open: 6:00 PM
+Concert Starts: 6:30 PM
+
+Maps and parking details: https://uca.edu/windgate/about/maps-and-directions/
+
+Come out and support our incredible student performers tonight!
+
+### 2026-09-25 · Conway Public Schools (id 13263448)
+
+PUBLIC NOTICE OF VACANCYCONWAY BOARD OF EDUCATION — AT-LARGE POSITIONThe Conway Board of Education is issuing a public notice seeking qualified applicants to fill a vacancy in the At-Large position. The Board will appoint an individual to serve in this position until the next school election in March 2028.QUALIFICATIONSApplicants for the At-Large position must be registered voters residing within the boundaries of the Conway School District.APPLICATION REQUIREMENTSApplicants must submit:Petition: A petition expressing the applicant’s intention to be considered for appointment, signed by at least 20 qualified electors residing within the Conway School District.Résumé: A current résumé explaining the applicant’s interest in serving on the Board of Education and their relevant qualifications.Petition Availability:Online: Download At-Large Petition FormIn Person:Conway Public Schools District Administration Office, 2220 Prince Street, Conway, AR 72034Faulkner County Clerk’s Office, 801 Locust Ave., Conway, AR 72034APPLICATION DEADLINEAll application materials must be received by:SATURDAY, NOVEMBER 28, 2026Holiday Closure Note: District Offices are closed November 21–29, 2026 for Thanksgiving Break. During the break, applications must be submitted via email.Submission Methods:Email: Leona Walton, Board Vice President (waltonl@conwayschools.info) and Shastady Wagner, General Counsel (wagners@conwayschools.info)U.S. Mail / In-Person Delivery: Conway Public Schools, 2220 Prince Street, Conway, AR 72034 (Hand delivery during regular business hours only)APPOINTMENT MEETINGThe Conway Board of Education will meet to appoint an individual to fill the vacant At-Large position on:TUESDAY, DECEMBER 8, 2026, AT 6:00 P.M.Applicants will be given a minimum of five minutes to present their candidacy to the Board and then the Board will ask questions of each candidate.All interviews and deliberations will take place in the public meeting.Voter Registration Verification: Applicants may verify their voter registration status through Arkansas VoterView.Inquiries: For additional information, contact Shastady Wagner, General Counsel, at wagners@conwayschools.info or 501-450-4800.UPDATED VACANCY PROCESS TIMELINEA.C.A. § 6-13-611Vacancy Created (90 Days)September 12, 2026 (December 11, 2026)Notice to Public (Minimum 30 Days)By October 2, 2026District Notice to County Clerk of VacanciesBy October 2, 2026Date At-Large Petitions Due to DistrictNovember 28, 2026 (Email) Regular Meeting-Appointment Process on AgendaDecember 8, 2026Board Reorganization (Vacancy Occurred in an Officer Position)January 12, 2026All vacancy information is also on our website at: conwayschools.org.
+
+### 2026-09-25 · Conway Public Schools (id 13263555)
+
+PUBLIC NOTICE OF VACANCYCONWAY BOARD OF EDUCATION — AT-LARGE POSITIONThe Conway Board of Education is issuing a public notice seeking qualified applicants to fill a vacancy in the At-Large position. The Board will appoint an individual to serve in this position until the next school election in March 2028.QUALIFICATIONSApplicants for the At-Large position must be registered voters residing within the boundaries of the Conway School District.APPLICATION REQUIREMENTSApplicants must submit:Petition: A petition expressing the applicant’s intention to be considered for appointment, signed by at least 20 qualified electors residing within the Conway School District.Résumé: A current résumé explaining the applicant’s interest in serving on the Board of Education and their relevant qualifications.Petition Availability:Online: Download At-Large Petition FormIn Person:Conway Public Schools District Administration Office, 2220 Prince Street, Conway, AR 72034Faulkner County Clerk’s Office, 801 Locust Ave., Conway, AR 72034APPLICATION DEADLINEAll application materials must be received by:SATURDAY, NOVEMBER 28, 2026Holiday Closure Note: District Offices are closed November 21–29, 2026 for Thanksgiving Break. During the break, applications must be submitted via email.Submission Methods:Email: Leona Walton, Board Vice President (waltonl@conwayschools.info) and Shastady Wagner, General Counsel (wagners@conwayschools.info)U.S. Mail / In-Person Delivery: Conway Public Schools, 2220 Prince Street, Conway, AR 72034 (Hand delivery during regular business hours only)APPOINTMENT MEETINGThe Conway Board of Education will meet to appoint an individual to fill the vacant At-Large position on:TUESDAY, DECEMBER 8, 2026, AT 6:00 P.M.Applicants will be given a minimum of five minutes to present their candidacy to the Board and then the Board will ask questions of each candidate.All interviews and deliberations will take place in the public meeting.Voter Registration Verification: Applicants may verify their voter registration status through Arkansas VoterView.Inquiries: For additional information, contact Shastady Wagner, General Counsel, at wagners@conwayschools.info or 501-450-4800.UPDATED VACANCY PROCESS TIMELINEA.C.A. § 6-13-611Vacancy Created (90 Days)September 12, 2026 (December 11, 2026)Notice to Public (Minimum 30 Days)By October 2, 2026District Notice to County Clerk of VacanciesBy October 2, 2026Date At-Large Petitions Due to DistrictNovember 28, 2026 (Email) Regular Meeting-Appointment Process on AgendaDecember 8, 2026Board Reorganization (Vacancy Occurred in an Officer Position)January 12, 2026All vacancy information is also on our website at: conwayschools.org.
+
+### 2026-09-25 · Conway Public Schools (id 13263705)
+
+CPSD Board of Education — At-Large VacancyThe Board is accepting applications to fill a vacancy in the At-Large position. Applications are due Saturday, November 28, 2026.Full details, qualifications, and application instructions are available on our website: https://www.conwayschools.org/article/3153245
+
+### 2026-09-25 · Conway Public Schools (id 13258431)
+
+We are proud to celebrate the incredible progress our students and educators made on the ATLAS state assessments! Several of our schools showed significant growth in overall school scores and performance levels.
+
+These results represent more than numbers, they represent students learning, teachers teaching, and schools growing together. We are grateful to our students, teachers, administrators, and families for their continued commitment to excellence.
+
+Theodore Jones Elementary: +67 points (less than 1 point away from a B)
+Conway High School: +46 points (including a 12-point gain in literacy)
+Simon Middle School: +44 points (moved from a C to a B)
+Marguerite Vann Elementary: +42 points (moved from a D to a C)
+Jim Stone Elementary: +36 points (moved from a C to a B)
+Woodrow Cummins Elementary: +29 points (moved from a C to a B)
+
+We are so proud of this growth and excited for what is ahead! #WeAreWampusCats #TeamConway
+
+### 2026-09-28 · Conway Public Schools (id 13283967)
+
+Today, we celebrate Human Resource Professional Day by recognizing the dedicated HR professionals who support the heart of Conway Public School District—our employees.
+From recruiting and onboarding to employee support and professional development, our HR department works behind the scenes to help create a strong, caring, and successful school community. Thank you for all you do to support our staff and students every day!
+Happy Human Resource Professional Day! #CPSD #HRProfessionalDay #TeamConway
+
+### 2026-09-28 · Conway Public Schools (id 13286758)
+
+Hey Team!Conway FFA would love to have your continued support with their Fall Plant Sale of Mums and Pansies. Please review the link provided below.  Sale has been pushed back to end tomorrow, Tuesday, September 29 at 3:00pm and we anticipate delivery for October 6th.  Thank you for your continued support! If you have any questions or concerns, please do not hesitate to contact us at louisl@conwayschools.info or starkh@conwayschools.info.FORM: Conway FFA Fall Plant Sale
+

@@ -367,3 +367,82 @@ Important Info for the event:
 
 Check out our Newsletter- https://conwaypublicschools.edurooms.com/newsletters/theodore-jones-elementary/newsletters/september
 
+### 2026-09-25 · Theodore Jones Elementary (id 13244591)
+
+🐾 Paw"sitive Family Connection!🐾
+
+This month, we’re learning that respect means seeing the value in people and things—and treating them with care. ❤️
+
+Our first family challenge? 📵  Unplug to reconnect!  Choose a special time each day to put the devices away and plug into what matters most: each other. 🐾💙
+Whether it’s sharing a meal, playing a game, taking a walk, or simply talking about your day, every moment together helps strengthen your family connection!
+
+📸 Show us how your family is having fun!  Post your pictures in the comments below and let’s celebrate all the *paw"sitive* family moments together! 🐶🐾
+
+Less screen time. More family time. More paw"sitive memories! 💕
+
+### 2026-09-25 · Conway Public Schools (id 13260358)
+
+We are proud to celebrate the incredible progress our students and educators made on the ATLAS state assessments! Several of our schools showed significant growth in overall school scores and performance levels.
+
+These results represent more than numbers, they represent students learning, teachers teaching, and schools growing together. We are grateful to our students, teachers, administrators, and families for their continued commitment to excellence.
+
+Theodore Jones Elementary: +67 points (less than 1 point away from a B)
+Conway High School: +46 points (including a 12-point gain in literacy)
+Simon Middle School: +44 points (moved from a C to a B)
+Marguerite Vann Elementary: +42 points (moved from a D to a C)
+Jim Stone Elementary: +36 points (moved from a C to a B)
+Woodrow Cummins Elementary: +29 points (moved from a C to a B)
+
+We are so proud of this growth and excited for what is ahead! #WeAreWampusCats #TeamConway
+
+### 2026-09-25 · Theodore Jones Elementary (id 13260601)
+
+Dear Parents,
+
+Kona Ice is coming Friday, Oct 2nd.
+
+Use the attached QR code to place your student's order, or follow the link below. This is a cashless event.
+
+https://customer.kona-ice.com/#/K308X6042722
+
+
+Pick your size from $3 up to $7. Please consider buying a Pay it Forward Kiddie cup for a less fortunate student for $3
+
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic).  Please make sure the cups are clean and not cracked. We do not replace broken cups.
+Please send their cups in their backpack the night before to avoid dropping them off in the office.
+
+The ordering deadline for this event is Thursday Oct 1 at 9pm sharp!
+
+
+Note: Please remember to add your student's name when you select their teacher from the drop down list, otherwise it will be blank!
+
+
+
+
+Queridas familias,
+¡Kona Ice estará en la escuela el viernes 2 de octubre!
+
+Use el código QR adjunto para hacer el pedido de su estudiante o siga el enlace de abajo:
+
+https://customer.kona-ice.com/#/K308X6042722
+
+Elija el tamaño que desea de $3 a $7. Por favor, considere devolver el favor ayudando a alguien más a comprar un vasito Kiddie de $3 para un estudiante menos afortunado. 
+
+Los vasos rellenables de Kona Ice se pueden rellenar por $4. Si paga por el vaso rellenable de $4 pero se le olvida enviarlo a la escuela, su estudiante recibirá el vaso de Kona Ice Classic de $4. Por favor, envíe el vaso de su estudiante en su mochila la mañana del evento para evitar tener que dejarlo en la oficina. Por favor, asegúrese de que el vaso esté limpio y sin grietas. No reemplazamos los vasos rotos.
+
+La fecha límite para hacer el pedido es el jueves 1 de octubre a las 9:00 p. m. ¡EN PUNTO!
+Nota: ¡No olvides agregar el nombre de tu estudiante al seleccionar su maestro en la lista desplegable; de lo contrario, quedará en blanco!
+
+Kona Ice donará una parte de las ventas de este evento a la escuela de su estudiante.
+
+### 2026-09-27 · Theodore Jones Elementary (id 13273158)
+
+TJE Paw Print Newsletter- https://conwaypublicschools.edurooms.com/newsletters/theodore-jones-elementary/newsletters/october
+
+### 2026-10-01 · Theodore Jones Elementary (id 13322812)
+
+3rd and 4th grade ATLAS Interim Testing begins this morning! Please make sure your child arrives on time and ready to do their best. We’re excited to help you learn, grow, and show what you know! 😊
+
+Let’s do this! 💙
+

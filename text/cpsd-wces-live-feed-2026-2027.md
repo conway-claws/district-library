@@ -1096,3 +1096,98 @@ Friday is the last day to earn a tshirt!!
 
 Counting on from the greater number has been our goal the last two weeks in First Grade- and we always love a good walk around the room for a math lesson.
 
+### 2026-09-24 · Woodrow Cummins Elementary (id 13244196)
+
+Kindergarten Color Week fun! ❤️💛💚💙
+
+Today we sorted and graphed M&Ms by color while practicing writing our numerals! Learning + a little chocolate = the sweetest kind of math!
+
+### 2026-09-24 · Woodrow Cummins Elementary (id 13244383)
+
+Dear Woodrow Families,
+
+Due to time constraints, we need to split our school picture days this year.
+
+📸 Kindergarten–2nd Grade: Friday, September 25
+📸 3rd–4th Grade: Monday, September 28
+
+Kindergarten through 2nd grade students will take their school pictures as originally planned tomorrow, Friday, September 25.
+
+Third and fourth grade students will not have pictures taken tomorrow. Their school picture day has been moved to Monday, September 28.
+
+We apologize for the change and appreciate your understanding as we work to make picture day run as smoothly as possible!
+
+Thank you for your flexibility and support.
+
+### 2026-09-24 · Woodrow Cummins Elementary (id 13241167)
+
+Reminder: School picture day is tomorrow!  Every student will have their picture taken as these photos will be used for the yearbook.
+
+### 2026-09-24 · Jenna Havlik (id 13250687)
+
+All though every student will have their picture made for the yearbook, Friday, September 25 will only be for kindergarten through second grade students. Third 3/4 grade students will have their picture made on Monday, September 28.
+
+### 2026-09-25 · Woodrow Cummins Elementary (id 13258954)
+
+Third grade kicked off their first science experiment with our Hendrix partner, Patty G. Students tested three different-sized balloons to investigate which would travel the farthest. They made predictions, tested their ideas, and documented the results. We had a blast putting our scientific thinking into action! 🎈📏
+
+### 2026-09-25 · Conway Public Schools (id 13260357)
+
+We are proud to celebrate the incredible progress our students and educators made on the ATLAS state assessments! Several of our schools showed significant growth in overall school scores and performance levels.
+
+These results represent more than numbers, they represent students learning, teachers teaching, and schools growing together. We are grateful to our students, teachers, administrators, and families for their continued commitment to excellence.
+
+Theodore Jones Elementary: +67 points (less than 1 point away from a B)
+Conway High School: +46 points (including a 12-point gain in literacy)
+Simon Middle School: +44 points (moved from a C to a B)
+Marguerite Vann Elementary: +42 points (moved from a D to a C)
+Jim Stone Elementary: +36 points (moved from a C to a B)
+Woodrow Cummins Elementary: +29 points (moved from a C to a B)
+
+We are so proud of this growth and excited for what is ahead! #WeAreWampusCats #TeamConway
+
+### 2026-09-25 · Jenna Havlik (id 13263992)
+
+Our amazing PTO celebrated our staff today with a BBQ lunch! We are so thankful for such a supportive school community and all they do for our staff and students!
+
+### 2026-09-25 · Woodrow Cummins Elementary (id 13265365)
+
+Check out our Little Cat Chronicle for the week of Sept. 28-Oct. 2! We can't wait to see all the "Grands" this week!
+
+### 2026-09-26 · Woodrow Cummins Elementary (id 13264462)
+
+Next week, our 3rd and 4th graders will be taking their interim tests. Please see the schedule below, and check out the attached graphic for a quick visual reference!
+
+Thursday, October 1
+- 3rd Grade: Science
+- 4th Grade: Math & Science
+
+Friday, October 2
+- 3rd Grade: Math
+
+Monday, October 5
+- 3rd & 4th Grade: Math & Science Make-ups
+
+Tuesday, October 6
+- 3rd & 4th Grade: Reading
+
+Wednesday, October 7
+- 3rd & 4th Grade: Writing
+
+Thursday, October 8 – Friday, October 9
+- 3rd & 4th Grade: Make-ups, all subjects
+
+Please help your child get a good night's sleep and a healthy breakfast on testing days. Thank you for your continued support!
+
+### 2026-09-27 · Woodrow Cummins Elementary (id 13272105)
+
+Dear WCE Families,It’s BOOK FAIR WEEK! 📚 We are so excited to welcome our students and families to the Woodrow Cummins Elementary Book Fair!Our Book Fair will run Monday–Thursday, September 28–October 1. This is a wonderful opportunity for students to find new books to enjoy and add to their home libraries.A few important reminders:Sales tax will be charged to all purchases.We accept cash, credit/debit cards, checks (made payable to WCE), and gift cards as forms of payment.Book Fair proceeds go directly back to our WCE library!Your purchases help us purchase more books and fun, engaging things for our students to enjoy in the library. Thank you for supporting our Little Cats and our library!💙 Grand’s WeekIt’s also Grand’s Week, and we cannot wait to welcome all of the special “Grands” who mean so much to our WCE students! Remember, a “Grand” can be any adult your child feels is grand—it doesn’t have to be a grandparent.For your reference, here are the lunch times:Kindergarten: Tuesday, Sept. 29 — 10:40 AM1st Grade:Wednesday, Sept. 30 — 11:40 AM2nd Grade:Thursday, Oct. 1 — 11:55 AM3rd Grade:Wednesday, Sept. 30 — 11:00 AM4th Grade:Tuesday, Sept. 29 — 11:20 AM🪪 Important Building Entry ReminderAnyone entering the school building must be scanned through our ID check program.If your ID has not been scanned during the 2026–27 school year, you will need to present a government-issued photo ID to be scanned before entering the building.Please plan accordingly, as checking in can take additional time when we have many visitors arriving for special events. We appreciate your patience and cooperation as we work to keep our students safe!We are looking forward to a fun-filled week of books, reading, family, and lots of special memories! Thank you for supporting our WCE library and helping make these events so special for our students.
+
+### 2026-09-27 · Woodrow Cummins Elementary (id 13272129)
+
+Reminder: Tomorrow is picture day for 3rd and 4th grade students. Any K-2 students who did not get their picture made Friday, will also be able to have their picture made tomorrow.
+
+### 2026-09-30 · Jenna Havlik (id 13306237)
+
+The Cheetah Girls came for Brown Day today!! 🤎🤎
+

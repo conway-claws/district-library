@@ -298,3 +298,26 @@ It’s Game Time at Mattison! 💙🤍🐾
 
 Reminder that Game Day Grub orders are due tomorrow, Monday, September 21st. This is optional. Flyers attached. Thank you for supporting our school!
 
+### 2026-09-28 · Melissa Spence (id 13275642)
+
+Mattison Families,A huge THANK YOU to everyone who purchased a Game Day Grub Snack Bag for your student! Because of your support, our first Game Day Grub fundraiser raised $400! 🎉We are putting those funds toward our first fundraising goal of $1,500 to purchase a Silent Disco Headset System for our school. This system will give us another fun and exciting way to reward our Little Cats for making positive behavior choices throughout the year. 🎧💙We are already more than 25% of the way to our goal after just one Game Day Grub! Every snack bag purchased helps us create special experiences and celebrations for our students.Thank you for supporting our school, our students, and our efforts to recognize the great choices our Little Cats make each day. We couldn't do these extra things without the support of our Mattison families!💙🐾 Thank you for helping us make Mattison a fun place to learn, grow, and succeed!
+
+### 2026-09-29 · Melissa Spence (id 13290027)
+
+🤠🎀 Grab your boots and bows—it’s time for the Fall Ball! 🎀🤠
+
+Mattison families, make plans now to join us for a fun night of dancing, music, and family fun at our Boots & Bows Fall Ball! 🪩🍂
+
+📅 Thursday, November 5
+⏰ 5:30–6:30 PM
+📍 Bob & Betty Courtway Gym
+
+🎶 Live DJ 
+📸 Family Photo Booth
+💃 Family Dancing
+🍿 Concessions for sale — cash preferred
+
+Throw on your favorite boots and come ready to make some memories with your Little Cat! 🤎
+
+Mark your calendars and make plans now—we can’t wait to see our Mattison families there!
+

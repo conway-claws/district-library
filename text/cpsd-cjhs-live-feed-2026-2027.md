@@ -889,3 +889,157 @@ Congratulations to Coach Frazier and Mr. Gibson’s 4th and 8th period classes f
 
 We’re proud of all their hard work and dedication! Keep it up, Wampus Cats!
 
+### 2026-09-24 · Marcus Kordsmeier (id 13244926)
+
+WAMPUS CAT GOLF
+
+A couple of great opportunities this week for our JV Boys to get out on the course, compete, and continue gaining valuable experience.
+
+Proud of these guys and the work they’re putting in! 
+
+Keep working. Keep competing. Keep improving.
+
+UP NEXT: STATE TOURNAMENTS!
+
+Our Varsity Boys and Girls are getting ready to compete at the  6A State Golf Championships. The postseason is here, and we’re excited to see our Wampus Cats finish the season strong!
+
+Girls State: September 28-30 Hurricane Golf Course- Bryant, AR
+Boys State: October 5-7 Jonesboro Country Club- Jonesboro, AR
+
+### 2026-09-24 · Conway Junior High (id 13248199)
+
+Our Biology students in Mrs. Mahan's class got hands-on during our Microscope Lab! Students practiced proper microscope techniques and learned how to bring tiny specimens into focus while exploring a world they can’t see with the naked eye. 🔬🧫🦠
+
+There’s nothing quite like getting to see biology in action! 🧬✨
+
+### 2026-09-24 · Conway Junior High (id 13217131)
+
+Our Advanced Economics students explored the factors of production and the production process by developing unique business ideas and bringing their products to life!
+
+Students designed business logos or product concepts, sketched their ideas onto Shrinky Dink paper, and baked them into memorable creations. Along the way, they analyzed their production processes and explored the value of labor and capital resources.
+
+A hands-on learning experience that turned economic concepts into something they could see, create, and take home! 💡
+
+### 2026-09-25 · Conway Athletics (id 13255876)
+
+Lovin' bright lights, football field, our amazing band, and cooler weather!
+
+### 2026-09-25 · Marquis Rogers (id 13257661)
+
+We are on a normal  bell schedule today.
+
+### 2026-09-25 · Conway Public Schools (id 13259072)
+
+LOCATION CHANGE FOR TONIGHT'S REGION CHOIR CONCERT
+Please note that tonight’s (Sept. 25) Junior High and Middle School Region Choir concert has been moved to a new venue on the UCA campus.
+
+New Location:
+Windgate Center for Fine and Performing Arts
+2150 Bruce Street, Conway, AR 72035
+(Located on the corner of Bruce St. and Donaghy St.)
+
+Schedule:
+Doors Open: 6:00 PM
+Concert Starts: 6:30 PM
+
+Maps and parking details: https://uca.edu/windgate/about/maps-and-directions/
+
+Come out and support our incredible student performers tonight!
+
+### 2026-09-25 · Conway Public Schools (id 13259225)
+
+LOCATION CHANGE FOR TONIGHT'S REGION CHOIR CONCERT
+
+Please note that tonight’s (Sept. 25) Junior High and Middle School Region Choir concert has been moved to a new venue on the UCA campus.
+
+New Location:
+Windgate Center for Fine and Performing Arts
+2150 Bruce Street, Conway, AR 72035
+(Located on the corner of Bruce St. and Donaghy St.)
+
+Schedule:
+Doors Open: 6:00 PM
+Concert Starts: 6:30 PM
+
+Maps and parking details: https://uca.edu/windgate/about/maps-and-directions/
+
+Come out and support our incredible student performers tonight!
+
+### 2026-09-28 · Conway Junior High (id 13246870)
+
+📅 Week at a Glance | September 28–October 2
+
+Here’s what’s happening around CJHS this week! Be sure to check out the schedule and come support our Wampus Cats! 💙
+
+Monday: Tennis vs. North Little Rock & Volleyball vs. Benton
+Tuesday: Football @ Benton (B Game Only)
+Wednesday: No events scheduled
+Thursday: Volleyball vs. Bryant, Football @ Benton & Tennis Conference @ Burns Park
+
+Go Wampus Cats!
+
+### 2026-09-28 · Conway Junior High (id 13165654)
+
+Dear Parents and Students,
+We hope you have a great week! Here are the important updates and announcements for the upcoming week.
+
+Link to Announcements: 
+
+https://docs.google.com/document/d/1Od7p7r2ZqXVPTas6D62umJI99XyOCKWtUDlOlNcyL1Q/edit?usp=sharing
+
+### 2026-09-28 · Cheyenne Kuhn (id 13274695)
+
+Congratulations to the CJHS volleyball players of the week! We’re so proud of their hard work and leadership! 💙🏐🏆 Good job girls!
+
+### 2026-09-28 · Conway Junior High (id 13221694)
+
+💗 Pajama Pant Fundraiser! 
+
+Join us for our Pajama Pant Fundraiser on Friday, October 16th, and help us raise money for Pink Night! 🎀
+
+Students can purchase a $1 wristband during all lunches from October 12–15. On October 16th, wear your favorite school-appropriate pajama pants and show your support!
+
+Every dollar helps us make Pink Night special!
+
+### 2026-09-29 · Marcus Kordsmeier (id 13292229)
+
+CONFERENCE & STATE BOUND!
+
+Our Conway Wampus Cat Girls are on their way to Hurricane Golf Course in Bryant today for the Conference Tournament!
+
+They’ve put in the work all season, and now it’s time to go compete, represent Conway, and enjoy the opportunity. 
+
+Go Wampus Cats!
+
+### 2026-09-29 · Conway Junior High (id 13296200)
+
+9th graders had the opportunity to attend an FBLA Interest Meeting during WIN time in Ms. Landry’s classroom! Students learned more about FBLA and what it has to offer. 💼✨
+
+### 2026-09-29 · Conway Junior High (id 13298536)
+
+Our 9th grade BETA Club members joined the High School BETA Club for a day of service at the Conway Refuge of the Conway Ministry Center! 💙
+
+Students got to spread positivity through encouraging messages and artwork, help spread mulch for a new playground, write letters, and spend time playing with children at the Refuge. What a great day of serving our community and making a difference!
+
+### 2026-09-29 · Marcus Kordsmeier (id 13303226)
+
+CONFERENCE TOURNAMENT RECAP
+
+We’re very proud of the effort our Conway Wampus Cat Girls gave today at the Conference Tournament. They battled all day and represented Conway Golf with great effort and pride. 
+
+While we came up just short of qualifying as a team for State, we’re excited to have two Wampus Cats qualify individually and earn the opportunity to compete again tomorrow!
+
+Congratulations, girls! Keep battling — we’re not done yet
+
+### 2026-09-30 · Conway Junior High (id 13312222)
+
+Mrs. Chen’s Mandarin I and Mandarin II students had an exciting week of hands-on learning!
+
+✍️ Students practiced writing their Chinese names using whiteboards, markers, and erasers generously donated by Show-me, a UK company. Students had a great time learning how to write and recognize their own names in Chinese!
+
+🌕 Students also celebrated the Mid-Autumn Festival (Moon Festival), one of the most important traditional festivals in China. They learned about the traditions and meaning behind the holiday, tasted traditional mooncakes, and even made their own snow skin mooncakes (冰皮月饼) in class! 🥮
+
+Through this immersive experience, students were able to go beyond the textbook and experience Chinese language and culture firsthand. There were lots of smiles, creativity, and, of course, delicious mooncakes!
+
+A huge thank you to Show-me for generously providing classroom supplies and to Velda Lueders, a local realtor and community supporter, whose generous donation made our mooncake-making experience possible. We greatly appreciate our community partners for helping provide memorable learning opportunities for our students! ❤️
+

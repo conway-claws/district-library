@@ -320,3 +320,9 @@ Reminder!!Conway Community,You're invited to our District Wide Fall C.A.T. Forum
 
 In the Right Brain Room at Sallie Cone Preschool, learning happens through collaboration! 💛 As children work together, they build executive function skills like self-regulation, flexible thinking, and problem-solving while also growing important relationship skills such as communication, cooperation, and teamwork. Through meaningful, hands-on experiences, our children are learning how to learn—and how to learn together! 🌱✨
 
+### 2026-09-30 · Sallie Cone Preschool (id 13320192)
+
+Movement with a Purpose! 🫘⭕️
+
+Movement is an important part of our program and provides children with meaningful opportunities to learn through active play. In this beanbag hula hoop activity, children are developing more than physical skills—they are practicing executive function, self-regulation, problem-solving, flexibility, turn-taking, and social skills.
+

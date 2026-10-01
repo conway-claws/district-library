@@ -416,3 +416,83 @@ Picture Day is next Friday, October 2, so mark your calendars!
 
 #WeAreCourtway #TeamConway #WeAreWampusCats
 
+### 2026-09-25 · Conway Public Schools (id 13259064)
+
+LOCATION CHANGE FOR TONIGHT'S REGION CHOIR CONCERT
+Please note that tonight’s (Sept. 25) Junior High and Middle School Region Choir concert has been moved to a new venue on the UCA campus.
+
+New Location:
+Windgate Center for Fine and Performing Arts
+2150 Bruce Street, Conway, AR 72035
+(Located on the corner of Bruce St. and Donaghy St.)
+
+Schedule:
+Doors Open: 6:00 PM
+Concert Starts: 6:30 PM
+
+Maps and parking details: https://uca.edu/windgate/about/maps-and-directions/
+
+Come out and support our incredible student performers tonight!
+
+### 2026-09-25 · Conway Public Schools (id 13259226)
+
+LOCATION CHANGE FOR TONIGHT'S REGION CHOIR CONCERT
+
+Please note that tonight’s (Sept. 25) Junior High and Middle School Region Choir concert has been moved to a new venue on the UCA campus.
+
+New Location:
+Windgate Center for Fine and Performing Arts
+2150 Bruce Street, Conway, AR 72035
+(Located on the corner of Bruce St. and Donaghy St.)
+
+Schedule:
+Doors Open: 6:00 PM
+Concert Starts: 6:30 PM
+
+Maps and parking details: https://uca.edu/windgate/about/maps-and-directions/
+
+Come out and support our incredible student performers tonight!
+
+### 2026-09-25 · Courtway Middle School (id 13264513)
+
+Thank you to Century 21 Sandstone Real Estate Group for treating our staff to drinks and snacks today! 💙 A little Friday treat definitely made for some happy staff members, and we appreciate you thinking of us!
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-09-26 · Reigha Smith (id 13268333)
+
+Courtway Pink Night!!
+Thank you to everyone who showed up with their support and for all the parents who put in time and effort to make this night special for the girls!💛💜
+#forEmmersyn
+
+### 2026-09-27 · Reigha Smith (id 13272418)
+
+🏐 COURTWAY VOLLEYBALL 🏐
+
+What a weekend for our Courtway Lady Cats! These girls fought ALL day at the tournament and never stopped competing. They battled for every point, encouraged each other, and continued to fight together all day long.
+
+Finishing Top 2 in our pool earned us a spot in the GOLD BRACKET! 💙🤍
+
+So proud of the way these girls represented Courtway Athletics this weekend. Their hard work, determination, and willingness to fight for each other showed all day long.
+
+Way to compete, Lady Cats! We are so proud of you! 🐾🏐
+
+### 2026-09-29 · Courtway Middle School (id 13301816)
+
+Interim 1 ATLAS testing begins this week! 📚💻 Please help students come prepared by arriving on time, getting a good night’s sleep, eating breakfast, and bringing a fully charged Chromebook each testing day.
+
+📝 Thursday, Oct. 1 – Writing
+📖 Monday, Oct. 5 – Reading
+➗ Tuesday, Oct. 6 – Math
+🔬 Wednesday, Oct. 7 – Science  
+
+Students will also earn points each day toward an end-of-testing incentive. We’re ready to see our Wampus Cats do their best! 💙 #WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-09-30 · Courtway Middle School (id 13314406)
+
+Picture Day is coming up this Friday, October 2! 📸
+
+If you still need to order pictures, you can order online here through October 1:
+https://v2.myproimages.com/strain-photography-schools/60929/search?code=BCMS26
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+

@@ -616,3 +616,152 @@ We are so proud of you both—keep shining bright! 👏✨
 
 #WeAre Simon #SimonStrong
 
+### 2026-09-24 · Angel Moix (id 13249026)
+
+Simon Middle School students will complete Interim Assessments starting next week from 8:00–10:45 AM:
+
+📝 Thurs., 10/1 – Writing
+📖 Mon., 10/5 – Reading
+➗ Tues., 10/6 – Math
+🔬 Wed., 10/7 – Science
+
+Please help your student be on time, well-rested, and ready to do their best! Thank you for supporting our students! 💙
+
+### 2026-09-24 · Angel Moix (id 13249012)
+
+Dear Simon Middle School Families,Our students will be completing their ATLAS Interim Assessments beginning next week. These assessments provide valuable information about student progress and help our teachers identify areas of strength as well as areas where students may need additional support.Please note the following testing schedule:ATLAS Interim Testing ScheduleThursday, October 1: WritingMonday, October 5: ReadingTuesday, October 6: MathWednesday, October 7: ScienceTesting Time: 8:00 AM–10:45 AM each dayWe ask that students arrive at school on time each day, get a good night's sleep, and eat breakfast before testing. Please also encourage your student to do their best, take their time, and carefully read each question.Thank you for your continued support of our students and our school! We appreciate your partnership in helping our students have a successful testing experience.
+
+### 2026-09-25 · Conway Public Schools (id 13259066)
+
+LOCATION CHANGE FOR TONIGHT'S REGION CHOIR CONCERT
+Please note that tonight’s (Sept. 25) Junior High and Middle School Region Choir concert has been moved to a new venue on the UCA campus.
+
+New Location:
+Windgate Center for Fine and Performing Arts
+2150 Bruce Street, Conway, AR 72035
+(Located on the corner of Bruce St. and Donaghy St.)
+
+Schedule:
+Doors Open: 6:00 PM
+Concert Starts: 6:30 PM
+
+Maps and parking details: https://uca.edu/windgate/about/maps-and-directions/
+
+Come out and support our incredible student performers tonight!
+
+### 2026-09-25 · Conway Public Schools (id 13259228)
+
+LOCATION CHANGE FOR TONIGHT'S REGION CHOIR CONCERT
+
+Please note that tonight’s (Sept. 25) Junior High and Middle School Region Choir concert has been moved to a new venue on the UCA campus.
+
+New Location:
+Windgate Center for Fine and Performing Arts
+2150 Bruce Street, Conway, AR 72035
+(Located on the corner of Bruce St. and Donaghy St.)
+
+Schedule:
+Doors Open: 6:00 PM
+Concert Starts: 6:30 PM
+
+Maps and parking details: https://uca.edu/windgate/about/maps-and-directions/
+
+Come out and support our incredible student performers tonight!
+
+### 2026-09-25 · Conway Public Schools (id 13260361)
+
+We are proud to celebrate the incredible progress our students and educators made on the ATLAS state assessments! Several of our schools showed significant growth in overall school scores and performance levels.
+
+These results represent more than numbers, they represent students learning, teachers teaching, and schools growing together. We are grateful to our students, teachers, administrators, and families for their continued commitment to excellence.
+
+Theodore Jones Elementary: +67 points (less than 1 point away from a B)
+Conway High School: +46 points (including a 12-point gain in literacy)
+Simon Middle School: +44 points (moved from a C to a B)
+Marguerite Vann Elementary: +42 points (moved from a D to a C)
+Jim Stone Elementary: +36 points (moved from a C to a B)
+Woodrow Cummins Elementary: +29 points (moved from a C to a B)
+
+We are so proud of this growth and excited for what is ahead! #WeAreWampusCats #TeamConway
+
+### 2026-09-25 · Angel Moix (id 13226726)
+
+Hands-on learning at its finest! 🎢📚
+
+Ms. Larson’s 6th-grade ELA students combined STEM, social skills, and reading standards to design 3D "Plot Roller Coasters" to map out story elements. Learning is definitely a wild ride in 6th grade! 💡✨
+
+#WeAreSimon #SimonStrong #SimonSTEM
+
+### 2026-09-26 · Angel Moix (id 13233033)
+
+🦀🔎 A Treasure Hunt with a Classroom Twist! 🗺️✨
+
+Ms. Jackson’s class went on an exciting scavenger hunt inspired by their newest classroom pets—hermit crabs! 🐚
+
+The story goes that the hermit crabs stayed up all night wandering around the school in search of water, shells, and even report cards! Along the way, they hid treasures for students to discover. Students used a key filled with symbols to decode clues and navigate their way through the hunt.
+
+What a creative way to turn a classroom pet into an adventure filled with problem-solving, teamwork, and learning! It looks like our students had a shell of a good time! 🦀💙#WeAreSimon #SimonStrong #SimonStandard #LearningIsAnAdventure #WampusCats
+
+### 2026-09-28 · Karon Branch (id 13273763)
+
+Good morning!
+
+This is a friendly reminder that the basketball goals are being worked on today. For safety reasons, no one is permitted in the gym while the work is being completed.
+
+Thank you for your cooperation and for helping us keep everyone safe!
+
+### 2026-09-28 · Angel Moix (id 13281852)
+
+🏈🏐 Simon Middle School Powder Puff Event! 🏐🏈
+
+Get ready, 5th, 6th, and 7th graders! Come out to play or watch our Girls Football Game and Boys Volleyball Tournament!
+
+🗓 Date: October 16th
+
+⏰ Time: 1:00 PM – 3:30 PM
+
+📍 Location: SMS Fields & Gym
+
+🍿 Concessions for sale! Play for your grade level or come cheer on your friends!
+
+⚠️ Eligibility Note: Students must meet SMS behavioral expectations to attend (no ISS, OSS, or Saturday School assigned on October 16th).
+
+See you there! 🎉
+
+### 2026-09-28 · Angel Moix (id 13283579)
+
+🌟 6th Grade Students of the Month! 🌟
+
+Huge congratulations to our two stellar 6th graders for setting such a fantastic example at Simon Middle School! 🎉
+
+💙 Kaliyah excels both as an athlete and as a student. She leads with integrity and makes thoughtful choices every day. She works diligently to achieve all that is asked of her.
+
+💙 Tylan brings a curious mind and an amazing work ethic to class every day. He takes his studies seriously, shares his ideas enthusiastically, and shows us all what it truly means to be Simon Strong!
+
+We are so proud of you both! Keep shining!
+
+### 2026-09-29 · Brooklyn Stracener (id 13277511)
+
+7th Grade Simon Girls Basketball Tryouts 
+
+📅October 5th & 6th
+ ⏰ 3:45- 5:00 
+📍 Simon Gym 
+
+Anyone interested in tryouts need to see Coach Wiedower or Coach Hickey to get signed up, and have a current physical uploaded to Dragonfly before tryouts.
+
+### 2026-09-30 · Angel Moix (id 13307058)
+
+🎉 Red Ribbon Week is almost here at Simon Middle School! Join us October 26–30 as we celebrate making healthy, drug-free choices with a week of fun dress-up days!   Here is the schedule:   
+
+🏈 Monday (10/26) – Team Up Against Drugs: Wear your favorite sports jersey or gear!   
+
+😎 Tuesday (10/27) – Meme Day: Dress like a favorite (school-appropriate) meme or viral trend!   
+
+🦸 Wednesday (10/28) – Superhero Day: Wear superhero gear or dress like an everyday hero!   
+
+🪩 Thursday (10/29) – Throwback Day: Rock your favorite decade (70s, 80s, 90s, or 2000s)!   
+
+🐾 Friday (10/30) – Wampus Cat Pride Day: Show your SMS spirit in blue & white or school gear!   
+
+Make a difference, be a hero, and stay drug free! 💙❤️
+

@@ -679,3 +679,94 @@ Bringing the sunshine indoors with non-stop building, bonding, and epic victorie
 
 #JuliaLeeMoore #WeAreJLM #FourthGrade #InsideRecess
 
+### 2026-09-24 · Julia Lee Moore Elementary (id 13239936)
+
+JLM Fall Festival ticket pre-order forms are going home today and are due on Wednesday, October 7th! Tickets will also be sold at Fall Festival, but please note it will be CASH ONLY. Thank you for your support! 🎟️
+
+### 2026-09-24 · Julia Lee Moore Elementary (id 13177366)
+
+Kona Ice is coming to JLM tomorrow, September 25th!  Please return the Kona Ice envelope with exact cash or a check made payable to Kona Ice if you wish to have your child participate. Thank you for supporting JLM!
+
+### 2026-09-24 · Julia Lee Moore Elementary (id 13247593)
+
+Thank you Century 21 Sandstone Real Estate Group for treating our teachers today to snacks and drinks for the lounge! 💙 We appreciate your generosity and support for our school! ✨
+
+#JuliaLeeMoore #JLM #CommunitySupport
+
+### 2026-09-25 · Julia Lee Moore Elementary (id 13176848)
+
+Red-y to conquer Friday! ❤️ Matching outfits and big smiles are the best way to kick off the final day of the week! 
+
+#JuliaLeeMoore #WeAreJLM #HappyFriday #Kindergarten
+
+### 2026-09-25 · Julia Lee Moore Elementary (id 13256576)
+
+Shoutout to our superintendent, Mr. Black, for stepping in to help out as our crosswalk guard this morning! 🛑🚶‍♂️ Thank you for keeping our students safe and starting our day with a smile! 
+
+#JuliaLeeMoore #WeAreJLM #SchoolCommunity
+
+### 2026-09-26 · Julia Lee Moore Elementary (id 13227113)
+
+Big hearts, hard work, and endless support. Thank you to our amazing PTO for all you do for our school! Happy National PTO Appreciation Day! 🎉💙
+
+#JuliaLeeMoore #WeAreJLM #ThankYouPTO #NationalPTOAppreciationDay
+
+### 2026-09-28 · Julia Lee Moore Elementary (id 13176440)
+
+Nothing beats the feeling of grabbing a mallet, picking up a tambourine, and letting the beat take over! 🥁✨ We’re having way too much fun finding our rhythm in music class. 🎶
+
+#JuliaLeeMoore #WeAreJLM #JoyofMusic #LittleMusicians
+
+### 2026-09-28 · Julia Lee Moore Elementary (id 13278574)
+
+JLM Fitness Club will not meet tomorrow, Tuesday, September 29th. Please make arrangements for regular dismissal. Thank you!
+
+### 2026-09-28 · Julia Lee Moore Elementary (id 13240298)
+
+JLM Picture Day is tomorrow morning! 📸 Every student will have their photo taken tomorrow. If you’d like to purchase photos, please send cash or check (made payable to Strain Photography) to school with your child. See you all tomorrow! 💙
+
+### 2026-09-28 · Julia Lee Moore Elementary (id 13284964)
+
+JLM Friends and Family,
+
+Fall Festival is NEXT Friday, October 9th, 2026! It is QUICKLY approaching and we are still in need of sponsors, candy, 2-liters and prizes! We would absolutely love it if you would be willing to help with any of these things! If you have any questions, please contact your child's teacher. 
+
+We look forward to seeing you at Fall Festival!
+
+### 2026-09-29 · Julia Lee Moore Elementary (id 13207891)
+
+Spinning, laughing, and catching every bit of sunshine on the playground today. ☀️✨
+
+#JuliaLeeMoore #WeAreJLM #Recess
+
+### 2026-09-29 · Julia Lee Moore Elementary (id 13278796)
+
+Reminder: "Get Moving Arkansas" field trip permission slips and waivers are due this Thursday, Oct 1st. Both forms are required to attend. Contact your child's teacher for extra copies!
+
+### 2026-09-29 · Julia Lee Moore Elementary (id 13302136)
+
+JLM ATLAS testing starts this Thursday, Oct. 1st, for our 3rd and 4th grade students! Testing begins at 8:15 a.m. sharp, and students need to be in their seats and ready to go at that time. Please help your child by providing them with opportunities to get good rest, nutritious meals, and plenty of water. They will do great! See you bright AND EARLY Thursday morning! 
+
+Testing Schedule (Start Time: 8:15 a.m.):
+Thursday, Oct. 1: 3rd & 4th Grade ATLAS Reading
+Monday, Oct. 5: 3rd & 4th Grade ATLAS Writing
+Tuesday, Oct. 6: 3rd & 4th Grade ATLAS Math
+Wednesday, Oct. 7: 3rd & 4th Grade ATLAS Science
+Thursday, Oct. 8 & Friday, Oct. 9: Make-Up Testing
+
+### 2026-09-30 · Julia Lee Moore Elementary (id 13214019)
+
+Testing, testing, 1-2-3! 🎙️🐻 Our student reporters took to the mic to give us the full scoop on Fat Bear Week!
+
+#JuliaLeeMoore #WeAreJLM #FutureBroadcasters
+
+### 2026-09-30 · Julia Lee Moore Elementary (id 13278628)
+
+JLM Fitness Club will not meet tomorrow, Thursday, October 1st. Please make arrangements for regular dismissal. Thank you!
+
+### 2026-10-01 · Julia Lee Moore Elementary (id 13262741)
+
+Learning and growing together at Table 4! 💡 Every book is a new adventure when shared with friends.
+
+#JuliaLeeMoore #WeAreJLM #GrowingReaders
+

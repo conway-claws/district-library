@@ -751,3 +751,126 @@ Membership information and letters were sent home Tuesday, September 22, through
 
 #WeAreCarlStuart #WeAreConway #ChampionsforKids
 
+### 2026-09-24 · Carl Stuart Middle School (id 13189052)
+
+Kona Ice is coming to Carl Stuart Middle School on September 30! 
+
+Students will have the opportunity to purchase a treat from Kona Ice during their lunch on Wednesday, September 30. Prices range from $3-$7.
+
+### 2026-09-24 · Carl Stuart Middle School (id 13249758)
+
+Dear FBLA Parents and Families,
+
+If your student plans to attend the FBLA Fall Conference, please make sure they complete the following:
+
+• Turn in their completed permission slip
+• Submit the $15 registration fee
+• Return the registration form with an activation email and T-Shirt Size
+
+Please make sure all required items are turned in so we can complete your student's conference registration.
+
+Thank you for supporting our FBLA students! We are excited for them to have this opportunity to learn, connect, and represent Carl Stuart Middle School! 
+
+Carl Stuart Middle School FBLA
+
+### 2026-09-25 · Carl Stuart Middle School (id 13246847)
+
+📚 It’s time to order your 2026–2027 Carl Stuart Middle School Yearbook! 💙
+
+Capture the memories, friendships, and moments that make this school year special!
+
+📖 Yearbooks are $28.
+
+Use the link below to purchase yours today! ⬇️
+
+https://yearbookforever.com/school-store/kg9W4uWsFt4OWJDb6648kQ90
+
+### 2026-09-25 · Conway Public Schools (id 13259068)
+
+LOCATION CHANGE FOR TONIGHT'S REGION CHOIR CONCERT
+Please note that tonight’s (Sept. 25) Junior High and Middle School Region Choir concert has been moved to a new venue on the UCA campus.
+
+New Location:
+Windgate Center for Fine and Performing Arts
+2150 Bruce Street, Conway, AR 72035
+(Located on the corner of Bruce St. and Donaghy St.)
+
+Schedule:
+Doors Open: 6:00 PM
+Concert Starts: 6:30 PM
+
+Maps and parking details: https://uca.edu/windgate/about/maps-and-directions/
+
+Come out and support our incredible student performers tonight!
+
+### 2026-09-25 · Conway Public Schools (id 13259229)
+
+LOCATION CHANGE FOR TONIGHT'S REGION CHOIR CONCERT
+
+Please note that tonight’s (Sept. 25) Junior High and Middle School Region Choir concert has been moved to a new venue on the UCA campus.
+
+New Location:
+Windgate Center for Fine and Performing Arts
+2150 Bruce Street, Conway, AR 72035
+(Located on the corner of Bruce St. and Donaghy St.)
+
+Schedule:
+Doors Open: 6:00 PM
+Concert Starts: 6:30 PM
+
+Maps and parking details: https://uca.edu/windgate/about/maps-and-directions/
+
+Come out and support our incredible student performers tonight!
+
+### 2026-09-27 · Carl Stuart Middle School (id 13272199)
+
+📣 Help our PTO Stock the Lounge! 💙
+
+Let’s show some love to our amazing faculty and staff by helping keep the lounges stocked with snacks, drinks, and goodies they can enjoy throughout the school day!
+
+Want to help? Check out the sign-up link and bring your donated items to the front office by September 30.
+
+Thank you for helping us take care of the people who take care of our students! 💙🐾
+
+#WeAreCarlStuart #ChampionsforKids
+
+### 2026-09-28 · Carl Stuart Middle School (id 13272143)
+
+ATLAS Interim Testing begins this week! We want to make sure our students are prepared to do their best each day. Please take a moment to review these important reminders with your student:📅 Testing ScheduleOctober 1: WritingOctober 5: ReadingOctober 6: ScienceOctober 7: Math💻 Testing Day Reminders📓Bring a fully charged Chromebook each day.📓Get a good night's sleep before testing.📓Arrive at school on time. Testing will begin shortly after the morning bell.📓Please try to avoid early morning checkouts on testing days whenever possible.Thank you for helping us set our students up for success! We appreciate your support as our Wampus Cats show what they know. 💙#WeAreCarlStuart #ChampionsforKids
+
+### 2026-09-28 · Carl Stuart Middle School (id 13272571)
+
+Mr. Jeff Smith, master woodworker and Vietnam War veteran, spoke with Mr. Noland's Advanced Art Students about his woodworking and how he creates these masterpieces.  
+
+He brought a few pieces that he allowed students to hold!  Students were so impressed with Mr. Jeff they were showing off their work to him!  Mr. Jeff Smith is looking forward to returning to visit with more students who are passionate about Art! 🎨🪵
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-09-28 · Carl Stuart Middle School (id 13277863)
+
+🏐 WHAT A WEEKEND, CATS! 🏐
+
+Our volleyball girls battled hard and finished 2nd in the Silver Bracket at this weekend’s tournament! 💪🏼
+
+They put up a great fight, showed determination, and represented Carl Stuart with pride. We are SO proud of you, ladies! 💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-09-29 · Carl Stuart Middle School (id 13272172)
+
+REMINDER: Kona Ice will be at Carl Stuart tomorrow, September 30! Students will be able to purchase during their lunch/recess! Prices range from $3-$7.
+
+### 2026-09-30 · Carl Stuart Middle School (id 13272602)
+
+REMINDER: ATLAS Interim testing begins tomorrow, October 1. Students will take the Writing test. Please be sure that students charge their Chromebooks and arrive to school on time.
+
+### 2026-10-01 · Carl Stuart Middle School (id 13322410)
+
+🍬🍭 CANDY NEEDED FOR FALL FESTIVAL 🍭🍬
+
+Our Fall Festival is coming up on October 15, and our PTO is collecting bags of assorted candy to help make the night extra sweet! 🎃
+
+If you'd like to donate, simply drop off a bag (or two!) of assorted candy at the front office anytime before October 15.
+
+Thank you for helping our PTO make Fall Festival a fun and memorable night for our Cats! 🐾💙
+
