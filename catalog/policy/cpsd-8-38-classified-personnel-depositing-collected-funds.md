@@ -19,5 +19,6 @@ sha256: b6134ba628f9db8c23bfa70931ba9422d655066223a29418901135e83ac06397
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.38 Classified Personnel-Depositing Collected Funds.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

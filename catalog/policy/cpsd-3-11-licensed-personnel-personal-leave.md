@@ -19,5 +19,6 @@ sha256: 997b71123d228909a0f628b8750d1eab2757c32caedee2cc9ca87c79f1654f13
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.11 Licensed Personnel Personal Leave.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

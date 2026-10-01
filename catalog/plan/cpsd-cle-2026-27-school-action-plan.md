@@ -18,5 +18,6 @@ sha256: e3cee4761ff46474e0ad57b389dde71302c8ae334017ca799699ac3e0c285970
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'CLE 2026-27 School Action Plan.pdf' from the [cpsd-school-action-plans-2026-2027] container; extracted with anydoc.

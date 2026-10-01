@@ -19,5 +19,6 @@ sha256: 70edd46563f51625f80a5dfd383d178f85744fd960dec7273f1a4b5373a3e516
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.14.1 Licensed Personnel Leave-Court Subpoenaed.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

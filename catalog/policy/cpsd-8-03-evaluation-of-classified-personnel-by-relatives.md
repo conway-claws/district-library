@@ -19,5 +19,6 @@ sha256: 44357369321a8795e01fe419498f69e24c0481e4fcb97186c092b03713cd3083
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.03 Evaluation of Classified Personnel by Relatives.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

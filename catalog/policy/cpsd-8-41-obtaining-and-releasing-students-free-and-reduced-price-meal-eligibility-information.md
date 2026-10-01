@@ -20,5 +20,6 @@ supersedes: cpsd-8-41-obtaining-and-releasing-students-free-and-reduced-price-me
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.41 Obtaining and Releasing Students Free and Reduced Price Meal Eligibility Information.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

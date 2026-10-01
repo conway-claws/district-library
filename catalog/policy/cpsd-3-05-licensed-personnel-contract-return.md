@@ -19,5 +19,6 @@ sha256: 35129a1980618c7941f57f104f893e467d85451b96b7f4c2547055a0e2c367bb
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.05 - Licensed Personnel Contract Return.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

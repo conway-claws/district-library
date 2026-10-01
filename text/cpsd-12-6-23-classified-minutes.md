@@ -30,10 +30,4 @@ Shelly Glenn made a motion to adjourn the meeting. Ladawna Cowings seconded the 
 
 ## Minutes Prepared by: Tiffany Block
 
-RINCE TREET ONWAY,ARKANSAS
-
-|2220 P|S • C|• 72034-3718|
-|---|---|---|
-|P : 501-450-4800 • F|: 501-450-4898 •|.|
-
-HONE AX WWW CONWAYSCHOOLS.ORG
+2220 PRINCE STREET • CONWAY, ARKANSAS • 72034-3718 PHONE: 501-450-4800 • FAX: 501-450-4898 • WWW.CONWAYSCHOOLS.ORG

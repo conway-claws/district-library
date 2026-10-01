@@ -19,5 +19,6 @@ sha256: 296e000de43f6f45913452b9a0b2cc0d68d05bddbf0095f6d8b9e6962264638e
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.22 Dress of Licensed Employees.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

@@ -19,5 +19,6 @@ sha256: 233fd2c23f80b4fd75dd596ed536d044ebb86853267a462e384f2b20a187af3d
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.53 Depositing Collected Funds.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

@@ -19,5 +19,6 @@ sha256: 09e2cd7274804bb8f68b0b8db21d94794a44749042695eaf3f1468b3063094f8
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.03 Evaluation of Licensed Personnel by Relatives.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

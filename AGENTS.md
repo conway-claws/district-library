@@ -1,8 +1,8 @@
 # AGENTS.md — operating this library as an AI agent
 
 This repository is a catalog of Conway Public Schools' public record, built to be
-read by agents. Everything below is the contract for doing that well. `CLAUDE.md`
-is a symlink to this file.
+read by agents. Everything below is the contract for doing that well. Claude
+Code (2.1.277+), Codex, Gemini and the rest read this file directly.
 
 ## The one rule that is not optional
 
@@ -30,8 +30,17 @@ extractions exist for search and diffing.
 - **Metadata lookup** (by type, school, tag, date, status): read `catalog.jsonl` —
   it is small, streamable, and `jq`-able. Do not parse 600 record files when one
   file has them joined.
-- **Content search**: `grep -ril "transfer policy" text/` then join the filename
-  stem (= slug) back to its record at `catalog/*/<slug>.md` or in `catalog.jsonl`.
+- **Questions** ("what does policy say about transfers"): ranked passage search,
+  `python3 bin/search.py "student transfers" --type policy` or the MCP
+  `search_passages` tool. BM25 over every extraction, stemmed, widened with
+  [glossary.txt](glossary.txt), built in memory from the checkout (nothing is
+  precomputed). Keyword search has no notion of meaning, so you supply it: ask
+  in two or three phrasings (plain and the district's own terms), filter by
+  `type`/date, then read around the best hit with `get_text`. When a real
+  question misses on wording, add the mapping to `glossary.txt`.
+- **Exact strings** (a policy number, a name, a dollar figure):
+  `grep -ril "transfer policy" text/` then join the filename stem (= slug) back
+  to its record at `catalog/*/<slug>.md` or in `catalog.jsonl`.
 - **Which version is current**: filter `status: current`. A `superseded` record
   names its successor in `superseded_by`. Never quote a superseded record as
   current policy — the district revised it.
@@ -91,8 +100,10 @@ Read-only, stdlib-only, over the local clone:
 
 Tools: `search_records` (frontmatter + body search with type/unit/tag/date/status
 filters), `get_record`, `get_text` (windowed by lines — the safe way to read feed
-files), `search_text` (content grep). Superseded records come back flagged with
-their successor.
+files), `search_text` (content grep), `search_passages` (ranked passages with
+line ranges and pinnable `raw_url#Lx-Ly` citations; first call builds the
+index in about a second). Superseded records come back flagged with their
+successor.
 
 ## Remote access without cloning
 

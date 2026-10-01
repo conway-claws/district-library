@@ -19,5 +19,6 @@ sha256: 35d67270c97442117f5f43cb7ee70c3d3c1101c56834a42639ef5f3868b42fc8
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.42 Licensed Personnel Fringe Benefits.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

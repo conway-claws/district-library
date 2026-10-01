@@ -17,7 +17,7 @@ tags: [notice, dyslexia, state-required, 2025-2026]
 last_check: 2026-09-28
 fail_since:
 fail_reason:
-extractor: anydoc@0.1.7
+extractor: anydoc@0.2.4
 ---
 The district's end-of-year dyslexia reporting notice under Act 1039 of 2017 (Ark. Code
 Ann. § 6-41-606(b)): programs used and student counts for 2025-2026. Contains no

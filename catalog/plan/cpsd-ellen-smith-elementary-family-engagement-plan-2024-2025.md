@@ -18,5 +18,6 @@ sha256: 727722ce5af1533249dbd947f277f44f5542c753adb5213237d62b3958b68951
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'Ellen Smith.pdf' from the [cpsd-family-engagement-plans-2024-2025] container; extracted with anydoc.

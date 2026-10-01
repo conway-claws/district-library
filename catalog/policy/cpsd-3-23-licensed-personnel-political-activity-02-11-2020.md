@@ -19,5 +19,6 @@ sha256: e6be18efcb767a34353cc0e40b0925f52ccbceb1a04d492542d5d0a4f9139052
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.23 Licensed Personnel Political Activity 02.11.2020.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

@@ -19,5 +19,6 @@ sha256: cf68367d9841256ea806955c1b871bf44ba5f0c4adc19e2b5564082d0a36a767
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.08 Licensed Personnel Sick Leave 05.12.2020.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

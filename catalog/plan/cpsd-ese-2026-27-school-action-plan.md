@@ -18,5 +18,6 @@ sha256: 58606b259722e79f7dc69d1697434a25418da036fd7fe3ea5a440babfdd0f4d8
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'ESE 2026-27 School Action Plan.pdf' from the [cpsd-school-action-plans-2026-2027] container; extracted with anydoc.

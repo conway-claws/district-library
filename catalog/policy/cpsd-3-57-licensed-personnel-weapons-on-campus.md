@@ -19,5 +19,6 @@ sha256: 19f7a3e553cf06bd1e119413cfc75b57ba397981dd2022bb4a7eb96f3da3f546
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.57 Licensed Personnel Weapons on Campus.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

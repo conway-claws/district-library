@@ -19,5 +19,6 @@ sha256: 16104a5b92506217c655d0128a6663ef78d8f1f06065b6ee630bb2904333c19e
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.07b Classified Employee Bereavement Leave.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

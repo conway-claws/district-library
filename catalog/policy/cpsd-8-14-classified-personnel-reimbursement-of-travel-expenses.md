@@ -19,5 +19,6 @@ sha256: 416bbb5d179971414183ecc1a67daf49b034158a686cbf85f77bdd304ff9d8c1
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.14 Classified Personnel Reimbursement of Travel Expenses.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

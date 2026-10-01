@@ -19,5 +19,6 @@ sha256: f95a983658b75fdb55ad4b3c3fd687e67453b281ba761a79e49ccb3faf0e177a
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.29 Classified Personnel Video Surveillance and Other Monitoring.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

@@ -19,5 +19,6 @@ sha256: 3a76ef5909e8a1bdf8eae58d98e510212d078a2b7054b938547ffb10037d8586
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.12 Licensed Personnel Vacations and Holidays.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

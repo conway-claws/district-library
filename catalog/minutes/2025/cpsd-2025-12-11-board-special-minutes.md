@@ -19,5 +19,6 @@ sha256: 20bc335283cc6aeb0b853fa6aa7a1ce07de5fb87a7ab8e49502a15c40f30cfb0
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '2025.12.11 Board Special Minutes' from the [cpsd-board-minutes-2025-2026] container; extracted with anydoc.

@@ -19,5 +19,6 @@ sha256: 83cd8697f70f916240a8a843a09ba3df09e27166d182f8b78e9ba8cd202efdde
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.31 - Classified Personnel Renewal and Termination.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

@@ -18,5 +18,6 @@ sha256: bc3a455a7466b1cf8183ac9b4b10201545d92ec7ef936bbad48f0cabd3b6b47d
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'Ida Burns Elementary, 24-25 School Action Plan.pdf' from the [cpsd-school-action-plans-2024-2025] container; extracted with anydoc.

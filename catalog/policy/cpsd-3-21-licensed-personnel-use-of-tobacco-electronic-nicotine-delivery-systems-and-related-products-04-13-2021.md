@@ -19,5 +19,6 @@ sha256: d4bb5826fff52e8c080b4c185c3660062196f36803a099d9d69eecfae18bfbc4
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.21 Licensed Personnel Use Of Tobacco, Electronic Nicotine Delivery Systems, and Related Products 04.13.2021.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

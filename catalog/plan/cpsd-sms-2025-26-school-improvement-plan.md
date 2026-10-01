@@ -18,5 +18,6 @@ sha256: 779688c1b36a4402995e07d8cd5d24d5fa41174c33de47d4562e00a1481e830b
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'SMS 2025-26 School Improvement Plan' from the [cpsd-school-action-plans-2025-2026] container; extracted with anydoc.

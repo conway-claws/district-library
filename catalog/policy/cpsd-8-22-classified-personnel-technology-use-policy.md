@@ -19,5 +19,6 @@ sha256: 7be501057f6fe377da4cf881c1f8007f7edcd75f042b5cc7dca2625eb5ba15bf
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.22 - Classified Personnel Technology Use Policy.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

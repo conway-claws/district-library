@@ -18,5 +18,6 @@ sha256: a62d376d4ac857c79784d9168d6792f9ce87dbc8bf6d519b9f7e9d0503a10464
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'Bob and Betty Courtway Middle School, 24-25 School Action Plan.pdf' from the [cpsd-school-action-plans-2024-2025] container; extracted with anydoc.

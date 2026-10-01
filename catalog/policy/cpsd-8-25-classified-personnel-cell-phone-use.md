@@ -19,5 +19,6 @@ sha256: bb973d8e6c9607477fdd10bf0ee63af56c2422860b0ba4b1152a79986b440cbc
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.25 - Classified Personnel Cell Phone Use.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

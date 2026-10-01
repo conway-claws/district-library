@@ -18,5 +18,6 @@ sha256: 2512949ddda9d67235672ae3bfe7f882ed99b742ed198bc3a02921b125953a05
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'Theodore Jones.pdf' from the [cpsd-family-engagement-plans-2024-2025] container; extracted with anydoc.

@@ -19,5 +19,6 @@ sha256: cf669c65ad8b2e63e5d699e171859e33d7599956b142a4d00a6c6292d346a0d0
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.48 Classified Personnel Code of Conduct 05.02.2023.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

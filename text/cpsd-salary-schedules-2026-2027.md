@@ -194,6 +194,36 @@ Primary-Applies to that level where the individual spends the majority of his/he
 
 For an employee with more than one assignment, the indices will be added together and the total applied to the 190 day base.
 
+## Schedule F/B-Business Manager Salary Schedule
+
+## Based on 240 Days of Employment
+
+|Yrs Exp|STEP|NO Degree|BA||
+|---|---|---|---|---|
+|0|1|($ 51,364)|($|70,044)|
+|1|2|($ 52,243)|($|71,026)|
+|2|3|($ 53,124)|($|72,010)|
+|3|4|($ 54,005)|($|72,994)|
+|4|5|($ 54,885)|($|73,979)|
+|5|6|($ 55,766)|($|75,063)|
+|6|7|($ 56,646)|($|75,948)|
+|7|8|($ 57,527)|($|76,933)|
+|8|9|($ 58,406)|($|77,916)|
+|9|10|($ 59,287)|($|78,900)|
+|10|11|($ 60,168)|($|79,885)|
+|11|12|($ 61,047)|($|80,869)|
+|12|13|($ 61,928)|($|81,854)|
+|13|14|($ 62,808)|($|82,837)|
+|14|15|($ 63,688)|($|83,822)|
+|15|16|($ 64,569)|($|84,806)|
+|16|17|($ 65,450)|($|85,790)|
+|17|18|($ 66,332)|($|86,774)|
+|18|19|($|- ) ($|87,760)|
+
+## CASBO Certification (Certified Arkansas School Business Official) 5%
+
+**The Superintendent and/or his designee can determine the years of experience, indices placement, applicable salary schedule, and** **contract days as it pertains to certified/classified district administrator positions.**
+
 ## Schedule H-Health Care Professionals Based on 187 Days of Employment
 
 ## Education Code (Training)

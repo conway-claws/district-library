@@ -201,7 +201,7 @@ N/A
 
 District’s Engagement Plan summary/explanation. [*A.C.A. § 6-15-1704(a)(3)(B)*]
 
-**A.6:** The School Principal understands their obligation to designate and pay a licensed staff member to serve as Parent Facilitator: o to help organize meaningful training for staff and parents, o to promote and encourage a welcoming atmosphere, and o to undertake efforts to ensure that engagement is recognized as an asset to the School. [*A.C.A. § 6-15-1702(c)(1-2)*]
+**A.6:** The School Principal understands their obligation to designate and pay a licensed staff member <s>to serve as Parent Facilitator:</s> o to help organize meaningful training for staff and parents, o to promote and encourage a welcoming atmosphere, and o to undertake efforts to ensure that engagement is recognized as an asset to the School. [*A.C.A. § 6-15-1702(c)(1-2)*]
 **A.7:** The School understands its obligation to encourage school staff to use volunteer surveys to compile a volunteer resource book. [*A.C.A. § 6-15-1702(b)(6)(B)(ii)*]
 **A.8:** The School understands its obligation to conduct no fewer than two parent-teacher conferences per school year. [*A.C.A. § 6-15-1702(b)(3)(B)(ii)*]
 **A.9:** The School understands its obligation to incorporate the Engagement Plan into the School Improvement Plan. [*ADE Rules Governing Parental Involvement Section 3.02.2*]
@@ -248,7 +248,7 @@ Changes Required Compliance is Met
 
 ## Section 2 - Communication
 
-Changes Required Compliance is Met
+Changes Required <s>Compliance is Met</s>
 
 [Textboxforresponses]
 

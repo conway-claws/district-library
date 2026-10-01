@@ -18,5 +18,6 @@ sha256: 53341319210f7f58cbdd3d7a023a8d3fe5bef2f0d3ed24799c9bd372f44992f3
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'Theodore Jones Elementary, 24-25 School Action Plan.pdf' from the [cpsd-school-action-plans-2024-2025] container; extracted with anydoc.

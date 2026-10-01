@@ -19,5 +19,6 @@ sha256: 16c4f6d3ffcc318656cb5ed15b0fe273db99c7db7991905e748ed958e13d10c7
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.23 - Classified Personnel Family Medical Leave.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

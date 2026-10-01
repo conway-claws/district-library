@@ -19,5 +19,6 @@ sha256: f915ac5c3e1314765e0832bbe40b58ed54660a419f8a0800a541c78fd41faa77
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.30 - Classified Personnel Reduction in Force.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

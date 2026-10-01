@@ -18,5 +18,6 @@ sha256: 02be8a9e48dab10dfeb12740aad79044bca4592cd3d1c73a7e16fbab3f671455
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.08.1 Licensed Personnel Bereavement Leave.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

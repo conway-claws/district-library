@@ -19,5 +19,6 @@ sha256: 1cc14f0fccfa67d8b01150000c4cc52f1bbe627732d4469ef884a1e17d8c5ad2
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.12 Classified Personnel Outside Employment.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

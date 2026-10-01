@@ -20,5 +20,6 @@ supersedes: cpsd-8-04-classified-employees-drug-testing-04-14-2015
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.04 Classified Employees Drug Testing 04.12.2022.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

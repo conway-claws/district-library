@@ -8,4 +8,6 @@ An employee will not be terminated for having been the subject of one (1) garnis
 
 At the discretion of the Superintendent, he/she or his/her designee may meet with an employee who has received a second garnishment for the purpose of warning the employee that a third garnishment may result in a recommendation of termination to the School Board.
 
-At the discretion of the Superintendent, a second garnishment may be used as a basis for a recommended of termination. The Superintendent may take into consideration other factors in deciding whether to recommend termination based on a third garnishment. Those factors may
+At the discretion of the Superintendent, a second garnishment may be used as a basis for a recommended of termination. The Superintendent may take into consideration other factors in deciding whether to recommend termination based on a third garnishment. Those factors may include, but are not limited to, the amount of the debt, the time between garnishments, and other financial problems which come to the attention of the District.
+
+Date Adopted: April 9 2024 Last Revised:

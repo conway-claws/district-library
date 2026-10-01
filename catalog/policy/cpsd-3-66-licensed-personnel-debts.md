@@ -19,5 +19,6 @@ sha256: c99511e0c67ce28e30a74927c5b5e3f1535b3d988664d32e407beab9fe022e27
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.66 - Licensed Personnel Debts.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

@@ -20,5 +20,6 @@ supersedes: cpsd-3-56-obtain-and-release-std-meal-info
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.56 Obtaining and Releasing Std Meal Eligibility Information.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

@@ -19,5 +19,6 @@ sha256: 01a073d1c3f763e58551b2092662ca058e24a0f559a92c999cf6b310aac94a21
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.13.1 Licensed Personnel Public Office.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

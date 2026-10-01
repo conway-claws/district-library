@@ -19,5 +19,6 @@ sha256: f06e2cf7e9faa9f51bda8e1ffd43f455ca11418730dc466c9cbd27261c8b0fb1
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.10 Classified Personnel-Jury Duty.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

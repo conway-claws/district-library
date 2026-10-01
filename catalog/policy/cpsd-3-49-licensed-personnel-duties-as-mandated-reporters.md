@@ -19,5 +19,6 @@ sha256: ec23913e85ae7c490bd0db5ff78f9fc0a1b68837cd7c00d5d263d368d4303206
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.49 Licensed Personnel Duties as Mandated Reporters.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

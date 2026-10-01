@@ -19,5 +19,6 @@ sha256: cc786b62f331e150616b0f689b445866743e0514011491f9f36c5ee6e84d7f83
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.24 - Licensed Personnel Grievances.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

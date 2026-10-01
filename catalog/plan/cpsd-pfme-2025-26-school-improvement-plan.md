@@ -18,5 +18,6 @@ sha256: c1cf6390f94968636dd3b0c3a7dfb97768220000355df08d71719857cf50e5fc
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'PFME 2025-26 School Improvement Plan.pdf' from the [cpsd-school-action-plans-2025-2026] container; extracted with anydoc.

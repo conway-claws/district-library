@@ -18,6 +18,7 @@ sha256: 2f2898b57b61684f44ecaa07ce9ae69b8898de8ac50d88d5a87d031950fbd687
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '03 Licensed Personnel.pdf' from the [cpsd-board-policies-folder] container; extracted with anydoc.
 

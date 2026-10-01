@@ -19,5 +19,6 @@ sha256: acca09f2194c517fcee3b109fddffe9cb686560a06e7488905efff70193743e2
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.39 Classified Personnel Workplace Injuries and Workers Compensation 04.12.2022.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

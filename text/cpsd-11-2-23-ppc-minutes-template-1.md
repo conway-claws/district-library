@@ -16,13 +16,7 @@ September 2023 minutes-changes to be made: add “for secretary” after Andrew 
 
 We went over the discipline matrix for elementary, middle, and high to see how consistency is achieved across the district. Calendar-Calendar Committee met to start going over the 2024-2025 Calendar. Changes likely to happen such as switching from days to minutes to get out earlier in May. Calendar is not ready yet, but lots of good things have come out of the suggested changes. Cabinet and Calendar Committee will keep working and try to get it out as soon as possible.
 
-RINCE TREET ONWAY ARKANSAS
-
-|2220 P|S • C,|• 72034-3718|
-|---|---|---|
-|P : 501-450-4800 • F|: 501-450-4898 •|.|
-
-HONE AX WWW CONWAYSCHOOLS.ORG
+2220 PRINCE STREET • CONWAY, ARKANSAS • 72034-3718 PHONE: 501-450-4800 • FAX: 501-450-4898 • WWW.CONWAYSCHOOLS.ORG
 
 ## –2– October 16, 2020
 

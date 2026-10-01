@@ -19,5 +19,6 @@ sha256: f722b6306009a31880d5cf8631e94fec81a97123c89286699689857555dc1eb7
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.44 Classified Personnel Bus Driver End of Route Review 04.14.2015.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

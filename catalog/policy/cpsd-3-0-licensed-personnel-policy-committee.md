@@ -19,5 +19,6 @@ sha256: afa5a95156dabe6a793fb11d6e892f4e26bc7a80c26b9b6995d0e536a681bc96
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.0 - Licensed Personnel Policy Committee.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

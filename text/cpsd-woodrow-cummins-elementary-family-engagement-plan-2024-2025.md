@@ -190,8 +190,8 @@ Describe the process School will follow to jointly develop with parents a School
 |[|A.C.A. § 6-15-1702(c)(1-2)]|
 
 **A.7:** The School understands its obligation to encourage school staff to use volunteer surveys to compile a volunteer resource book. [*A.C.A. § 6-15-1702(b)(6)(B)(ii)*]
-**A.8:** The School understands its obligation to conduct no fewer than two parent-teacher conferences per school year. [*A.C.A. § 6-15-1702(b)(3)(B)(ii)*]
-**A.9:** The School understands its obligation to incorporate the Engagement Plan into the School Improvement Plan. [*ADE Rules Governing Parental Involvement Section 3.02.2*]
+**A.8:** The School understands its obligation to conduct no fewer than two parent-teacher conferences <s>per school year.</s> [*A.C.A. § 6-15-1702(b)(3)(B)(ii)*]
+**A.9:** The School understands its obligation to incorporate the Engagement Plan into the School <s>Improvement Plan.</s> [*ADE Rules Governing Parental Involvement Section 3.02.2*]
 
 **A.10:** The School understands its obligation to schedule regular parent involvement meetings at which parents are given a report on the state of the School and an overview of: o what students will be learning o how students will be assessed o what a parent should expect for his or her child’s education o how a parent can assist and make a difference in his or her child’s education. [*A.C.A. § 6-15-1702(b)(5)(B)(i)(a-d)*]
 **A.11:** Any School serving high school students understands its obligation to educate parents about their role in decisions affecting course selection, career planning, and preparation for postsecondary opportunities. [*A.C.A. § 6-15-1702(b)(7)(B)(ii)*]

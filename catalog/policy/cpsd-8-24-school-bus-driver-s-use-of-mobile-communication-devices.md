@@ -19,5 +19,6 @@ sha256: 39294497580cce7a35f73702045705d2915f2e338ddbff453054ad6c0c5e5508
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.24 School Bus Driver's Use of  Mobile Communication Devices.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

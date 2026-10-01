@@ -19,5 +19,6 @@ sha256: e98c5130dabe1ec2933427b13dba3ce9ea69071f13a33901e746f34438302a3f
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.47 Classified Personnel Use Of Personal Protective Equipment 05.12.2020.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

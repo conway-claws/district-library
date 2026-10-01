@@ -19,5 +19,6 @@ sha256: 71259906be5984b85a58ad9d98989f7e64b960253cbc87a2c9f0becb656d2824
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.37 - Classified Personnel Duties As Mandated Reporters.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

@@ -89,7 +89,7 @@ ELA teachers will participate in the development of a content and curriculum gui
 - Common assessment data will be utilized to determine progress, growth, and re-teaching.
 - ATLAS interim data and ATLAS summative data will be utilized to determine the ongoing effectiveness of the curriculum.
 
-Conway Junior High School School Action Plan 2024-2025
+Conway Junior High School School Action Plan 2024 - 2025
 
 <u>Area of Concern</u> The presence of both physical and verbal conflicts among students serves as a significant distraction, impeding their ability to fully engage in the learning process. Moreover, such conflicts not only disrupt the academic atmosphere but also contribute to the cultivation of a negative school culture, which can have far-reaching consequences on the overall educational experience. Additionally, when conflicts arise, valuable instructional time is often lost as efforts are redirected towards conflict resolution rather than teaching and learning. Recognizing the gravity of this issue, the collaborative efforts of school administration, dedicated staff members, and concerned parents have been instrumental in identifying and addressing student conflicts as a top priority. By acknowledging the impact of these conflicts and actively working towards their resolution, the school community can strive towards creating a more conducive learning environment where students can thrive academically and socially.
 

@@ -18,5 +18,6 @@ sha256: 99128ca4d987ffded0186da2fe338dc259a1ad82e72645f6dab781b67c6fa3e2
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'WCE 2026-27 School Action Plan.pdf' from the [cpsd-school-action-plans-2026-2027] container; extracted with anydoc.

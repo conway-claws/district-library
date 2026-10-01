@@ -18,5 +18,6 @@ sha256: 59915e1a2aa5c9f719c83a44edb3ae98b285b24268dad14bf4adbe201ac8ff77
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '01 Board Governance and Operations.pdf' from the [cpsd-board-policies-folder] container; extracted with anydoc.

@@ -19,5 +19,6 @@ sha256: 3eca0e8590665629257e41c66bfd4d1ec09dcec717ff23bd8f5c0a05c64bbaaa
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.02 Classified Personnel Evaluations.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

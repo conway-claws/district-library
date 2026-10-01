@@ -19,5 +19,6 @@ sha256: 511f47d333cf6c007ea48550ffe24ffe48dc8d769077132551c9ad35cde56d24
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.18.1 Tutoring for Pay.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

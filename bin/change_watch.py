@@ -4,9 +4,12 @@
 Usage:
   python3 bin/change_watch.py [--dry-run] [--only <slug> [<slug> ...]]
 
-Extraction: `npx @firecrawl/anydoc` (pinned) for file formats, a local tag-strip
+Extraction: `npx @firecrawl/anydoc` (latest release, resolved once per run) for
+file formats, a local tag-strip
 pass for static HTML, the layout path for finance PDFs. Byte-stable sources are
-hashed first: an unchanged sha256 skips re-extraction entirely. Diffs are
+hashed first: an unchanged sha256 skips re-extraction entirely, unless the
+record's text came from an older anydoc than this run's (stale_extractor), so
+each upstream release re-extracts every affected record exactly once. Diffs are
 compared after whitespace normalization so re-renders don't read as content
 changes, and a fresh extraction that comes back empty or sharply shrunken is
 refused (SUSPECT) rather than committed — a soft-404 or extractor failure must
@@ -14,6 +17,7 @@ not overwrite good text. Prints CHANGED/SAME/SUSPECT/FAIL/RETRY-EXHAUSTED per
 record; the workflow turns CHANGED lines into commits and an issue.
 """
 
+import re
 import sys
 import time
 import urllib.request
@@ -22,7 +26,7 @@ from html.parser import HTMLParser
 from io import StringIO
 
 from catalog import ROOT, records, sha256_bytes
-from seed_drive_folder import download, extract_document
+from seed_drive_folder import ANYDOC_VERSION, download, extract_document
 
 UA = "conway-claws-district-library/0.1 (change-watch; +https://github.com/conway-claws/district-library)"
 TIMEOUT = 60
@@ -30,6 +34,29 @@ STRATEGY = {"gdoc": "export-docx", "gsheet": "export-xlsx"}
 SHRINK_FLOOR = 0.3  # a fresh extraction below 30% of the old one is refused
 ERROR_TITLE = ("page not found", "not found", "error", "sign in", "access denied",
                "maintenance")
+
+
+ANYDOC_STAMP = f"anydoc@{ANYDOC_VERSION}"
+# extractions made deliberately by another path open with one of these markers
+OTHER_PATH_MARKERS = ("<!-- OCR (tesseract)", "<!-- finance report", "<!-- YouTube")
+
+
+def _ver(stamp):
+    return tuple(int(x) for x in re.findall(r"\d+", stamp.split("@", 1)[-1])[:3])
+
+
+def stale_extractor(rec, old_text):
+    """True when this record's text came from an anydoc older than this run's.
+
+    Records stamped with an older anydoc@x.y.z are stale; a newer stamp (a run
+    that fell back to ANYDOC_FLOOR) is not, so an offline run never downgrades.
+    Unstamped records predate the stamp and are anydoc output unless their text
+    carries another path's marker. Any other stamp (tesseract, pdftotext,
+    html-tagstrip) is current."""
+    ext = rec.get("extractor")
+    if ext:
+        return ext.startswith("anydoc@") and _ver(ext) < _ver(ANYDOC_STAMP)
+    return bool(old_text) and not old_text.startswith(OTHER_PATH_MARKERS)
 
 
 class TextExtractor(HTMLParser):
@@ -133,7 +160,8 @@ def main():
                     extractor = "html-tagstrip"
                 else:
                     digest = sha256_bytes(data)
-                    if digest and digest == rec.get("sha256"):
+                    if (digest and digest == rec.get("sha256")
+                            and not stale_extractor(rec, old)):
                         print(f"SAME {rec.slug} (source hash unchanged)")
                         continue
                     fresh, extractor = extract_document(data, fmt, rec.get("type"))
@@ -144,7 +172,8 @@ def main():
                     # gdoc/gsheet export bytes differ per request; only stable
                     # bytes get the hash fast path and a stamped sha256
                     digest = sha256_bytes(data)
-                    if digest and digest == rec.get("sha256"):
+                    if (digest and digest == rec.get("sha256")
+                            and not stale_extractor(rec, old)):
                         print(f"SAME {rec.slug} (source hash unchanged)")
                         continue
                 fresh, extractor = extract_document(data, fmt, rec.get("type"))
@@ -155,10 +184,15 @@ def main():
             time.sleep(1)  # pace ~600 weekly anonymous hits against Drive
         norm_fresh, norm_old = normalize(fresh), normalize(old)
         if norm_fresh == norm_old:
-            if not dry_run and digest and digest != rec.get("sha256"):
+            if not dry_run and ((digest and digest != rec.get("sha256"))
+                                or (extractor and extractor != rec.get("extractor"))):
                 # same text, new or changed byte hash (re-saved PDF, or a record
-                # the backfill missed): stamp it so the fast path can fire
-                rec.set("sha256", digest)
+                # the backfill missed) or a newer extractor: stamp both so the
+                # fast path fires next week instead of re-extracting again
+                if digest:
+                    rec.set("sha256", digest)
+                if extractor:
+                    rec.set("extractor", extractor)
                 rec.save()
             print(f"SAME {rec.slug}")
             continue

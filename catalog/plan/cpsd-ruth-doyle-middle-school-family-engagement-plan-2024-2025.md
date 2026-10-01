@@ -18,5 +18,6 @@ sha256: 0af7878601906d523256610ab09233739ae39e926352f880354f0790bb64e569
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'RDMS.pdf' from the [cpsd-family-engagement-plans-2024-2025] container; extracted with anydoc.

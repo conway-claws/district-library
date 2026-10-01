@@ -10,7 +10,7 @@ drive_id:
 drive_kind:
 rights: public-record
 text: text/cpsd-superintendent-contract-collum-fragment-a.md
-retrieved: 2026-08-09
+retrieved: 2026-10-01
 verified: 2026-09-28
 status: current
 tags: [finance, employee-contracts, state-required, 2023-2024]
@@ -18,6 +18,7 @@ sha256: 64dcc8896e99a33966297e1852beaa8903f5558ce2492cb7401ffcec401198e3
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4+tesseract@5.5.3
 ---
 Partial contract scan beginning mid-document at §3.4 (automobile allowance); not a complete instrument. The 23-24 page posts this same fragment twice; see [cpsd-superintendent-contract-collum-fragment-b].
 Source file 'Superintendent_Contract_1.pdf' from the district CMS page https://www.conwayschools.org/documents/state-required-information/financial-state-required-information/cpsd-employee-contracts/previous-year-contracts/23-24-contracts.

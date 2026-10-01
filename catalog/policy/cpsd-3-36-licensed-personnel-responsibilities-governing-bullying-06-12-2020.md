@@ -19,5 +19,6 @@ sha256: b52758df087ac7ef5c0ff63a55087fe3e7ed48f9f71b961e1a5da67b39a244b4
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.36 Licensed Personnel Responsibilities Governing Bullying 06.12.2020.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

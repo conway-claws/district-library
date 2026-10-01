@@ -18,5 +18,6 @@ date: 2025-02-27
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '2_27_25  Certified Minutes (Combined)' from the [cpsd-ppc-minutes-2024-2025] container; extracted with anydoc.

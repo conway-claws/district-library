@@ -1,5 +1,10 @@
-# 8.16—DRESS OF CLASSIFIED EMPLOYEES – EXCLUDING MAINTENANCE and CUSTODIAL (See 8.16a)
+<!-- OCR (tesseract): scanned source, no text layer -->
 
-Employees shall ensure that their dress and appearance are professional and appropriate to their positions.
+8.16 — DRESS OF CLASSIFIED EMPLOYEES - EXCLUDING
+MAINTENANCE and CUSTODIAL (See 8.16a)
 
-Date Adopted: June 12, 2007 Last Revised: April 15, 2010
+Employees shall ensure that their dress and appearance are professional and
+appropriate to their positions.
+
+Date Adopted: June 12, 2007
+Last Revised: April 15, 2010

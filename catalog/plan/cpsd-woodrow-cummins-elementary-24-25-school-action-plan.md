@@ -18,5 +18,6 @@ sha256: c990bcabc2823a989885a47ffd357ca2494dcacd3f0cd25ed211b8226b500cf4
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'Woodrow Cummins Elementary, 24-25 School Action Plan.pdf' from the [cpsd-school-action-plans-2024-2025] container; extracted with anydoc.

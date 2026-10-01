@@ -19,5 +19,6 @@ sha256: 00377631fe8d2e8aa2b140e03bb570db110d00a1db2a5b2d50aadce44df18764
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.50 Licensed Personnel Video Surveillance and Other Monitoring.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

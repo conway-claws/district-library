@@ -18,5 +18,6 @@ sha256: 0a4bf008b176bc6f9ffd8c1f51f0701c0e4eaa476da36c53ac2fee0fb6ae2178
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'TJE 2025-26 School Improvement Plan.pdf' from the [cpsd-school-action-plans-2025-2026] container; extracted with anydoc.

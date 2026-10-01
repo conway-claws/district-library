@@ -18,5 +18,6 @@ sha256: e925d005f17578b85a2452978f85b26feb874f181c03ffae7f01c3785b34a226
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.64 - Licensed Personnel Code of Conduct.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

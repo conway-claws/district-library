@@ -26,7 +26,33 @@ from catalog import ROOT, policy_number, records, sha256_bytes
 
 UA = "conway-claws-district-library/0.1 (seed; +https://github.com/conway-claws/district-library)"
 TIMEOUT = 60
-ANYDOC_VERSION = "0.1.7"  # bump deliberately; the extractor: stamp names this
+ANYDOC_FLOOR = "0.2.4"  # oldest acceptable; used only if the registry is unreachable
+# 0.1.7 (pdf-inspector 0.1.7) silently dropped most lines of some Word-made
+# PDFs (4.5 School Choice: 354 of ~2,690 words); fixed from 0.1.8.
+
+
+def _latest_anydoc():
+    """The current published anydoc, resolved once per run.
+
+    The library tracks upstream: every run uses the newest release, pinned to
+    that exact version for the whole run so each extraction's `extractor:`
+    stamp names what produced it. change-watch re-extracts records stamped
+    with any other version, so a new release rolls through once, as a normal
+    reviewed diff, with the shrink guard still refusing a regression."""
+    try:
+        out = subprocess.run(["npm", "view", "@firecrawl/anydoc", "version"],
+                             capture_output=True, timeout=60)
+        ver = out.stdout.decode().strip()
+        if out.returncode == 0 and re.fullmatch(r"\d+\.\d+\.\d+", ver):
+            return ver
+    except (FileNotFoundError, subprocess.TimeoutExpired):
+        pass
+    print(f"WARN npm registry unreachable; anydoc falls back to {ANYDOC_FLOOR}",
+          file=sys.stderr)
+    return ANYDOC_FLOOR
+
+
+ANYDOC_VERSION = _latest_anydoc()  # the extractor: stamp names this
 ANYDOC = f"@firecrawl/anydoc@{ANYDOC_VERSION}"
 THIN_WORDS_PER_PAGE = 40  # below this, a text-layer PDF is suspect: OCR and compare
 
@@ -102,13 +128,17 @@ def _page_count(data):
     return int(m.group(1)) if m else 0
 
 
-def _ocr_pdf(data):
+def _ocr_pdf(data, first=None, last=None, marker=True):
+    """tesseract over pages first..last (1-based, inclusive; default all)."""
     import tempfile
     from pathlib import Path as _P
+    rng = []
+    if first:
+        rng = ["-f", str(first), "-l", str(last or first)]
     with tempfile.TemporaryDirectory() as td:
         pdf = _P(td) / "doc.pdf"
         pdf.write_bytes(data)
-        subprocess.run(["pdftoppm", "-r", "200", "-png", str(pdf), str(_P(td) / "pg")],
+        subprocess.run(["pdftoppm", "-r", "200", "-png", *rng, str(pdf), str(_P(td) / "pg")],
                        check=True, timeout=600)
         pages = []
         for png in sorted(_P(td).glob("pg-*.png")):
@@ -116,6 +146,8 @@ def _ocr_pdf(data):
                                  capture_output=True, timeout=300, check=True)
             pages.append(ocr.stdout.decode("utf-8", errors="replace").strip())
     text = "\n\n".join(p for p in pages if p)
+    if not marker:
+        return text
     if not text:
         raise ValueError("OCR produced no text")
     return "<!-- OCR (tesseract): scanned source, no text layer -->\n\n" + text
@@ -125,6 +157,67 @@ def _ocr_tag():
     return f"tesseract@{_tool_version('tesseract')}+pdftoppm"
 
 
+_NEEDS_OCR = re.compile(r"pages? ([\d,\s-]+) of (\d+) needs? OCR")
+
+
+def _ocr_pages(err):
+    """({1-based pages}, page_count) from anydoc's needs-OCR error, else None.
+    anydoc >= 0.2.4 rejects the whole document (exit 3) naming the pages."""
+    m = _NEEDS_OCR.search(err)
+    if not m:
+        return None
+    pages = set()
+    for part in m.group(1).split(","):
+        lo, _, hi = part.strip().partition("-")
+        if lo:
+            pages.update(range(int(lo), int(hi or lo) + 1))
+    return pages, int(m.group(2))
+
+
+def _pdf_pages(data, first, last):
+    """The pages first..last of a PDF as new PDF bytes (poppler)."""
+    import tempfile
+    from pathlib import Path as _P
+    with tempfile.TemporaryDirectory() as td:
+        src = _P(td) / "src.pdf"
+        src.write_bytes(data)
+        subprocess.run(["pdfseparate", "-f", str(first), "-l", str(last), str(src),
+                        str(_P(td) / "p-%d.pdf")], check=True, timeout=120)
+        parts = [str(_P(td) / f"p-{n}.pdf") for n in range(first, last + 1)]
+        out = _P(td) / "out.pdf"
+        if len(parts) == 1:
+            return _P(parts[0]).read_bytes()
+        subprocess.run(["pdfunite", *parts, str(out)], check=True, timeout=120)
+        return out.read_bytes()
+
+
+def _mixed_pdf(data, ocr_pages, page_count):
+    """Text pages through anydoc, scanned pages through tesseract, each page
+    extracted once, joined in page order. Runs of consecutive pages of the same
+    kind go through their extractor together."""
+    runs, start = [], 1
+    for n in range(2, page_count + 2):
+        if n > page_count or ((n in ocr_pages) != (start in ocr_pages)):
+            runs.append((start, n - 1, start in ocr_pages))
+            start = n
+    out = []
+    for first, last, scanned in runs:
+        if scanned:
+            text = _ocr_pdf(data, first, last, marker=False)
+            if text:
+                out.append(f"<!-- OCR (tesseract): page{'s' if last > first else ''} "
+                           f"{first}{'-' + str(last) if last > first else ''}, "
+                           f"scanned, no text layer -->\n\n{text}")
+            continue
+        proc = subprocess.run(["npx", "-y", ANYDOC, "-", "--format", "pdf"],
+                              input=_pdf_pages(data, first, last),
+                              capture_output=True, timeout=300)
+        if proc.returncode != 0:
+            raise ValueError(proc.stderr.decode(errors="replace").strip()[:200])
+        out.append(proc.stdout.decode("utf-8", errors="replace").strip())
+    return "\n\n".join(t for t in out if t) + "\n"
+
+
 def extract_document(data, fmt, rtype=None):
     """anydoc, with a tesseract OCR fallback for scanned PDFs.
 
@@ -132,6 +225,9 @@ def extract_document(data, fmt, rtype=None):
     PDFs go through the layout-preserving table path first; a thin anydoc result
     on any PDF (words/page below the floor) is OCR'd too and the longer text wins
     — anydoc exiting 0 with a fraction of the document is how truncations got in.
+    A PDF anydoc rejects for some scanned pages is split: those pages are OCR'd,
+    the rest still go through anydoc, so one scanned cover never costs a
+    document its text layer.
     """
     if rtype == "finance" and fmt == "pdf":
         table = finance_table.extract(data)
@@ -156,6 +252,10 @@ def extract_document(data, fmt, rtype=None):
     err = proc.stderr.decode(errors="replace")
     if fmt != "pdf" or "OCR" not in err:
         raise ValueError(err.strip()[:200])
+    flagged = _ocr_pages(err)
+    if flagged and flagged[0] and len(flagged[0]) < flagged[1]:
+        return (_mixed_pdf(data, *flagged),
+                f"anydoc@{ANYDOC_VERSION}+tesseract@{_tool_version('tesseract')}")
     return _ocr_pdf(data), _ocr_tag()
 
 

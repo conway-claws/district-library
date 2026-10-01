@@ -1,3 +1,12 @@
+<!-- OCR (tesseract): page 1, scanned, no text layer -->
+
+Long-Range
+
+STRATEGIC PIAN
+2026-2031
+
+“Sewing Students. Supporting Staff. Strengthening Community."
+
 Dear Conway Public Schools Families, Teachers, Staff, Students, and Community Members,
 
 On behalf of the Conway Public Schools Board of Education, our Leadership Team, and the dedicated employees who serve this district each day, I am proud to share the Conway Public Schools Five Year Strategic Plan. This plan is more than a document. It is the result of a yearlong effort to listen to, learn from, and engage with the people who make Conway Public Schools special-our students, teachers, staff, parents, business leaders, community partners, and other patrons.
@@ -179,11 +188,13 @@ By 6/30/2031, Conway Public School District will become a premier school distric
 
 # Strategic Priorities
 
-**1. Academic Excellence & Student Readiness**
+## 1. Academic Excellence & Student Readiness
+
 - ***Owner -***Dr.Bryce Bennett
 - ***Aspiration*-**Ensure every student is prepared for life after graduation.
 - ***Goal Description -***We will ensure every student graduates with the knowledge, skills, and real-world experiences needed to succeed—whether in college, career, military service, or life. This means stronger reading and math outcomes, expanded career pathways, and meaningful opportunities that prepare students for what comes next.
-**2. Optimal Learning Environments**
+## 2. Optimal Learning Environments
+
 - ***Owner -***Dr.Bryce Bennett
 - ***Aspiration -***Create safe, focused, and engaging classrooms for every student.
 - ***Goal Description -***We will create school environments where teachers can teach and students can learn—with minimal disruption. By establishing clear expectations, strengthening teacher and student support systems, and increasing engagement, we will ensure every classroom is a place where students feel safe, supported, and ready to succeed.
@@ -208,6 +219,11 @@ By pursuing these five priorities together, we ensure CPSD is moving forward in 
 
 Each Strategic Goal includes a baseline (2026), a three-year target (2029), and a five-year target (2031). These targets were established using a combination of nationally recognized benchmarks, comparisons to high-performing peer school districts, and the expertise of CPSD instructional and operational leaders. In every case, our targets are designed to be ambitious yet attainable—challenging us to pursue continuous improvement while remaining grounded in what can realistically be accomplished over the next five years.
 
+|Goal No.|World Class Talent & Culture Strategic Goals|June 30 2026|June 30 2029|June 30 2031|
+|---|---|---|---|---|
+|WCT -01|Achieve average annual Employee Engagement scores of at least 80% on annual surveys|69%|75%|80%|
+|WCT -02|Achieve and maintain an average 12 month voluntary employee turnover rate at or below 7%|10%|8%|7%|
+
 |Goal No.|Academic Excellence & Student Readiness Strategic Goals|June 30 2026|June 30 2029|June 30 2031|
 |---|---|---|---|---|
 |AER -01|Increase district-wide proficiency in ELA to at least 80% across all grade levels.|47%|68%|80%|
@@ -224,10 +240,9 @@ Each Strategic Goal includes a baseline (2026), a three-year target (2029), and 
 |OLE -03|Achieve average annual Student Engagement scores of at least 75% on annual surveys.|64%|70%|75%|
 |OLE -04|Achieve average annual Parent Satisfaction scores of at least 80% on annual surveys%.|69%|72%|80%|
 
-|Goal No.|World Class Talent & Culture Strategic Goals|June 30 2026|June 30 2029|June 30 2031|
+|WCT -03|Achieve and maintain an average number of qualified applicants per position above 50.|30|40|50|
 |---|---|---|---|---|
-|WCT -01|Achieve average annual Employee Engagement scores of at least 80% on annual surveys|69%|75%|80%|
-|WCT -02|Achieve and maintain an average 12 month voluntary employee turnover rate at or below 7%|10%|8%|7%|
+|WCT -04|Ensure at least 80% of Leadership positions are filled internally or through succession and development pipelines.|60%|70%|80%|
 
 |Goal No.|Financial & Operational Excellence Strategic Goals|June 30 2026|June 30 2029|June 30 2031|
 |---|---|---|---|---|
@@ -243,10 +258,6 @@ Each Strategic Goal includes a baseline (2026), a three-year target (2029), and 
 |TCP -02|Achieve and maintain “Trust in District Leadership” among Parents at or above 80% on annual surveys.|45%|60%|80%|
 |TCP -03|Ensure that a district-wide Strategic Communication Plan is developed and executed annually.|Verified|Verified|Verified|
 |TCP -04|Establish formal and sustained partnerships with at least 35 industry, workforce, higher-education, and/or civic organizations.|15|25|35|
-
-|WCT -03|Achieve and maintain an average number of qualified applicants per position above 50.|30|40|50|
-|---|---|---|---|---|
-|WCT -04|Ensure at least 80% of Leadership positions are filled internally or through succession and development pipelines.|60%|70%|80%|
 
 # CPSD Annual Plan of Work
 
@@ -266,12 +277,14 @@ ROA will be deployed as an integral component of the ***Annual Plan of Work***, 
 |---|---|---|---|
 |AER|Improve Grade 10 Geometry and Biology outcomes through aligned curriculum, targeted intervention, and high-quality instruction.|Knight|August 2026|
 
-|AER|Implement an onboarding system for special education designees to strengthen compliance, consistency, and student services.|Gordon|August 2026|
+|AER|Implement an onboarding system for special||August|
 |---|---|---|---|
+||education designees to strengthen compliance, consistency, and student services.|Gordon|2026|
 |AER|Partner with Virtual Arkansas to expand flexible learning opportunities and improve student outcomes.|Howell|August 2026|
 |AER|Strengthen partnerships with community organizations to expand opportunities and support for students and staff.|Howell|August 2026|
 |AER|Launch targeted intervention systems for students scoring in the lowest quartile (25%) in every school.|Bennett|September 2026|
-|AER|Develop a districtwide 7th grade intervention emphasis addressing learning deficit for COVID kindergartners|Bennett|September 2026|
+|AER|Develop a districtwide 7th grade intervention|||
+||emphasis addressing learning deficit for COVID kindergartners|Bennett|September 2026|
 |AER|Implement instructional leadership meeting structure to instructional coherence across schools.|New|September 2026|
 |AER|Improve leadership pipeline through CEAL & assistant principal meetings to prepare future school leaders and support succession planning.|Echols|September 2026|
 |AER|Conduct and publish annual Student Engagement surveys with action plans across every department/campus.|Howell|October 2026|
@@ -312,11 +325,12 @@ ROA will be deployed as an integral component of the ***Annual Plan of Work***, 
 |TCP|Establish a consistent and authentic district-wide communication strategy and plan.|Ryals|August 2026|
 |TCP|Launch and operationalize the Superintendent’s Advisory Council and Project Conway 4Ward Committees.|Ryals|October 2026|
 
-|TCP|Facilitate Project C4Ward launch towards improved resources and solutions for academics, arts, activities, and athletics.|Howell|October 2026|
+|TCP|Facilitate Project C4Ward launch towards improved||October|
 |---|---|---|---|
+||resources and solutions for academics, arts, activities, and athletics.|Howell|2026|
 |TCP|Establish partnership criteria & commitment process for industry, workforce, higher-education, military, and/or civic organizations|Howell|December 2026|
-|TCP|Conduct and publish annual Parent Satisfaction surveys with action plans across every department/campus.|Ryals|April 2027|
-|TCP|Identifying the opportunities and challenges for more students to be enrolled in, or taking advantage of, career pathways, internships, and/or experiential learning.|Howell|April 2027|
+|TCP TCP|Conduct and publish annual Parent Satisfaction surveys with action plans across every department/campus. Identifying the opportunities and challenges for more|Ryals|April 2027|
+||students to be enrolled in, or taking advantage of, career pathways, internships, and/or experiential learning.|Howell|April 2027|
 |TCP|Achieve 20 formally defined partnerships in industry, workforce, higher education, military, and/or civic organizations|Howell|May 2027|
 
 # Key Performance Indicators (KPIs)

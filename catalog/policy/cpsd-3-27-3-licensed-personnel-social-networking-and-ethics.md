@@ -19,5 +19,6 @@ sha256: 937db8848aeab9d37f4390065dc693b53201476d3a3177bd3fdd28733e374e23
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.27.3 - Licensed Personnel Social Networking and Ethics.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

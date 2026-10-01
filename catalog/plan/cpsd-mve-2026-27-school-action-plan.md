@@ -18,5 +18,6 @@ sha256: 2d6b83e1f15cf6225470906abe0f24dc95fe5f6ebe7904442790a010441ac79e
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'MVE 2026-27 School Action Plan.pdf' from the [cpsd-school-action-plans-2026-2027] container; extracted with anydoc.

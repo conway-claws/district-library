@@ -22,7 +22,7 @@ retrieved: 2026-08-08
 verified: 2026-08-08
 date: 2020-04-14
 sha256: 9f2c…64 hex…
-extractor: anydoc@0.1.7
+extractor: anydoc@0.2.4
 status: current
 tags: [governance, vacancies]
 ---
@@ -56,7 +56,7 @@ records drive) do not belong in this catalog.
 | `verified` | no | Stamped by `bin/verify.py`; blank until first successful anonymous fetch |
 | `date` | no | The document's own date (meeting held, policy last revised, reporting month ended), `YYYY-MM-DD` — distinct from the capture dates above |
 | `sha256` | no | Hex digest of the fetched source bytes, stamped at seed/re-extraction. Only byte-stable sources carry it; gdoc/gsheet exports are re-zipped per request and are never hashed |
-| `extractor` | no | Tool that produced the extraction, `name@version` (e.g. `anydoc@0.1.7`, `tesseract@5.5.1+pdftoppm`, `pdftotext@25.07.0+finance-table`, `yt-dlp@2026.07.04`). Blank on extractions made before provenance stamping began (2026-08) |
+| `extractor` | no | Tool that produced the extraction, `name@version` (e.g. `anydoc@0.2.4`, `tesseract@5.5.1+pdftoppm`, `pdftotext@25.07.0+finance-table`, `yt-dlp@2026.07.04`). Blank on extractions made before provenance stamping began (2026-08) |
 | `last_check` | no | Stamped by `bin/verify.py` on **every** probe, success or failure — "when did automation last look" |
 | `fail_since` | no | First date the source failed anonymous fetch; kept until a success clears it. With `fail_reason`, the record itself carries the negative observation ("404 on anonymous fetch since 2026-08-09") instead of an expiring CI log |
 | `fail_reason` | no | One line, ≤120 chars, set/cleared with `fail_since` |

@@ -18,5 +18,6 @@ sha256: 0796cd0ba3e5afc70cfc490882f8696d830fd09d556a52d8a9c826f979945056
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'Julie Lee Moore Elementary, 24-25 School Action Plan.pdf' from the [cpsd-school-action-plans-2024-2025] container; extracted with anydoc.

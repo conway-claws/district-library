@@ -19,5 +19,6 @@ sha256: 50fcab3d2c24d2bcb9989d74627fd1b4488822fc86a54834c8bef66c92501212
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.49 - Classified Personnel Duty to Maintain License in Good Standing.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

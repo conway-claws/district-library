@@ -19,5 +19,6 @@ sha256: fba6ba2c43db9b735b432f52e73fe64fa39a47c98787a9b55cd838dd90dad49f
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.61 Teaching During Planning Period and/or of More Than the Maximum Number of Students Per Day.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

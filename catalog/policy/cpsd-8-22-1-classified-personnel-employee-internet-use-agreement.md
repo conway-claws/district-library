@@ -19,5 +19,6 @@ sha256: d01b0026449d697308c4c0acea24ed2994241f9294ab984e1b2cf34de266a5b0
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.22.1 - Classified Personnel Employee Internet Use Agreement.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

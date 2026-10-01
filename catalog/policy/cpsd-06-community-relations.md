@@ -18,5 +18,6 @@ sha256: 78d0de8bca87923e50615cf60de0bb7a6595939e8a00a3610d19843823825779
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '06 Community Relations.pdf' from the [cpsd-board-policies-folder] container; extracted with anydoc.

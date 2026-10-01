@@ -19,5 +19,6 @@ sha256: 112d4165131a92f09466903fbead9d3e5961441f4e72a7eb0a2ddb2e87a0f17f
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.15 Classified Personnel Use Of Tobacco, Electronic Nicotine Delivery Systems, And Related Products 04.13.2021.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

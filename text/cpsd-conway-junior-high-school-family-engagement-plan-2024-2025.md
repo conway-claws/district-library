@@ -156,11 +156,11 @@ Describe how the School uses Title I, Part A funds set-aside for parent and fami
 - **A.8:** The School understands its obligation to conduct no fewer than two parent-teacher conferences per school year. [*A.C.A. § 6-15-1702(b)(3)(B)(ii)*]
 - **A.9:** The School understands its obligation to incorporate the Engagement Plan into the School Improvement Plan. [*ADE Rules Governing Parental Involvement Section 3.02.2*]
 - **A.10:** The School understands its obligation to schedule regular parent involvement meetings at which parents are given a report on the state of the School and an overview of: o what students will be learning o how students will be assessed o what a parent should expect for his or her child’s education o how a parent can assist and make a difference in his or her child’s education. [*A.C.A. § 6-15-1702(b)(5)(B)(i)(a-d)*]
-- **A.11:** Any School serving high school students understands its obligation to educate parents about their role in decisions affecting course selection, career planning, and preparation for postsecondary opportunities. [*A.C.A. § 6-15-1702(b)(7)(B)(ii)*]
+- **A.11:** Any School serving high school students understands its obligation to educate parents about their role in decisions affecting course selection, career planning, and preparation for postsecondary <s>opportunities.</s> [*A.C.A. § 6-15-1702(b)(7)(B)(ii)*]
 - **A.12:** The School understands its obligation to welcome parents into the School, and more specifically, not have any school policies or procedures that would discourage a parent from visiting the School or from visiting a child's classrooms. [*A.C.A. § 6-15-1702(b)(6)(B)*]
 - **A.13:** The School understands that all Title I, Part A funded engagement activities and strategies should remain consistent with all information set forth in this parent and family engagement plan. [*ESSA § 1116(a)(3)(D)*]
 
-- **A.14:** The School understands its obligation to submit to the State any comments from parents who deem the Title I Schoolwide Plan unsatisfactory. These comments can be sent to <u>ade.engagementmatters@ade.arkansas.gov</u> [*ESSA § 1116(b)(4)*]
+- <s>A.14:</s> The School understands its obligation to submit to the State any comments from parents who deem the Title I Schoolwide Plan unsatisfactory. These comments can be sent to <u>ade.engagementmatters@ade.arkansas.gov</u> [*ESSA § 1116(b)(4)*]
 
 |●|A.15: The School understands its obligation, if requested by parents, to provide opportunities for|
 |---|---|

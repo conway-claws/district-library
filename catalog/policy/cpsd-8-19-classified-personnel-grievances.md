@@ -19,5 +19,6 @@ sha256: c1a201cfedcdc55271270e656d8ad0e389eccdb251f63aa9fabfa35e8eafae08
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.19 - Classified Personnel Grievances.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

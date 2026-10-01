@@ -18,5 +18,6 @@ sha256: 1739a3b578f101fb772852f9144de6d0e9cfcb96cf99db411bcf767a7330adf9
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'WCE 2025-26 School Improvement Plan.pdf' from the [cpsd-school-action-plans-2025-2026] container; extracted with anydoc.

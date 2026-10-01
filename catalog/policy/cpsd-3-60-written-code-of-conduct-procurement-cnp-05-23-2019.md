@@ -20,5 +20,6 @@ supersedes: cpsd-3-60-written-code-of-conduct-procurement-cnp
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.60 Written Code of Conduct - Procurement CNP 05.23.2019.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

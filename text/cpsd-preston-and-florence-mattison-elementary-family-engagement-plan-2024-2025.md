@@ -318,6 +318,6 @@ Changes Required Compliance is Met
 
 ## Section 8 - Reservation of Funds
 
-Changes Required Compliance is Met
+Changes Required <s>Compliance is Met</s>
 
 ## [Text box for responses]

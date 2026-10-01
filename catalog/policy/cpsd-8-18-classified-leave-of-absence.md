@@ -19,5 +19,6 @@ sha256: ba9a1d1541135c372a482313c3572b0ed3b034ec1cb9325a730797e653dd0e27
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.18 - Classified Leave of Absence.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

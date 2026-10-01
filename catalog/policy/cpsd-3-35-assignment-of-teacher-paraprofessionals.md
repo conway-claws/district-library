@@ -19,5 +19,6 @@ sha256: b5c4e98bd423d5f596d23c2fad0136642f20c656e07ae3bcc026c8e9e218e0e7
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.35 Assignment of Teacher Paraprofessionals.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

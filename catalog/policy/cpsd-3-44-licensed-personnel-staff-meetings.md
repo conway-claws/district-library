@@ -19,5 +19,6 @@ sha256: 4fa9a8c727cceccb52d35f4ef88fd48860f1027c764797542b8fa7fc0585c9c6
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.44 Licensed Personnel Staff  Meetings.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

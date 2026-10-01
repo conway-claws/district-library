@@ -10,7 +10,7 @@ drive_id:
 drive_kind:
 rights: public-record
 text: text/cpsd-district-priorities-2025-2026-update.md
-retrieved: 2026-08-09
+retrieved: 2026-10-01
 verified: 2026-09-28
 status: current
 tags: [school-board, district-priorities, 2025-2026]
@@ -18,5 +18,6 @@ sha256: 8cf3d0a2447008b7d7da911b325b7b767318bcd3fc9cbb3cfd3ea70734c0dcdd
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Extracted with anydoc from the district's published PDF.

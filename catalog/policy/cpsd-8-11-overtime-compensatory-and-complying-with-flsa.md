@@ -19,5 +19,6 @@ sha256: 1dd21039f1ef1fd60e6b8efafb39efc2c6eae2739e7f126733ca93c706dce578
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.11 Overtime, Compensatory, and Complying with FLSA.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

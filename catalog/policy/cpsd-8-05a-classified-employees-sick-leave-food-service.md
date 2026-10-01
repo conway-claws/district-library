@@ -20,5 +20,6 @@ supersedes: cpsd-8-05a-classified-employees-sick-leave-food-service-2
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.05a Classified Employees Sick Leave-Food Service.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

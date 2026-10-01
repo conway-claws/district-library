@@ -19,5 +19,6 @@ sha256: 0e56c27f311b016cfe25bcfe7b0463f31a7ed2d85c5f69d7df59d604f266ac26
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.16 Licensed Personnel Reimbursement for Purchase of Supplies 04.14.2015.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

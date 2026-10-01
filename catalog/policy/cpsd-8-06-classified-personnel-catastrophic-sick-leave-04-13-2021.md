@@ -19,5 +19,6 @@ sha256: 860a4516fa6025e75a5d85c37f5813e0cde5319b324420787dcf72a561a335f1
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.06 Classified Personnel Catastrophic Sick Leave 04.13.2021.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

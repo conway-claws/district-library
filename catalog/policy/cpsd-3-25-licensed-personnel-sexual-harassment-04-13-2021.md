@@ -19,5 +19,6 @@ sha256: 8e993de267b9db3c8b5d087af5a9c542bcf922495d23d461dcb6414160414107
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.25 Licensed Personnel Sexual Harassment 04.13.2021.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

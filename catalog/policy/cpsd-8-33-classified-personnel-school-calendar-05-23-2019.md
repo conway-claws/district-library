@@ -19,5 +19,6 @@ sha256: 2a36002189ea1a099c17bde81fc05dd0395346e24fa3f307cae08e9c089022ec
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.33 Classified Personnel School Calendar 05.23.2019.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

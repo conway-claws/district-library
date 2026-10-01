@@ -19,5 +19,6 @@ sha256: eb7bda540766fa5d8d05c3eb17cd7f3e656fd2c67810f417d4f3929618cc41e4
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.50 - Classified Personnel Name, Title, or Pronoun.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

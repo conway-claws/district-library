@@ -19,5 +19,6 @@ sha256: 5feba6f2bdd78ab6f52fd6286d096e0ba0028cb1f7ab95229ba24d1f5a060ed3
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.33 - Licensed Personnel Cell Phone Use.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

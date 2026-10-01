@@ -1,0 +1,37 @@
+# Search glossary for bin/search.py.
+#
+# The district writes in its own vocabulary; people search in theirs. Each line
+# maps a plain-language term to the phrases the documents actually use:
+#
+#   plain term: district phrase, district phrase
+#
+# A query containing the plain term (whole words, case-insensitive) is widened
+# with the listed phrases. Add a line when a real question misses because of
+# wording, and only list phrases that occur in text/ (grep first).
+#
+# Prefix a word with '=' to make it exact: it then matches only that literal
+# word, bypassing the stemmer. Use it for short acronyms the stemmer would fold
+# into ordinary words (unmarked, "ami" also matches every "Amy").
+
+phone: personal electronic device, cell phone
+cell phone: personal electronic device
+raise: salary schedule, cola, cost of living
+pay: salary schedule
+salary: salary schedule
+layoff: reduction in force
+layoffs: reduction in force
+school board: board of directors, board of education
+board meeting: regular meeting, special meeting
+teacher: licensed personnel
+teachers: licensed personnel
+staff: classified personnel, licensed personnel
+support staff: classified personnel
+snow day: inclement weather, =ami, alternative methods of instruction
+=ami: alternative methods of instruction, inclement weather
+cop: school resource officer
+police: school resource officer
+gifted: gifted and talented
+special ed: special education, 504
+voucher: education freedom account, efa, learns act
+tax: millage
+closed session: executive session

@@ -1,3 +1,12 @@
+<!-- OCR (tesseract): page 1, scanned, no text layer -->
+
+CONWAY
+
+2026-2027
+
+STUDENT
+HANDBOOK
+
 Conway Public Schools Handbook 2026-2027
 
 ### EDUCATIONAL PHILOSOPHY
@@ -16,49 +25,40 @@ Cultivate Community Relationships-In all things we do, our Conway Schools will r
 
 Maintain a Safe and Caring Environment-In all things we do, our Conway Schools will be vigilant in protecting the students in our care. Our schools will be a place where students feel safe and loved and have their basic needs met because only then can real learning take place.
 
-### DISTRICT OFFICE CONTACT INFORMATION
+||||Conway Public Schools Handbook 2026-2027|
+|---|---|---|---|
+||DISTRICT OFFICE CONTACT INFORMATION|||
+|Administration Office|2220 Prince Street||Phone: (501) 450-4800|
+||Conway, AR 72034||Fax: (501) 450-4898|
+|Administrative Annex|1902 Hairston Street||Phone: (501) 450-4862|
+||Conway, AR 72034||Fax: (501) 450-6634|
+|Transportation Department|1506 Boen Street||Phone: (501) 450-4892|
+||Conway, AR 72034||Fax: (501) 450-6660|
+|Purchasing Warehouse|1900 Arkansas Avenue||Phone: (501) 450-4875|
+||Conway, AR 72034||Fax: (501) 450-4877|
+||ADMINISTRATION CONTACT INFORMATION|||
+|Superintendent of Schools Jason Black blackj@conwayschools.info (501) 450-4800||Deputy Superintendent Dr. Karen Lasker (501) 450-4800|laskerk@conwayschools.info|
+|Dr. Andy Ashlely ashleya@conwayschools.info (501) 450-4800|Assistant Superintendent for Operations and Administrative Services|Dr. Bryce Bennett (501) 450-4800|Assistant Superintendent for Curriculum and Instruction bennettb@conwayschools.info|
+|Director of Special Education Kelli Gordon gordonk@conwayschools.info (501) 450-6634||Gynger Campbell (501) 450-4800|Director of Human Resources campbellg@conwayschools.info|
+|Director of Programs and Accountability Shanda New news@conwayschools.info (501) 450-4800||Amy Howell (501)450-4800|Director of Strategic Innovation and Partnerships howella@conwayschools.info|
+|Director of School Safety and Security Eric King kinge@conwayschools.info (501) 450-4800||Preston Echols (501) 450-4800|Director of Student Services echolsp@conwayschools.info|
+|Director of Athletics Gregory Hughes hughesg@conwayschools.info (501) 450-6631||Kaitlyn Ryals (501) 450-4800|Coordinator of Media Relations ryalsk@conwayschools.info|
+|Food Services Supervisor Maegan Brown brownm@conwayschools.info (501) 450-4855 Technology Supervisor||Transportation Supervisor Barbara Lyons (501) 450-4892|lyonsb@conwayschools.info|
+|Adam Stroman stromana@conwayschools.info (501)450-4892||||
+||||2|
 
-|Administration Office|2220 Prince Street|Phone: (501) 450-4800|
-|---|---|---|
-||Conway, AR 72034|Fax: (501) 450-4898|
-|Administrative Annex|1902 Hairston Street|Phone: (501) 450-4862|
-||Conway, AR 72034|Fax: (501) 450-6634|
-|Transportation Department|1506 Boen Street|Phone: (501) 450-4892|
-||Conway, AR 72034|Fax: (501) 450-6660|
-|Purchasing Warehouse|1900 Arkansas Avenue|Phone: (501) 450-4875|
-||Conway, AR 72034|Fax: (501) 450-4877|
-
-### ADMINISTRATION CONTACT INFORMATION
-
-|Superintendent of Schools Jason Black blackj@conwayschools.info (501) 450-4800|Deputy Superintendent Dr. Karen Lasker laskerk@conwayschools.info (501) 450-4800|
-|---|---|
-|Assistant Superintendent for Operations and Administrative Services Dr. Andy Ashlely ashleya@conwayschools.info (501) 450-4800|Assistant Superintendent for Curriculum and Instruction Dr. Bryce Bennett bennettb@conwayschools.info (501) 450-4800|
-|Director of Special Education Kelli Gordon gordonk@conwayschools.info (501) 450-6634|Director of Human Resources Gynger Campbell campbellg@conwayschools.info (501) 450-4800|
-|Director of Programs and Accountability Shanda New news@conwayschools.info (501) 450-4800|Director of Strategic Innovation and Partnerships Amy Howell howella@conwayschools.info (501)450-4800|
-|Director of School Safety and Security Eric King kinge@conwayschools.info (501) 450-4800|Director of Student Services Preston Echols echolsp@conwayschools.info (501) 450-4800|
-|Director of Athletics Gregory Hughes hughesg@conwayschools.info (501) 450-6631|Coordinator of Media Relations Kaitlyn Ryals ryalsk@conwayschools.info (501) 450-4800|
-|Food Services Supervisor Maegan Brown brownm@conwayschools.info (501) 450-4855 Technology Supervisor Adam Stroman stromana@conwayschools.info (501)450-4892|Transportation Supervisor Barbara Lyons lyonsb@conwayschools.info (501) 450-4892|
-
-### CONWAY PUBLIC SCHOOLS ELEMENTARY SCHOOLS (K-4)
-
-|IDA BURNS ELEMENTARY Caroline Baker-Principal 1201 Donaghey Street Phone (501) 450-4825 Fax (501) 450-4857|CAROLYN LEWIS ELEMENTARY Yvonne Sturdivant-Principal 1805 Old Military Road Phone (501) 450-4835 Fax (501) 450-4896|ELLEN SMITH ELEMENTARY Matt Coatney-Principal 1601 S. Donaghey Street Phone (501) 450-4815 Fax (501) 450-6621|
-|---|---|---|
-|WOODROW CUMMINS ELEMENTARY Lindsey Jones-Principal 1400 Padgett Road Phone (501) 513-4417 Fax (501) 514-0155|FLORENCE MATTISON ELEMENTARY Dr. Demetre Calhoun – Principal 2001 Florence Mattison Drive Phone (501) 450-4820 Fax (501) 450-6601|JIM STONE ELEMENTARY Dr. Heather Nutt – Principal 4255 College Avenue Phone (501) 450-4808 Fax (501) 450-4807|
-|THEODORE JONES ELEMENTARY Carise Echols – Principal 1800 Freyaldenhoven Lane Phone (501) 450-6645 Fax (501) 450-6649|JULIA LEE MOORE ELEMENTARY Jalon Hughes- Principal 1301 Country Club Road Phone (501) 450-4830 Fax (501) 450-6605|MARGUERITE VANN ELEMENTARY Jana Irvin – Principal 2845 Carl Stuart Road Phone (501) 450-4870 Fax (501) 450-6659|
-
-### MIDDLE SCHOOLS (5-7)
-
-RUTH DOYLE MIDDLE SCHOOL CARL STUART MIDDLE SCHOOL Matt Kelly-Principal Melinda Francis-Principal 800 Padgett Road 2745 Carl Stuart Road Phone (501) 450-6675; Fax (501) 450-6669 Phone (501) 329-2782; Fax (501) 450-4848
-
-RAYMOND & PHYLLIS SIMON MIDDLE SCHOOL BOB & BETTY COURTWAY MIDDLE SCHOOL Karon Branch – Principal Brad Etters-Principal 1600 Siebenmorgen Drive 1200 Bob Courtway Drive Phone (501) 513-6120; Fax (501) 513-6127 Phone (501) 450-4832; Fax (501) 450-4839
-
-### JUNIOR HIGH SENIOR HIGH
-
-CONWAY JUNIOR HIGH SCHOOL CONWAY HIGH SCHOOL Marquis Rogers – Principal Dr. Kate Worley – Principal 1015 Davis Street 2200 Prince Street Phone (501) 450-4840 / 4860; Fax (501) 450-6651 Phone (501) 450-4800; Fax (501) 450-4884
-
-### PRESCHOOL
-
-SALLIE CONE PRESCHOOL TBD-Supervisor 1629 South Boulevard Phone (501) 450-4835; Fax (501) 450-4896
+||||Conway Public Schools Handbook 2026-2027|
+|---|---|---|---|
+|ELEMENTARY SCHOOLS (K-4)|CONWAY PUBLIC SCHOOLS|||
+|IDA BURNS ELEMENTARY Caroline Baker-Principal 1201 Donaghey Street Phone (501) 450-4825 Fax (501) 450-4857||CAROLYN LEWIS ELEMENTARY Yvonne Sturdivant-Principal 1805 Old Military Road Phone (501) 450-4835 Fax (501) 450-4896|ELLEN SMITH ELEMENTARY Matt Coatney-Principal 1601 S. Donaghey Street Phone (501) 450-4815 Fax (501) 450-6621|
+|WOODROW CUMMINS ELEMENTARY Lindsey Jones - 1400 Padgett Road Phone (501) 513-4417|ELEMENTARY Principal|FLORENCE MATTISON Dr. Demetre Calhoun – Principal 2001 Florence Mattison Drive Phone (501) 450-4820|JIM STONE ELEMENTARY Dr. Heather Nutt – Principal 4255 College Avenue Phone (501) 450-4808 Fax (501) 450-4807|
+|Fax (501) 514-0155||Fax (501) 450-6601||
+|THEODORE JONES ELEMENTARY Carise Echols – Principal 1800 Freyaldenhoven Lane Phone (501) 450-6645 Fax (501) 450-6649 MIDDLE SCHOOLS (5-7)|ELEMENTARY|JULIA LEE MOORE Jalon Hughes- Principal 1301 Country Club Road Phone (501) 450-4830 Fax (501) 450-6605|MARGUERITE VANN ELEMENTARY Jana Irvin – Principal 2845 Carl Stuart Road Phone (501) 450-4870 Fax (501) 450-6659|
+|RUTH DOYLE MIDDLE SCHOOL Matt Kelly-Principal 800 Padgett Road|Phone (501) 450-6675; Fax (501) 450-6669||CARL STUART MIDDLE SCHOOL Melinda Francis-Principal 2745 Carl Stuart Road Phone (501) 329-2782; Fax (501) 450-4848|
+|Karon Branch – Principal 1600 Siebenmorgen Drive|RAYMOND & PHYLLIS SIMON MIDDLE SCHOOL Phone (501) 513-6120; Fax (501) 513-6127||BOB & BETTY COURTWAY MIDDLE SCHOOL Brad Etters-Principal 1200 Bob Courtway Drive Phone (501) 450-4832; Fax (501) 450-4839|
+|JUNIOR HIGH||SENIOR HIGH||
+|CONWAY JUNIOR HIGH SCHOOL Marquis Rogers – Principal 1015 Davis Street PRESCHOOL|Phone (501) 450-4840 / 4860; Fax (501) 450-6651|2200 Prince Street|CONWAY HIGH SCHOOL Dr. Kate Worley – Principal Phone (501) 450-4800; Fax (501) 450-4884|
+|SALLIE CONE PRESCHOOL TBD-Supervisor 1629 South Boulevard|Phone (501) 450-4835; Fax (501) 450-4896||3|
 
 ### SCHOOL CALENDAR
 
@@ -586,7 +586,7 @@ A student may possess a personal electronic device during the school day if:
 - The personal electronic device is issued by the District for the student’s use during the school day;
 - The possession of the personal electronic device is during a special event during the school day; or
 - The student is enrolled in an endorsed concurrent enrollment course at an institution of higher education, and the use of the personal electronic device is necessary in order to utilize two-factor authentication to access course work and resources for the endorsed concurrent enrollment course. The use of the personal electronic device shall be limited to the time necessary to complete the two-factor authentication process.
-Electronic devices include but are not limited to cell phones; any paging device, beepers, or similar electronic devices; cameras; MP3 players; iPods; computer games; PSPs; Game Boys; smart watches; and portable music devices, airpods, or any device that can connect or transmit data through bluetooth technology. Such electronic devices shall not be in a Student’s possession or used by a Student during the school day. **Students shall not possess laser or laser point devices of**
+Electronic devices include but are not limited to cell phones; any paging device, beepers, or similar electronic devices; cameras; MP3 players; iPods; computer games; PSPs; Game Boys; smart watches; <s>and</s> portable music devices, airpods, or any device that can connect or transmit data through bluetooth technology. Such electronic devices shall not be in a Student’s possession or used by a Student during the school day. **Students shall not possess laser or laser point devices of**
 
 **any type.** Electronic devices also include GPS enabled student tracking safety devices that allow for one-way or two-way communications. Such devices shall not be allowed unless specifically permitted by a student’s individualized education program (IEP) or individual health plan (IHP).
 

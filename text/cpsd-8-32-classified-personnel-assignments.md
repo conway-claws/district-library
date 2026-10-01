@@ -1,5 +1,9 @@
-# 8.32—CLASSIFIED PERSONNEL ASSIGNMENTS
+<!-- OCR (tesseract): scanned source, no text layer -->
 
-The superintendent shall be responsible for assigning and reassigning classified personnel.
+8.32 —CLASSIFIED PERSONNEL ASSIGNMENTS
 
-Date Adopted: June 12, 2007 Last Revised:
+The superintendent shall be responsible for assigning and reassigning
+classified personnel.
+
+Date Adopted: June 12, 2007
+Last Revised:

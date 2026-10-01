@@ -19,5 +19,6 @@ sha256: 35b3b3ee6e1ba62a47022d54e0918beae22f568db8c8cb69944bf1ca55ca61c7
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.63 Licensed Personnel Use Of Personal Protective Equipment 05.12.2020.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

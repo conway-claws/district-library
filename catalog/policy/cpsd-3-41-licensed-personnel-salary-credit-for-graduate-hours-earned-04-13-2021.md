@@ -19,5 +19,6 @@ sha256: 4f520d461f69ca434f36ed259ee1bfba92434c245858c6b340dee888f33d5c9d
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.41 Licensed Personnel Salary Credit for Graduate Hours Earned 04.13.2021.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

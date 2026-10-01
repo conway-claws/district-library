@@ -19,5 +19,6 @@ sha256: ccab49ebfbc86113e26b6894a0f5a97fde7a8dce3fcee541ce90a744a500eaf4
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.52 - Classified Personnel Notification of Arrests, Charges, and Convictions.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

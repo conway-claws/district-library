@@ -18,5 +18,6 @@ sha256: 2f72adb82f30af2673ac2e71aba74bd6f97a5b5ea1c7b1d139f6590b88d7d78e
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'March CLASSIFIED PPC Minutes.docx' from the [cpsd-ppc-minutes-2025-2026] container; extracted with anydoc.

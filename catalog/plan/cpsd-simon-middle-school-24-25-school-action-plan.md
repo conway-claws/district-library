@@ -18,5 +18,6 @@ sha256: de5ea6f32df3ad942aa9332332408d62ee2e2e781556160e8e2ae37f546be53d
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'Simon Middle School, 24-25 School Action Plan.pdf' from the [cpsd-school-action-plans-2024-2025] container; extracted with anydoc.

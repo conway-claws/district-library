@@ -19,5 +19,6 @@ sha256: 42748f8e62880b853d3429c8bcce61a53ddca89e266181efe39330bf495a530e
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.13 Licensed Personnel Extended Professional Leave.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

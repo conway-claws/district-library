@@ -19,5 +19,6 @@ sha256: 4163ef509e7366d691e1d0c74042f5bc1d38c7cbab3142b220f7e2dcdfe1487f
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.27 Classified Personnel Leave-Injury from Assault.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

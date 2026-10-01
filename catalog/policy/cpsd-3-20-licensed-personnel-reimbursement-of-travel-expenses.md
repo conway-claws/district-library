@@ -19,5 +19,6 @@ sha256: be3bf13239d0d9091cd35ca12fec700ef450dd85904f7f69ff188b50b9bf385b
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.20 Licensed Personnel Reimbursement of Travel Expenses.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

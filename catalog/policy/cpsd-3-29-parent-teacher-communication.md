@@ -19,5 +19,6 @@ sha256: 4cd76a1553ecc4ec5923ef50c35b472ba3378417a4fbd81c05e31444e00ef292
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.29 Parent Teacher Communication.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

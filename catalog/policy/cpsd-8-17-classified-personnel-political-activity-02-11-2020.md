@@ -20,5 +20,6 @@ supersedes: cpsd-8-17-classified-personnel-political-activity
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.17 Classified Personnel Political Activity 02.11.2020.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

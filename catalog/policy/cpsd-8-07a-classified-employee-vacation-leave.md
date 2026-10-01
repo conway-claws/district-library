@@ -19,5 +19,6 @@ sha256: 62768460dd09ef46db3fb52b1d5eb430917d62ab39bda3949f04a3902a0dd3d7
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.07a Classified Employee Vacation Leave.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

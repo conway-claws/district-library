@@ -18,5 +18,6 @@ sha256: 101573def993782ec2b3ea67de530db7db8029a812b9c462c37af3a7a304fe89
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'Courtway School Improvement Plan 2025-26.pdf' from the [cpsd-school-action-plans-2025-2026] container; extracted with anydoc.

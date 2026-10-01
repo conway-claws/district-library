@@ -18,5 +18,6 @@ sha256: 5ba83f91900b1167eb2e9ba021933b932ab5c7ac9a539db6ed6e21a900dfb314
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'PFME 2026-27 School Action Plan.pdf' from the [cpsd-school-action-plans-2026-2027] container; extracted with anydoc.

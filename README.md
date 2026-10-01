@@ -40,13 +40,14 @@ at `https://raw.githubusercontent.com/conway-claws/district-library/main/<path>`
 
 | | |
 |---|---|
-| `README.md` `AGENTS.md` `schema.md` | The front desk: this file, the agents' operating manual (`CLAUDE.md` symlinks to it), and the record format |
+| `README.md` `AGENTS.md` `schema.md` | The front desk: this file, the agents' operating manual, and the record format |
 | `INDEX.md` → `index/` | The generated card catalog: summary at the root, per-type and by-unit/by-tag listings inside `index/` |
 | `catalog.jsonl` | The machine entry point: one JSON object per record, sources resolved |
 | `catalog/` | One small record file per document: what it is, where it lives, when it was last verified |
 | `text/` | Plain-text (markdown) extraction of every document that has one |
 | `exports/` | `feed-posts.jsonl` (every captured live-feed post as one JSON line) and `changes.jsonl` (append-only change events) |
-| `bin/` | The tooling that builds and maintains the library |
+| `bin/` | The tooling that builds and maintains the library; `bin/search.py` is ranked passage search over `text/` |
+| `glossary.txt` | Plain-language search terms mapped to the district's own phrasing |
 
 Originals are never copied here. Each record points to the document where the district
 published it (a Drive file ID or district URL); `text/` holds an extraction for search
@@ -89,7 +90,9 @@ the same run:
 | `transcript-probe` | manual | diagnostic: can this runner reach YouTube captions? |
 
 Extraction is local and keyless: [`@firecrawl/anydoc`](https://github.com/firecrawl/anydoc)
-(version-pinned in `bin/`) converts documents to markdown on the runner, `pdftotext
+(always the latest release; each run resolves it once and stamps it) converts
+documents to markdown on the runner, and a new release re-extracts every record the
+previous one produced, as a reviewable diff, `pdftotext
 -layout` preserves the column geometry of the monthly financial reports, and a tesseract
 OCR fallback handles the copier scans the district publishes its signed documents as.
 Each extraction records its `extractor:` and source `sha256:` so provenance is checkable,

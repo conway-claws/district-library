@@ -19,5 +19,6 @@ sha256: 5c84c8196caa3b3cc9c364473a824e3c61fb8c962b4373c137883ed8d6305ca2
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.67 - Licensed Personnel Notification of Arrests, Charges, and Convictions.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

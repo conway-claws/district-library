@@ -19,5 +19,6 @@ sha256: eb489a298377e7d63623bd4c239b28a8d06541f7900c35ee7f69d83cbd6a48a8
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.47 Licensed Personnel Records and Reports.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

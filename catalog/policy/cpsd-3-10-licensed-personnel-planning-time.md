@@ -19,5 +19,6 @@ sha256: 01d9bfba9456377baac9e1a68105f7be17b2b4ea1f4fe5ee8101f2a179b04d3d
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.10 Licensed Personnel Planning Time.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

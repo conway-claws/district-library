@@ -19,5 +19,6 @@ sha256: f20f56a4c484deda6baafee304e2b50aceac44acc39f7af46dbfc8b983fd4243
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.51 Licensed Personnel Workplace Injuries and Workers' Compensation.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

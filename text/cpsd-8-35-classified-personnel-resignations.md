@@ -1,5 +1,10 @@
-# 8.35—CLASSIFIED PERSONNEL RESIGNATIONS
+<!-- OCR (tesseract): scanned source, no text layer -->
 
-A classified employee must submit written notification of a resignation to the immediate supervisor and superintendent at least 10 working days prior to their final day of employment.
+8.35 — CLASSIFIED PERSONNEL RESIGNATIONS
 
-Date Adopted: June 12, 2007 Last Revised:
+A classified employee must submit written notification of a resignation to the
+immediate supervisor and superintendent at least 10 working days prior to their
+final day of employment.
+
+Date Adopted: June 12, 2007
+Last Revised:

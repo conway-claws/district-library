@@ -19,5 +19,6 @@ sha256: 726acd4fbbda3f5c9568076c87ec746015d8e7b34d27775fce9c9c6b4d873d4f
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.21 Classified Personnel Supervision of Students.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

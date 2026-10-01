@@ -19,5 +19,6 @@ sha256: 60fb5e5e636f375d8c782aea8fbfe6d74f07c5e518f9bcdb805c67ddc124c1d2
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.31 - Licensed Personnel Family Medical Leave.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

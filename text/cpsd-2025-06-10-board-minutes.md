@@ -36,6 +36,9 @@ Superintendent Collum led the audience in the Pledge of Allegiance.
 |•||September.|C.A.T. Forum – Superintendent Collum shared plans for a community presentation in|
 |•|||School Board/Chamber Long-Range Planning Update – Superintendent Collum gave an update on the Long-Range Planning Board Work Session that was held and presented a|
 ||||2|
+
+||||Policy on Supporting a Healthy and Thriving Public School District from collaborative work with the Chamber.|
+|---|---|---|---|
 ||||[Mr. Cummings III left the meeting at 7:38 p.m.] District Financial Report|
 |•||Information Items|District Financial Report – Dr. Andy Ashley presented the financial reports for April and May. Mrs. Hargis made the motion to approve the financial reports for April and May, as presented. The motion was seconded by Dr. Petty and passed unanimously at 7:40 p.m. [Mr. Cummings III returned at 7:41 p.m.]|
 |•|||2025-2026 Student Handbook for Review – Shasta Wagner, Chief Legal Officer, presented the revisions that were made to the student handbook for the Board to consider and vote upon at the July Board meeting.|

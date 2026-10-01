@@ -19,5 +19,6 @@ sha256: a4a7c04c1d3aa18882146cb27ec7fd3cf7e1e730b1fae8929d0a797591b8736f
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.55 Administrator Evalutor Certification 05.23.2019.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

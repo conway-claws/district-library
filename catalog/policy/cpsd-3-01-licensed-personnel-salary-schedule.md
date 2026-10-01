@@ -19,5 +19,6 @@ sha256: edb328c57e0f56109396b3775946b26cde4f879f0ff29bfd3459eaf56b2e9799
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.01 - Licensed Personnel Salary Schedule.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

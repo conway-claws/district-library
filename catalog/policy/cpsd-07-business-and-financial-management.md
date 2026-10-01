@@ -18,5 +18,6 @@ sha256: 7a6045153d519e14c1b450a5812de3311eefa7e691565eb450370e2c62c05b04
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '07 Business and Financial Management.pdf' from the [cpsd-board-policies-folder] container; extracted with anydoc.

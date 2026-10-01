@@ -18,5 +18,6 @@ sha256: 4ebc0c355afc5c70dbbcee3c032f9c5f181c6d975c3e55e6fd6e2010bcc4eea2
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'Meeting Dates_ PPC 25-26.pdf' from the [cpsd-ppc-minutes-2025-2026] container; extracted with anydoc.

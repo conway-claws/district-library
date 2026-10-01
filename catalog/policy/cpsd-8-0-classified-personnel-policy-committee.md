@@ -19,5 +19,6 @@ sha256: 1ee976f0c6ec7b4d9e6d1f755b0e84a94d597bd447089ca43c3228b5e30bc075
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.0 - Classified Personnel Policy Committee.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

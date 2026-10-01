@@ -19,5 +19,6 @@ sha256: 8e7bb23acb417ef2a8d67b190e34a5cb660174c72f98eb5819c421c532a726c3
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.02 Licensed Pers Evaluations 05.23.2019.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

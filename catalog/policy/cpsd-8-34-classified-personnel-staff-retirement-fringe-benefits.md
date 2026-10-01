@@ -19,5 +19,6 @@ sha256: 735d01488ac9a053e1c55499fd2d3c89d6b69750852d30c5ec542138a13a65ad
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.34 Classified Personnel Staff Retirement Fringe Benefits.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

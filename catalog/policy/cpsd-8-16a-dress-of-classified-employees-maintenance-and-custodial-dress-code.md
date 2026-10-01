@@ -19,5 +19,6 @@ sha256: fadcdf6f7d8049c1f7c9a882d83b43be58beb9e9f8597d6a86cbeb7980cf6f72
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.16a Dress of Classified Employees-Maintenance and Custodial Dress Code.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

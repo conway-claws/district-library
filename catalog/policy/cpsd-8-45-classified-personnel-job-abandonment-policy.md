@@ -19,5 +19,6 @@ sha256: 58d06eb1a907ec570c4ffc123486d862b8ef7bf102cabfe137f12a2dbe2e40df
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.45 Classified Personnel Job Abandonment Policy.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

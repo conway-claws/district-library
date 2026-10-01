@@ -18,5 +18,6 @@ sha256: af951cc2279211fd605a45fa6a5d60e8ff4f68582f738cfec630bd4d2d56011f
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'IBES 2026-27 School Action Plan.pdf' from the [cpsd-school-action-plans-2026-2027] container; extracted with anydoc.

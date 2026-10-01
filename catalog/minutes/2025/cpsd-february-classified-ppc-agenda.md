@@ -18,5 +18,6 @@ sha256: c084e55deefd39966e1ade591a9914d16a50d6c3fa90e40c3dec272d5b705439
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'February CLASSIFIED PPC Agenda.docx' from the [cpsd-ppc-minutes-2025-2026] container; extracted with anydoc.

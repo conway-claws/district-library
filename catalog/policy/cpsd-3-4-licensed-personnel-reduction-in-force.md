@@ -19,5 +19,6 @@ sha256: 7213abd938a439390c69ed98b0d91d8d75114a7bed2ac0e88d754563ac58e188
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.4 - Licensed Personnel Reduction in Force.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

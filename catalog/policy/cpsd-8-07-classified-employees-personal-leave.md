@@ -19,5 +19,6 @@ sha256: 0587cbf7fd9fba9fd91f26ba7e371360ef056e159d36ebeb0f6b93a3372eb154
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.07 Classified Employees Personal Leave.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

@@ -20,5 +20,6 @@ supersedes: cpsd-8-26-classified-personnel-responsibilities-governing-bullying
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.26 Classified Personnel Responsibilities Governing Bullying 06.12.2020.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

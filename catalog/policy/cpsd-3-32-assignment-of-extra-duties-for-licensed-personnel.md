@@ -19,5 +19,6 @@ sha256: b37bce0e7807d9ec0a406738701b172cb85dfc69adc97b3ae2ba80807460f130
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.32 Assignment of Extra Duties for Licensed Personnel.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

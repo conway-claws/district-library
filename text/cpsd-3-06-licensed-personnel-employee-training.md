@@ -33,7 +33,25 @@ license shall include:
 - Two (2) hours of PD on family and community engagement;
 - Two (2) hours of PD on mental health and teen suicide awareness and prevention;
 
-- Two (2) hours of PD in Arkansas history for educators providing instruction in Arkansas history; ●
+- Two (2) hours of PD in Arkansas history for educators providing instruction in Arkansas history;
+- Thirty (30) minutes of PD in human trafficking prevention, including:
+- Recognizing the warning signs that a child is a victim of human trafficking; and
+- Reporting a suspicion that a child is a victim of human trafficking;
+- Two (2) hours of PD in bullying prevention, including:
+- Recognition of the relationship between incidents of bullying and the risk of suicide; and
+- Dyslexia professional awareness, including:
+- The characteristics of dyslexia; and
+- The evidence-based interventions and accommodations for dyslexia.
+In addition to the PD required for initial licensure, the following rotating schedule shall apply:
+
+- Beginning with the 2023-2024 school year and every fifth year thereafter, an educator shall be required to earn PD on mental health awareness and teen suicide awareness and prevention required under DESE Rules Governing Professional Development, Rule
+5.04.1.3.
+- Beginning with the 2024-2025 school year and every fifth year thereafter, an educator shall be required to earn the PD in bullying prevention required under Rule 5.04.1.6.
+- Beginning with the 2025-2026 school year and every fifth year thereafter, an educator shall be required to earn the PD for mandated reporters required under Rule 5.04.1.1.
+- By the beginning of the 2024-2025 school year and every fifth year thereafter, a school counselor shall receive Youth Mental Health training to learn the risk factors and warning signs of mental health issues in adolescents; the importance of early intervention; and how to help an adolescent who is in crisis or expecting a mental health challenge.
+- In addition to mental health training otherwise required by this policy, all district employees shall receive mental health awareness training.
+- The PD in human trafficking prevention under DESE Rule 5.04.1.5 will be offered annually.
+- Starting in the 2024-2025 school year and every two (2) years thereafter, principals, guidance counselors, teachers, and other relevant school personnel with direct contact and supervision of students shall receive seventy-five (75) minutes of training, in person or online, on the recognition of signs and symptoms of seizures and the appropriate steps for seizure first aid that is consistent with training programs and guidelines developed by the Epilepsy Foundation of America. In addition, at least two (2) employees at each school shall receive training that is consistent with training programs and guidelines developed by the Epilepsy Foundation of America to:
 
 1. Administer or assist with the self-administration of:
 - A seizure rescue medication or medication prescribed to treat seizure disorder symptoms; and
@@ -41,7 +59,15 @@ license shall include:
 2. Recognize the signs and symptoms of seizures and the appropriate steps to be taken to respond to these symptoms.
 At least once every three (3) years, persons employed as athletics coaches shall receive training related to the recognition and management of concussions, dehydration, or other health emergencies as well as students’ health and safety issues related to environmental issues, communicable diseases, and sudden cardiac arrest. The training may include a component on best practices for a coach to educate parents of students involved in athletics on sports safety.
 
-For each administrator, the required PD shall include training in data disaggregation, instructional leadership, and fiscal management. This training may include the Initial, Tier 1, and Tier 2 training required for superintendents and other designees by DESE’s Rules
+For each administrator, the required PD shall include training in data disaggregation, instructional leadership, and fiscal management. This training may include the Initial, Tier 1, and Tier 2 training required for superintendents and other designees by DESE’s Rules Governing the Arkansas Financial Accounting and Reporting System and Annual Training Requirements.
+
+An applicant for a building-level administrator license shall successfully complete the teacher evaluation professional development program. Current building level administrators shall complete the credentialing for the teacher evaluation PD program prior to conducting any summative teacher evaluations.
+
+Each hour of approved training received by educators related to teaching an advanced placement class for a subject covered by College Board and Educational Testing Service shall count as PD up to a maximum of thirty (30) hours annually.
+
+Five (5) hours of credit for PD shall be given for each one (1) hour of college credit for a graduate-level course as approved by the District pursuant to Ark. Code Ann. § 6-15- 1004(b)(2).
+
+District administrators as well as licensed personnel selected by the superintendent or building principal shall receive training on the appropriate use of restraint and seclusion in accordance with DESE’s Advisory Guidelines for the Use of Student Restraints in Public School or Educational Settings in compliance with the requirements of A.C.A. § 6-18-2409. The names of District staff who have received certified training on the use of physical restraint shall be provided to all District staff at least annually.
 
 As part of the District’s implementation of the District’s positive behavioral support system, District administrators as well as building personnel selected by the superintendent or building principal shall receive training in the use of positive behavior support for student behavior and in preventive techniques for teaching and motivating prosocial student behavior and conflict de-escalation and resolution techniques to be employed by school personnel to prevent, defuse, evaluate, and debrief a crisis and conflict situation.
 
@@ -82,6 +108,7 @@ PD activities shall relate to the following areas:
 - Bullying prevention, antibullying policies, and procedures.
 - Appropriate training for anticipated rescuers in the use of automated external defibrillator or cardiopulmonary resuscitation; and
 - The Code of Ethics for Arkansas Educators.
+An educator may count toward required PD each hour of training included in the PDP that is mandated by law or by rule, including without limitation in the following areas:
 
 - School Fire Marshal program (A.C.A. § 6-10-110);
 - Tornado and earthquake safety drills (A.C.A. § 6-10-121);

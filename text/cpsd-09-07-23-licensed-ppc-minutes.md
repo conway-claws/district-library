@@ -17,13 +17,7 @@ Kendra Rimlinger nominated Emily Bailey for Vice President, Tressa Wood, second 
 
 Emily Bailey nominated Andrew Wright for Secretary, Meredith Mangum, second Vote Passed unanimously.
 
-RINCE TREET ONWAY ARKANSAS
-
-|2220 P|S • C,|• 72034-3718|
-|---|---|---|
-|P : 501-450-4800 • F|: 501-450-4898 •|.|
-
-HONE AX WWW CONWAYSCHOOLS.ORG
+2220 PRINCE STREET • CONWAY, ARKANSAS • 72034-3718 PHONE: 501-450-4800 • FAX: 501-450-4898 • WWW.CONWAYSCHOOLS.ORG
 
 ## –2– September 7th, 2023
 

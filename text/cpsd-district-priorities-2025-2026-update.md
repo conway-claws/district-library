@@ -42,8 +42,6 @@
 
 **Goal #4** In 2025, CPSD will gather baseline Secondary Student engagement data and by July 1, 2026, we will increase the average student engagement score from 64.3% to 75%.
 
-con w a yschools. or g
-
 # District Priorities
 
 ## District Priority #3
@@ -61,5 +59,3 @@ con w a yschools. or g
 **Goal #1** In 2025, CPSD will populate and launch a Strategic Plan Steering Committee in partnership with the Conway Chamber and Conway Development Corporation. **Goal #2** By June 30, 2026, CPSD will develop and approve a high-quality, stakeholder-driven strategic plan that reflects the needs and aspirations of the community. The Plan will be widely and easily accessible to all stakeholders. **Goal #3** By June 30, 2026 CPSD will develop and implement a process to establish continual dialogue and build strong local employer relationships, ultimately ensuring that the CTE programs are aligned with high-wage, high-growth, military, and high-demand Conway-area jobs.
 
 **Goal #4** By June 30, 2026, CPSD will establish an ongoing process to strengthen collaboration and partnerships with area colleges, universities, and military.
-
-con w a yschools. or g

@@ -19,5 +19,6 @@ sha256: 4d89f69641231540392401b114a412612f0fa6862c432e245a798eb06a0067e6
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.27.2 - Licensed Personnel Employee Internet Use Agreement.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

@@ -19,5 +19,6 @@ sha256: 25d9e68dfde407acfaa157af7ebaecc80cec5273875bd609ff4a15770c8da52d
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.14 Licensed Personnel Jury Duty.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

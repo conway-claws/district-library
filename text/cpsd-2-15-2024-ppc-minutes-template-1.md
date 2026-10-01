@@ -16,13 +16,7 @@ III. Call to Order: Niswonger called the meeting to order.
 V. New Business: Switching from traditional schedule to the hour schedule due to inclement weather
 The Department of Education is allowing for a change from days to the hour model to account for missed school days. 82 Districts have switched in the state. This would change us from 178 student contact days to 175 student contact days. There would be no make-up days from inclement weather. Niswonger proposed a vote for switching from days to hours. Wright seconded the motion. The “I” won the vote with opposing the vote.
 
-RINCE TREET ONWAY ARKANSAS
-
-|2220 P|S • C,|• 72034-3718|
-|---|---|---|
-|P : 501-450-4800 • F|: 501-450-4898 •|.|
-
-HONE AX WWW CONWAYSCHOOLS.ORG
+2220 PRINCE STREET • CONWAY, ARKANSAS • 72034-3718 PHONE: 501-450-4800 • FAX: 501-450-4898 • WWW.CONWAYSCHOOLS.ORG
 
 ## –2– October 16, 2020
 

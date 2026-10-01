@@ -18,5 +18,6 @@ sha256: 1456554efcd67c20e189ae99d7a6be0f91d96b9cb1232db278c68157e4d92b3b
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'CLE 2025-26 School Improvement Plan.pdf' from the [cpsd-school-action-plans-2025-2026] container; extracted with anydoc.

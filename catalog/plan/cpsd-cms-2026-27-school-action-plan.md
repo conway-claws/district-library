@@ -18,5 +18,6 @@ sha256: 6e469d0f434421292218891c960f7160f225b07e74cb9ee12289c0b4f08f27a5
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file 'CMS 2026-27 School Action Plan.pdf' from the [cpsd-school-action-plans-2026-2027] container; extracted with anydoc.

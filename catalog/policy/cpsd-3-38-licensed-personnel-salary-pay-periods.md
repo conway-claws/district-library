@@ -19,5 +19,6 @@ sha256: a504598ed8686cf0a84ec0a35d9ab842e9b2d7870f8d1da9ce04b8b62d6af466
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.38 Licensed Personnel Salary Pay Periods.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

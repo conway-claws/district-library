@@ -19,5 +19,6 @@ sha256: 15466d5ea5123b616ac630413ca9ffa534659056a457cf071c482abb735e6bce
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '3.65 - Licensed Personnel Name, Title, or Pronoun.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

@@ -20,5 +20,6 @@ supersedes: cpsd-8-20-classified-personnel-sexual-harassment
 last_check: 2026-09-28
 fail_since:
 fail_reason:
+extractor: anydoc@0.2.4
 ---
 Source file '8.20 Classified Personnel  Sexual Harassment 03.14.2023.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.
