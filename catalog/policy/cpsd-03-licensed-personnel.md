@@ -14,7 +14,7 @@ retrieved: 2026-08-09
 verified: 2026-09-28
 status: current
 tags: [school-board, policy]
-sha256: 2f2898b57b61684f44ecaa07ce9ae69b8898de8ac50d88d5a87d031950fbd687
+sha256: 4b54b6974fbb353437d7f01fa04ab7400ab8cb9de0b83d238f74d5d2440d1bb4
 last_check: 2026-09-28
 fail_since:
 fail_reason:
