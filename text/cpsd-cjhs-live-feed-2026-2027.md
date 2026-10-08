@@ -1043,3 +1043,291 @@ Through this immersive experience, students were able to go beyond the textbook 
 
 A huge thank you to Show-me for generously providing classroom supplies and to Velda Lueders, a local realtor and community supporter, whose generous donation made our mooncake-making experience possible. We greatly appreciate our community partners for helping provide memorable learning opportunities for our students! ❤️
 
+### 2026-10-01 · Coach Raney (id 13332574)
+
+Lovin' bright lights, football field, our amazing 8th grade band, and fall weather.
+
+### 2026-10-01 · Conway Junior High (id 13334760)
+
+🎉 Introducing the 2026–2027 CJHS Homecoming Court! 👑💙
+
+Please join us in congratulating this year’s Homecoming Court! We are excited to celebrate these students and look forward to an unforgettable Homecoming week!
+
+Congratulations to all of our court members! 💙🤍
+
+### 2026-10-01 · Conway Junior High (id 13329459)
+
+⭐ ATLAS Interim is coming up! ⭐
+
+Students, get ready to show your effort, focus, and determination during ATLAS testing on October 6–7! 📚
+
+Students can earn points for:
+🔹 Bringing a charged Chromebook
+🔹 Positive behavior during testing
+🔹 Attendance & being on time
+🔹 Giving their best effort
+🔹 Completing each ATLAS assessment
+
+Students who earn 14 out of 16 points will qualify to participate in our Food Truck Incentive! 🚚🍴
+
+Do your best. Stay focused. Earn those points Wampus Cats!
+
+### 2026-10-02 · Conway Junior High (id 13343761)
+
+Today, we’re celebrating and thanking our amazing Conway Junior High custodial staff! Your hard work, dedication, and care help keep our school clean, safe, and welcoming for our students and staff every day.
+
+We appreciate everything you do for CJHS more than you know! Thank you for all the behind-the-scenes work that helps our school run smoothly. We are so thankful for you!
+
+### 2026-10-02 · Marquis Rogers (id 13346696)
+
+Birthday cake in the north building workroom.  Enjoy!
+
+### 2026-10-02 · Marcus Kordsmeier (id 13347042)
+
+GIRLS GOLF — SEASON WRAP-UP
+
+That’s a wrap on the 2026 Conway Wampus Cat Girls Golf season!
+
+Wednesday marked the final round of the season, and we couldn’t be more proud of the way these girls competed, represented Conway, and continued to grow throughout the year.
+
+A special congratulations to our individual State qualifiers  Izabella Clark and Janie Massey for making it to the final round and representing Conway on the State stage.
+
+But more than the scores or results, we’re proud of the character, grit, and determination this group showed throughout the season. They battled through challenges, supported one another, and continued to show up and compete. That’s what makes them true Wampus Cats! 💙🐾
+
+Thank you to all of our players, parents, supporters, and everyone who helped make this season special.
+
+Proud of this group. Proud to call them Wampus Cats.
+
+### 2026-10-02 · Conway Junior High (id 13353654)
+
+🎉 CJHS Spirit Week is coming up! 🎉
+
+Get ready to show your Wampus Cat spirit October 5–9 with a fun lineup of themed dress-up days! 💙🤍
+
+📅 Monday: Rhyme Without Reason
+🎬 Tuesday: Adam Sandler Day
+⭐ Wednesday: Character Day
+🐾 Thursday: School Spirit Day
+👯 Friday: Duo/Group Day
+
+Grab your friends, get creative, and let's make it a great Spirit Week! Dress code still applies.
+
+💙🤍 Go Wampus Cats!
+
+### 2026-10-02 · Marquis Rogers (id 13354162)
+
+CJHS Family,
+
+Thank you all for wearing your Pink Out Conway shirts today! 💗
+
+I'd love to get a quick staff picture. Please meet under the skywalk at 3:40 p.m. 
+
+These shirts were created as a special show of support for Marilyn as she begins her treatment, while also giving us an opportunity to stand with all members of our CJHS family who are currently battling or have been impacted by cancer.     
+ 
+Thank you for continuing to show what it means to support one another! 💗
+
+### 2026-10-02 · Conway Junior High (id 13353807)
+
+💃 Learning, moving, and having fun in Ms. Landry’s class! Students learned how to do the Merengue, a lively dance that originated in the Dominican Republic. What a fun way to learn about culture through dance! 🎶
+
+### 2026-10-02 · Conway Junior High (id 13356694)
+
+🎀 Wampus Cats wear PINK! 🎀
+
+Today we proudly wore pink in support of Mrs. Chapman and in honor of all those in our CJHS family who have fought, survived, or are currently facing breast cancer. We’re stronger together. 💕🐾
+
+### 2026-10-04 · Marquis Rogers (id 13362038)
+
+Lunch is served!
+
+### 2026-10-05 · Conway Junior High (id 13165659)
+
+Dear Parents and Students,
+We hope you have a great week! Here are the important updates and announcements for the upcoming week.
+
+Link to Announcements: 
+
+https://docs.google.com/document/d/1Od7p7r2ZqXVPTas6D62umJI99XyOCKWtUDlOlNcyL1Q/edit?usp=sharing
+
+### 2026-10-05 · Conway Junior High (id 13332699)
+
+📅 WEEK AT A GLANCE | October 5–9
+
+It’s another busy week at CJHS! Here’s what’s happening around campus:
+
+🏐 Volleyball @ Lake Hamilton
+🏃 Cross Country @ Bryant
+📚 ATLAS Testing
+🏐 Volleyball @ Cabot
+🏈 Football vs. Lake Hamilton
+📣 Homecoming Pep Rally
+⭐ ATLAS Incentive
+
+Have a great week, Wampus Cats! 💙
+
+### 2026-10-05 · Conway Junior High (id 13367973)
+
+📢 ATLAS Interim Testing is Coming Up!
+
+Conway Junior High will be conducting ATLAS Interim Testing tomorrow, Tuesday, October 6, and Wednesday, October 7.
+
+All students will need to report to Conway Junior High for 1st period and will remain at the Junior High until dismissal on both testing days.
+
+Please make sure students arrive on time, well-rested, and ready to do their best! We appreciate everyone's cooperation as we work through testing.
+
+### 2026-10-05 · Marquis Rogers (id 13369947)
+
+Reminder: Lunch is served in room 118.
+
+### 2026-10-05 · Marquis Rogers (id 13374611)
+
+Wampus Cat Families,
+
+Tomorrow and Wednesday are important days at Conway Junior High as our students participate in ATLAS Interim Testing. These assessments give us valuable information about where our students are academically, the progress they are making, and the areas where we need to provide additional instruction and support.
+
+The most important thing we need from our families is to make sure students are at school and on time both days. Being present for testing matters, and arriving late can cause students to miss instructions, delay their testing, or require them to complete make-up testing at another time. 
+
+Please help your student prepare by getting a good night's rest, eating breakfast, and arriving at school ready to work. Students should also bring their Chromebook fully charged - or at least 80% charged.     
+
+Additionally, all students need to report to Conway Junior High Tuesday and Wednesday morning. This includes students who normally have a first-period class at Conway High School. Those students should not report to CHS; they need to come directly to CJHS.     
+
+Students, we aren't asking you to be perfect - we are asking you to give us your best effort. Take your time, stay focused, read each question carefully, and show us what you know. The information we receive from these assessments is most useful when every student takes the test seriously and gives their best effort.
+
+Parents, we appreciate your help in making these two days successful. Please make attendance and arriving on time a priority tomorrow and Wednesday.
+
+Be here. Be on time. Be ready. Do your best.
+
+Thank you for your continued support of our students and CJHS!
+
+Mr. Rogers
+Principal
+Conway Junior High School
+
+### 2026-10-05 · Conway Junior High (id 13375101)
+
+Hey everyone!Just a quick reminder to keep working on your "Move More" Bingo cards! 😊 Completed cards are due in Coach McGee’s mailbox by the end of the day Friday, October 7th. If you need another bingo card, there are extras in the North Building workroom!If we have the most completed bingo cards, CJHS gets to bring home the Wellness Challenge Trophy! 🏆Let’s get moving and see if we can win it! Thanks for participating! 💪
+
+### 2026-10-05 · Conway Junior High (id 13221726)
+
+💗 REMINDER: Pajama Day is October 16th! 💗
+
+Don’t forget to grab your $1 wristband during lunch October 12–15 so you can wear your favorite school-appropriate pajama pants on Friday, October 16th!
+
+All proceeds will support our upcoming Pink Night. 🎀
+
+### 2026-10-05 · Conway Junior High (id 13368517)
+
+🥞 Join Us for Conway Junior High's Annual Pancake Breakfast! 🥞
+
+We're excited to partner with Stoby's Restaurant for our Annual Pancake Breakfast on Saturday, October 25, from 8:00 a.m. to 1:00 p.m.
+
+For just $8, enjoy all-you-can-eat pancakes, available for dine-in or drive-thru!
+
+🎟️ Tickets can be purchased in advance at Conway Junior High. Parents can send money with their child, and students can stop by Ms. Taylor's office to purchase their ticket. Exact change is very much appreciated!
+
+Best of all, all proceeds benefit the students and staff at Conway Junior High School! We'd love to see our Wampus Cat families and community come out to enjoy some pancakes and support our school! 💙
+
+Go Wampus Cats!
+
+### 2026-10-06 · Conway Public Schools (id 13287214)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Marquis Rogers (id 13381842)
+
+Just a reminder: We are giving the writing test this morning and math this afternoon.
+
+### 2026-10-06 · Jennifer Dozler (id 13385044)
+
+Please make sure you are taking attendance in RTI before students are sent to lunch. Thank you so much for a successful morning of testing.
+
+### 2026-10-06 · Jennifer Dozler (id 13385567)
+
+If you have an 8th grade students still testing.... pause their test and send them to the library with a hall monitor and their testing ticket. 
+
+If the session is paused, you will then stop your session. Please make sure it's closed so they can test in the library. 
+
+We will still be releasing 8th grade students at 10:45 for lunch. 
+
+Thanks.
+
+### 2026-10-06 · Marcus Kordsmeier (id 13385696)
+
+BOYS CONFERENCE TOURNAMENT
+
+And they’re off! Our Wampus Cat Boys are competing in the Conference Tournament today at Jonesboro county club.
+
+Play well, gentlemen! Trust your game, stay composed, and represent Conway Golf with pride.
+
+Go Wampus Cats!
+
+### 2026-10-06 · Jennifer Dozler (id 13386728)
+
+When 8th grade students return to class, please do NOT start testing these students until Mr Rogers makes an all call to start the math test. This will be after 9th grade is done with lunch. 
+Please wait for Mr Rogers announcement.
+
+### 2026-10-06 · Conway Public Schools (id 13285816)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Jennifer Dozler (id 13391494)
+
+Teachers. At 3:25 please pause any students that are not finished. Stop your session and gather materials. Please bring materials to the library after students are dismissed. Thank you so much.
+
+### 2026-10-06 · Marcus Kordsmeier (id 13393518)
+
+CONFERENCE TOURNAMENT RESULTS
+
+The Wampus Cats finished 3rd today in the 6A Central Conference Tournament and qualified as a team for the 6A State Tournament!
+
+Also congratulations to Laken Silkwood for All-Conference honors today with +2(73)
+
+It was a very difficult course, but our guys showed tremendous grit, composure, and determination throughout the day. They battled for every shot and never gave up.
+
+Proud of the way this team competed and represented Conway High School today. Now it’s time to get ready for another round for the State Tournament tomorrow at Jonesboro Country Club!
+
+Let’s go Wampus Cats!!
+
+### 2026-10-07 · Conway Public Schools (id 13376866)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Jennifer Dozler (id 13396575)
+
+Good Morning,
+We are aware that there is a wreck backing up traffic this morning. We will delay our testing start time until an announcement is made. We want everyone to be setup for success today. Thank you so much.
+
+### 2026-10-07 · Marquis Rogers (id 13397460)
+
+Thank you for your patience.  You may begin the reading test.
+
+### 2026-10-07 · Jennifer Dozler (id 13400340)
+
+8th grade will go to lunch as scheduled at 10:45. 
+9th grade will also go as scheduled for 12. 
+Thank you
+
+### 2026-10-07 · Jennifer Dozler (id 13404881)
+
+Good Afternoon Everyone!!!Here are our food trucks for Friday and their Menus.  Attached is the bell schedule we will be following for that day as well.
+
+### 2026-10-07 · Conway Junior High (id 13401485)
+
+Capture all the moments and memories from this school year in the Conway Junior High School Yearbook! 📖🧡
+
+Scan the QR code on the flyer or visit the link to order yours today! 🕷️
+
+Don’t wait—these memories won’t last forever!
+
+### 2026-10-08 · Jennifer Dozler (id 13413829)
+
+Everyone is going to their 1st period and staying in 1st period until the next transition bell for 4th pd. 
+
+Students that are at the high school first period will got to study hall in the cafe. 
+
+Thank you for a smooth and successful pep rally!!
+

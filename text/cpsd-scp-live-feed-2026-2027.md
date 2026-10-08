@@ -326,3 +326,60 @@ Movement with a Purpose! 🫘⭕️
 
 Movement is an important part of our program and provides children with meaningful opportunities to learn through active play. In this beanbag hula hoop activity, children are developing more than physical skills—they are practicing executive function, self-regulation, problem-solving, flexibility, turn-taking, and social skills.
 
+### 2026-10-02 · Sallie Cone Preschool (id 13349344)
+
+🧠💛 Brain Smart Start is an important part of our day at Sallie Cone Preschool! Through Conscious Discipline, we begin by building connection, belonging, and a sense of safety. Our Wish Well Board, Job Board, and daily Commitments give children opportunities to connect with one another, take ownership, and prepare their brains for learning. These simple routines help create a positive classroom community where every child feels seen, valued, and ready to learn!
+
+### 2026-10-05 · Sallie Cone Preschool (id 13359456)
+
+Learning and growth happen through meaningful, hands-on experiences in our Right Brain Room. 🧠✨
+
+Children practice letter recognition and name-building as they work with their own names. 🔤✏️
+
+Through building and construction, children develop problem-solving skills, spatial awareness, creativity, and fine motor skills. 🧱🔨
+
+Cooperative building experiences encourage communication, teamwork, and flexible thinking. 🤝💡
+
+Each activity provides opportunities for children to explore, create, collaborate, and build confidence in their growing abilities. 🌱✨
+
+### 2026-10-06 · Conway Public Schools (id 13287199)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Sallie Cone Preschool (id 13359470)
+
+🧠 Left Brain Learning! 🍎
+
+Our children are strengthening their thinking and problem-solving skills as they sort items by size, 
+organize their work mats, and practice balancing apples in the tree. 
+
+These hands-on activities encourage focus, organization, early math skills, and flexible thinking while making learning engaging and purposeful! 🌱✨
+
+### 2026-10-06 · Conway Public Schools (id 13285802)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Sallie Cone Preschool (id 13392319)
+
+🍂📸 Fall Pictures Are Coming! 📸🍂
+
+We’re excited to capture some sweet fall memories of our little learners! 🍁🧡 Be on the lookout for more information about our upcoming Fall Picture Day!
+
+We can’t wait to see all those smiles and capture a little piece of this beautiful season! 🍂😊
+
+### 2026-10-07 · Conway Public Schools (id 13376852)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-08 · Sallie Cone Preschool (id 13409534)
+
+Let's welcome Ms. Jennifer Chtwood to Sallie Cone Preschool. WE are all looking forward to the support that she will offer the Teachers and Paras! Welcome!
+
+### 2026-10-08 · Sallie Cone Preschool (id 13409698)
+
+🐾💙 Meet Mrs. Jennifer McMillion! 💙🐾 A new Paraprofessional here at Sallie Cone Preschool!
+

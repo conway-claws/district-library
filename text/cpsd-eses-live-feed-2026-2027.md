@@ -414,3 +414,60 @@ Sign ups for K-2 running club will end at the end of the day today. If you haven
 
 Tomorrow our school store will open at 7:30. Students needing breakfast must report to the cafeteria before going to the store.
 
+### 2026-10-04 · Matthew Coatney (id 13361747)
+
+Some of our Ellen Smith staff spent part of their weekend hiking Pinnacle Mountain! 🥾⛰️
+
+Love seeing our ESE family spending time together outside of school! ❤️
+
+### 2026-10-04 · Ellen Smith Elementary (id 13326159)
+
+Our third and fourth grade ATLAS testing will resume tomorrow.  Student begin testing promptly lat 8:15.  Students that arrive late, will be held out of class. Make sure your students gets a good night's rest, and has a good breakfast.
+
+### 2026-10-05 · Matthew Coatney (id 13368396)
+
+Dear Ellen Smith Families,If you received a paper copy of our school calendar at Open House in August, I wanted to clarify a typo that was printed on the calendar.The calendar stated that school would be closed on October 12th. This was a typo. School is open and will be in session on Monday, October 12th.We apologize for any confusion this may have caused and appreciate your understanding!Thank you,Matt CoatneyPrincipalEllen Smith Elementary
+
+### 2026-10-05 · Ellen Smith Elementary (id 13372764)
+
+Join us this evening at 6pm in the cafeteria for the next Ellen Smith PTO meeting!
+
+### 2026-10-06 · Conway Public Schools (id 13287206)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Ellen Smith Elementary (id 13384397)
+
+We love seeing our kids reading! 📚☕💚
+
+Due to a little calculation error on our original due date, we realized we accidentally cut this month’s reading challenge a few days short. We want to make sure our students get the full amount of time to reach their reading goals, so we’ve EXTENDED the Starbooks card deadline to Monday, Oct. 12 at 8:30 a.m.!
+
+We can’t wait to celebrate all of our readers at the Starbooks Café on Tuesday, Oct. 13! ⭐️
+
+A huge thank you to Paladino Construction for sponsoring this month’s Starbooks Café and helping us celebrate our readers!
+
+### 2026-10-06 · Ellen Smith Elementary (id 13387203)
+
+ESE Families,We are almost at $4,000 raised toward our $20,000 fundraiser goal! Thank you so much to everyone who has donated and supported our students so far!Funds raised will help support our Sneaker Ball, Spring Carnival, Field Day, and student incentives throughout the year.Every little bit helps! If you would like to help your student raise money, please sign them up through the fundraiser link https://megadoughshop.com/adventure-run-1829.html You may also send cash or a check to school if you don't want to do it through the portal. Thank you for helping us reach our goal and make these special experiences possible for our students! Parent Teacher Conferences are just around the corner.  If you have not yet signed up for a time to meet with your child's teacher(s), please utilize the link here.  We look forward to seeing you on October 21st.https://docs.google.com/document/d/155kX7jTbABfuVQgKVT3_N_lzba4absfa4CfxncSe_q0/edit?usp=sharingFinally, our annual Grand Event has been scheduled for November 6.  Be on the lookout for more information from Mrs. Henderson. This is a great kick-off to our fall book fair!
+
+### 2026-10-06 · Conway Public Schools (id 13285809)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Conway Public Schools (id 13376859)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-08 · Conway Public Schools (id 13413333)
+
+Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
+Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
+
+### 2026-10-08 · Ellen Smith Elementary (id 13415347)
+
+We want to remind our families that our doors do not open until 7:30 am.  There is no adult supervision until that time.  Please monitor your students on the front porch until a staff member arrives at 7:30.
+

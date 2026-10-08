@@ -874,3 +874,114 @@ If you'd like to donate, simply drop off a bag (or two!) of assorted candy at th
 
 Thank you for helping our PTO make Fall Festival a fun and memorable night for our Cats! 🐾💙
 
+### 2026-10-01 · Carl Stuart Middle School (id 13321889)
+
+REMINDER: Students can wear pajamas on Friday, October 2. Students must pay $1 to participate.
+
+### 2026-10-02 · Carl Stuart Middle School (id 13306737)
+
+💙 Happy Custodian Appreciation Day! 💙
+
+Today, October 2, we are celebrating the amazing people who work behind the scenes to keep Carl Stuart Middle School clean, safe, welcoming, and running smoothly every single day!
+
+Thank you, Jon, Mirna, Monquita, Kenneth, Libbie, Jerry, and Aaron, for ALL that you do for our students and staff. You do so much more than keep our school clean. You help create a place where our students can learn, grow, and feel at home. We appreciate your hard work, dedication, and the care you put into our school every day!
+
+We are so thankful for each of you! 🐾💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-02 · Carl Stuart Middle School (id 13343347)
+
+🍂🎃 FALL FESTIVAL IS COMING! 🎃🍂
+
+Join us Thursday, October 15, from 5:30–7:00 PM for the Carl Stuart Fall Festival! 🧡
+
+Come hang out with our school community and enjoy:
+🎶 Music
+🌭 Food trucks
+🎯 Games
+🎉 Lots of fun!
+
+🎟️ Entry is FREE, and popcorn is FREE!
+
+Bring the family, bring your friends, and come enjoy a fun night at Carl Stuart! We can’t wait to see our Cats there! 🐾
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-04 · Carl Stuart Middle School (id 13360455)
+
+REMINDER: We will continue ATLAS Interim Testing this week! Please make sure students arrive at school on time and bring fully charged Chromebooks each day. Thank you for helping our students be prepared for testing! 
+
+Monday, October 5: Reading Test
+Tuesday, October 6: Science Test
+Wednesday, October 7: Math Test
+
+### 2026-10-05 · Carl Stuart Middle School (id 13332284)
+
+So proud of these girls for leaving our school a little better than they found it. 💕
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-05 · Carl Stuart Middle School (id 13343518)
+
+📚✨ Our Fall Book Fair is coming October 12-21! ✨📚
+
+Students will have an opportunity to preview the Book Fair with their ELA/Reading class on October 12 and October 13.  Students can begin purchasing on Wednesday, October 14.  Families are invited to stop by on October 15 during our Fall Festival (5:30pm-7:00pm), and on October 21 during our Parent Teacher Conferences. 
+
+🔗 Visit our Book Fair Homepage for all the details! 👉 https://bookfairs.scholastic.com/bf/carlstuartmiddleschool
+
+On our website, you can:
+
+📖 Preview the Books – See what titles will be available at the fair!
+
+💳 Set Up an E-Wallet – Add money online for your student so they don’t have to bring cash to school.
+
+❤️ Share the Fair – Contribute to our school’s donation fund to help ensure every student has the opportunity to purchase a book.
+
+We can’t wait to celebrate reading with our students and families! 📚💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-06 · Conway Public Schools (id 13287213)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Carl Stuart Middle School (id 13332305)
+
+We loved spending time at Vann Elementary! 💕 Carl Stuart students visited the Sunshine class for some fun with puffy paint and joined Ms. Givens’ kindergarten class to practice letter recognition and read aloud together. 📚🎨
+
+It was a wonderful day of learning, connection, and serving others. We are so proud of our students and hope we can continue building this special partnership with Vann Elementary! 🐾💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-06 · Conway Public Schools (id 13285815)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Conway Public Schools (id 13376865)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-08 · Carl Stuart Middle School (id 13409245)
+
+🎃🍂 ONE WEEK UNTIL THE FALL FESTIVAL! 🍂🎃
+
+We’re officially ONE WEEK away from the Carl Stuart Fall Festival! 🐾
+
+Join us next Thursday, October 15, from 5:30–7:00 PM for a fun night with our school community!
+
+🎶 Live music
+🌭 Food trucks: Wade's BBQ, The Grind Coffee Bistro, and Kona Ice
+🎯 Games
+🍿 FREE popcorn
+🎟️ FREE entry
+🎉 And so much more!
+
+Bring the whole family and come hang out with us! We can’t wait to see our Cats there! 💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+

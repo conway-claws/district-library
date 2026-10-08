@@ -644,3 +644,70 @@ Note: Please remember to add your student’s name when you select their teacher
 
 Kona Ice donates a portion of all sales from this event to your student’s school.
 
+### 2026-10-01 · Ida Burns Elementary (id 13289441)
+
+🎬✨ **Lights, Camera, ACTION!** ✨🎬 Mark your calendars! Our talented **Ida Burns 3rd and 4th graders** are taking the stage to celebrate the history of music from the movies! 🎶🍿 From *The Wizard of Oz* to *The Little Mermaid* to *Coco*, this show is sure to have your hands clappin’ and toes tappin’! 👏🎵 📅 **October 15, 2026** 📍 **James H. Clark Auditorium** 🚪 Doors open at **6:00 PM** | 🎭 Show begins at **6:30 PM** We can’t wait to see our Little Cats shine on stage! 💙🐾🌟 **Save the date and come enjoy the show!**
+
+### 2026-10-01 · Ida Burns Elementary (id 13336894)
+
+📢 4th Grade Families — Important Update!The 4th grade field trip scheduled for tomorrow, October 2, has been CANCELED. Please make plans for your child to attend a regular school day tomorrow.🍧 Kona Ice is still happening! Students may still sign up, but the deadline is 9:00 PM TONIGHT! Be sure to get your order in before the deadline if your child would like to participate.Thank you for your understanding and flexibility! 💙🐾
+
+### 2026-10-04 · Ida Burns Elementary (id 13360643)
+
+Here is our parent newsletter for the week of October 5.
+
+https://app.smore.com/n/ew3nqz
+
+### 2026-10-04 · Caroline Baker (id 13362686)
+
+Trunk or Treat is coming up! We would love you see you there!!
+
+### 2026-10-06 · Conway Public Schools (id 13287200)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Conway Public Schools (id 13285803)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Caroline Baker (id 13394948)
+
+💙🐾 Shoutout to Our Amazing Instructional Coach, Nicole! 🐾💙
+
+Behind every great school is someone who works tirelessly behind the scenes to make things happen, and at Ida Burns, that person is Nicole! 💙
+
+From supporting teachers and leading PLCs to coordinating testing, analyzing data, solving problems, and juggling a million other responsibilities, Nicole does it ALL!
+
+She is always willing to lend a helping hand, offer encouragement, and go above and beyond to make sure our teachers and students have what they need to succeed.
+
+Nicole, your hard work, dedication, and heart for our school do not go unnoticed. You make Ida Burns a better place simply by being YOU!
+
+We are so thankful to have you on our team! 💙🐾
+
+### 2026-10-06 · Caroline Baker (id 13395237)
+
+💙🤍 We couldn’t do it without Coach Huett! 🤍💙
+
+Coach Huett is truly one of a kind! From planning fun and engaging lessons for our Little Cats to stepping in and filling the gaps wherever she is needed, she does it ALL—and always with a smile!
+
+Her upbeat attitude, positive energy, and ability to make everyone around her smile and laugh make Ida Burns a better place every single day. No matter the task or challenge, Coach Huett is always willing to jump in and lend a helping hand.
+
+She is the very definition of “WHATEVER IT TAKES!” 💪💙
+
+We are incredibly thankful for her servant heart, dedication, and the countless things she does behind the scenes to keep Ida Burns running smoothly.
+
+Coach Huett, you are appreciated more than you know! We are so lucky to have you on our team! 🐾💙
+
+### 2026-10-07 · Conway Public Schools (id 13376853)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-08 · Conway Public Schools (id 13413327)
+
+Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
+Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
+

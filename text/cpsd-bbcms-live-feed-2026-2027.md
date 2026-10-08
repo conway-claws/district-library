@@ -496,3 +496,36 @@ https://v2.myproimages.com/strain-photography-schools/60929/search?code=BCMS26
 
 #WeAreCourtway #TeamConway #WeAreWampusCats
 
+### 2026-10-01 · Courtway Middle School (id 13336699)
+
+Picture Day is TOMORROW, October 2 - you can still order online through midnight tonight.
+
+### 2026-10-02 · Courtway Middle School (id 13353085)
+
+Happy Custodian Appreciation Day to some of the most loved people at Courtway! 💙 We are so thankful for our custodians and all the ways they take care of our school and the people in it. Their hard work, kindness, and willingness to help never go unnoticed. Courtway just wouldn’t be Courtway without them! 💙
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-05 · Courtway Middle School (id 13376747)
+
+Over the weekend, our 7th grade choir students auditioned to be a part of the All Region Choir. These students worked tirelessly to learn the music and bravely stepped in front of a panel of judges to be rated on their performance.
+
+Hundreds of students in grades 7–9 showed up to audition, and we’re excited to announce the Courtway students who were selected to perform in this elite ensemble! Congratulations! 💙
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-06 · Conway Public Schools (id 13287210)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Conway Public Schools (id 13285812)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Conway Public Schools (id 13376862)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

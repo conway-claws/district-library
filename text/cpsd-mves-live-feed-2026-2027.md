@@ -1237,3 +1237,188 @@ We love seeing students work together, build connections, and support one anothe
 
 #WeAreMVE
 
+### 2026-10-02 · Audrey Cooper (id 13353545)
+
+🌟 Creativity + Collaboration + Problem Solving! 🌟
+
+This week in Enrichment, students practiced collaboration and creativity while strengthening their problem-solving skills through a variety of stations. We love watching our Little Cats work together, think outside the box, and bring their creative ideas to life! 🐾💡
+
+#WeAreMVE#LevelUp
+
+### 2026-10-02 · Audrey Cooper (id 13356338)
+
+October is National Principals Month!💙
+
+We are so thankful for Mrs. Jana Irvin and the incredible leadership she provides at Marguerite V
+
+### 2026-10-02 · Audrey Cooper (id 13356407)
+
+💙Happy National Custodian Day!💙
+
+Today, we celebrate and thank our amazing custodians at Marguerite Vann Elementary! 🐾
+
+Our custodians work tirelessly behind the scenes to keep our school clean, safe, and welcoming for our students and staff each day. From early mornings to busy school days, they are always willing to lend a helping hand and take pride in caring for our campus.
+
+We appreciate all that you do to make MVE a wonderful place to learn, work, and grow! Please help us show our custodians some extra love and appreciation today! 💙
+
+Thank you for taking such great care of our Little Cats and our school! 🐾
+
+#WeAreMVE
+
+### 2026-10-04 · Audrey Cooper (id 13359882)
+
+Kindergarten Pumpkin Patch Field Trip permission slip and money are due Tuesday, October 6th. The field trip is scheduled for Friday, October 9th. If your child will not be attending, please let your child's teacher know by messaging them through the CPSD app and then clicking on Rooms.  Thank you.
+
+### 2026-10-05 · Audrey Cooper (id 13365884)
+
+🚶‍♀️🐾 Walk to School Day is Wednesday, October 7! 🐾🚶‍♂️
+
+Lace up those walking shoes and join us for  Walk to School Day! 💙
+
+📅 Wednesday, October 7
+📍 Meet at Tucker Creek Trail
+⏰ 7:35 AM
+
+If you live too far away to walk from home, meet us at Tucker Creek Trail and walk with us to school! It’s a great way to start the day with some fresh air, movement, and Little Cat spirit! 🐾💙
+
+We can’t wait to see our students and families walking together!
+
+#WeAreMVE
+
+### 2026-10-05 · Audrey Cooper (id 13367125)
+
+❄️📚 Learning is in full swing in 2nd grade!
+
+Our 2nd grade students are working hard using text evidence to compare and contrast snowflakes. They are digging into the text, identifying important details, and supporting their thinking with evidence. 🔍❄️
+
+We love seeing our Little Cats grow as thoughtful readers and writers! 💙🐾
+
+#WeAreMVE#LevelUp
+
+### 2026-10-05 · Audrey Cooper (id 13376525)
+
+Running Club begins today. Pick up time is 3:45. Please check your CPSD app, in rooms, for pick up instructions.
+
+### 2026-10-06 · Conway Public Schools (id 13287208)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Audrey Cooper (id 13381725)
+
+🩷 Pink Night Change Run! 🩷
+
+This Friday, October 9, some special student-athletes will be joining us in the morning car line at Marguerite Vann to collect change for their annual Pink Night fundraiser! 🎀
+
+Each year, the team raises money to support a local community member who is fighting cancer. We are excited to help them make a difference!
+
+💰 Bring your spare change during morning drop-off and help us support this wonderful cause. Every penny, nickel, dime, and quarter adds up! 🩷
+
+Thank you, MVE families, for always showing up and supporting our community!
+
+#WeAreMVE
+
+### 2026-10-06 · Audrey Cooper (id 13382896)
+
+🎉 Happy National Coaches Day!🎉
+
+Today, we are celebrating two amazing coaches who make a difference every day at Marguerite Vann Elementary! 💙
+
+📚 Mrs. Cooper, Instructional Coach — Thank you for supporting, encouraging, and growing alongside our teachers as we work to provide the very best for our students!
+
+🏃‍♀️ Coach Hedgecock, Athletic Coach— Thank you for encouraging our Little Cats to stay active, work hard, build confidence, and always give their best!
+
+We appreciate the leadership, dedication, and heart you both bring to MVE. Happy National Coaches Day! 🐾💙
+
+#WeAreMVE#LevelUp
+
+### 2026-10-06 · Conway Public Schools (id 13285811)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Audrey Cooper (id 13388875)
+
+Parent Teacher Conferences are Wednesday, October 21, from 10:00-7:00. Please visit the CPS app, and click rooms to access the link provided by your child's teacher. You will need to sign up for a conference in order to attend.
+
+### 2026-10-07 · Audrey Cooper (id 13395605)
+
+📚✨ Kindergarten is wrapping up Module 1 of Arts & Letters!
+
+Our kindergarten students are beginning their final book of the module, Fry Bread: A Native American Family Story. As they explore the story, students are carefully studying the illustrations, identifying important details, and adding what they notice to their Notice Charts. 🔍✏️
+
+We love seeing our Little Cats build strong observation and comprehension skills while learning through literature! 💙🐾
+
+#WeAreMVE
+
+### 2026-10-07 · Audrey Cooper (id 13395635)
+
+❄️📚 Learning About Snow! 📚❄️
+
+2nd grade has been reading The Story of Snow, and this week they've  been busy exploring how snow crystals form and what they look like! Students used key details and text features to find evidence about snow crystal formation and discussed how winter changes the world around us. 🌨️
+
+They  also compared the similarities between icicles and snow crystals and used evidence from the text to support our thinking. 🔍❄️
+
+After reading the text, students used their imaginations to plan a story of a snow crystal falling from the clouds, giving their snow crystal a name, setting, problem, and solution.
+
+To celebrate all of their learning, students enjoyed some flavored snow crystals… aka SNOW CONES! 🍧💙
+
+What a sweet way to wrap up a week of learning! ☃️✨
+
+### 2026-10-07 · Conway Public Schools (id 13376861)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Audrey Cooper (id 13403501)
+
+🤠🎶 YEE-HAW! Get ready for a rollicking Western adventure!🎶🤠
+
+Our Marguerite Vann 3rd and 4th graders  are ready to take the stage for their musical performance! 🌟🐾
+
+📅 October 8th
+⏰ 6:30 PM
+📍 James H. Clark Auditorium
+
+Please have students at the auditorium at 6:10 p.m. Come out and support our talented Little Cats as they sing, perform, and bring a little Wild West fun to the stage! 🎵🐴⭐
+
+We can’t wait to see you there!
+
+#WeAreMVE
+
+### 2026-10-07 · Audrey Cooper (id 13403689)
+
+The 3rd and 4th grade musical is tomorrow night. We will have musical practice tomorrow during the day. We will leave at 9:15 and return to campus at 2:00.  Students will need to bring a sack lunch. 
+
+Please have students arrive at the auditorium at 6:10 p.m. tomorrow night. We hope to see you there!
+
+### 2026-10-07 · Audrey Cooper (id 13407095)
+
+📚💙 We are so thankful for our amazing volunteers from Carl Stuart Middle School!
+
+These students generously give their time to help our kindergarteners learn how to use the library checkout stations, find books, and become more confident and independent library users. 📖✨
+
+Their patience, kindness, and leadership make such a positive difference for our youngest Little Cats. We love seeing older students serve as role models and help foster a love of reading! 🐾
+
+Thank you, Carl Stuart Middle School students, for investing in our Little Cats! 💙🤍
+
+#CarlStuartMiddleSchool #WeAreMVE
+
+### 2026-10-07 · Audrey Cooper (id 13407205)
+
+🎨✨ Vann Maker Club at the Conway Art Walk!✨🎨
+
+Our Vann Maker Club had an amazing time participating in our first Conway Art Walk! Our young makers were involved every step of the way—from setting up the booth and showcasing their work to selling their 3D-printed creations and packing everything up at the end of the night. 🐾
+
+What a great opportunity for our students to put their learning into action while building teamwork, communication, creativity, and real-world entrepreneurship skills! 💡🤝
+
+We are so proud of our young makers and thankful to everyone who stopped by to encourage and support them. It was a fun and successful evening, and we can’t wait to do it again!💙🤍
+
+#ConwayArtWalk#LevelUp#WeAreMVE
+
+### 2026-10-08 · Conway Public Schools (id 13413335)
+
+Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
+Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
+

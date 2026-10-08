@@ -446,3 +446,132 @@ TJE Paw Print Newsletter- https://conwaypublicschools.edurooms.com/newsletters/t
 
 Let’s do this! 💙
 
+### 2026-10-01 · Theodore Jones Elementary (id 13337069)
+
+We are so very sorry to share that the 8th Annual Get Moving Arkansas, scheduled for Friday, October 2, has been canceled for our 4th graders due to the potential for heavy rainfall and lightning.
+We know our students were looking forward to this event.
+We appreciate your understanding.
+
+### 2026-10-01 · Theodore Jones Elementary (id 13261086)
+
+Dear Parents,
+
+Kona Ice is coming tomorrow, Friday, Oct 2nd. The ordering deadline is tonight by 9 pm - This is a cashless event.
+
+
+Use  the link below to order.
+
+https://customer.kona-ice.com/#/K308X6042722
+
+Please send your students cup in their backpacks the day of the event to avoid dropping them off in the office. 
+
+
+Note: Please remember to add your student's name when you select their teacher from the drop down list, otherwise it will be blank!
+
+
+
+Kona Ice donates a portion of all sales from this event to your student's school
+
+### 2026-10-01 · Theodore Jones Elementary (id 13338633)
+
+Due to the amount of rain expected tomorrow, Kona Ice has been rescheduled for Friday, October 9th. The ordering link will remain open until Wednesday, October 7th for anyone who would still like to place an order.
+
+Thank you for your understanding! 💙
+
+### 2026-10-02 · Theodore Jones Elementary (id 13329598)
+
+Happy Custodian Appreciation Day to our amazing TJE custodians! 💙🤍
+
+We are so thankful for the care, hard work, and dedication you pour into our school each and every day. You do so much more than keep our building clean—you help create a safe, welcoming, and comfortable place for our students and staff to learn and grow.
+
+So much of what you do happens behind the scenes, but please know that it never goes unnoticed. Our TJE family is truly grateful for each of you and everything you do for our Little Cats! We are so lucky to have you! 🐾💙
+
+Thank you for taking such great care of our school and our TJE family!
+
+### 2026-10-02 · Theodore Jones Elementary (id 13299799)
+
+🐾 Paws-itive Family Connection: Responsibility!🐾
+
+This week, we’re practicing responsibility as a family! Responsibility means taking action and understanding how our choices and actions can affect the people around us. 💙
+
+🐾 Challenge #2: Choose a household chore that takes multiple steps, and have each family member pick one step to complete. Work together, help one another, and see how much you can accomplish as a team!
+
+Whether you’re unloading the dishwasher, tidying the living room, tackling the laundry, or taking on another household job, every helping hand makes a difference! 🏠✨
+
+📸 Don’t forget to share a picture of your family being responsible together!
+
+Let’s show our Little Cat families how teamwork and responsibility can make a big difference! 💙🐾
+
+### 2026-10-04 · Theodore Jones Elementary (id 13362795)
+
+📣 PTO Meeting Update! 
+
+Just a quick update for tomorrow, Monday, 10/5! Our PTO meeting will now be held in person at 6:00 PM in the TJE Cafeteria. 
+
+For those who aren’t able to attend in person, Zoom will still be available!
+
+We hope to see you there! 💙🐾
+
+### 2026-10-06 · Conway Public Schools (id 13287202)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Theodore Jones Elementary (id 13348166)
+
+Happy National Coaches Day! 💙
+
+Today we’re celebrating two incredible coaches who make such a positive impact on our TJE family — Coach Crenshaw, our PE Coach, and Mrs. Dye, our Instructional Coach!
+
+Thank you both for your dedication, encouragement, and the positive impact you make in our students' lives. Your leadership goes far beyond the field and the classroom!
+
+We are so thankful for the time, energy, and dedication you pour into our Little Cats! 🐾💙
+
+Happy National Coaches Day, Coach Crenshaw and Mrs. Dye! We appreciate you more than you know!
+
+### 2026-10-06 · Conway Public Schools (id 13285805)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Theodore Jones Elementary (id 13390484)
+
+We’re so proud of our Little Cats! 🐾📚
+
+Our students put their knowledge to the test this morning at the AGFC (Arkansas Game and Fish Commission) Quiz Bowl—and they did an amazing job! 🎉 They brought home 2nd place!*🥈
+
+Congratulations to our students for representing TJE so well! We are so proud of their hard work, teamwork, and knowledge! 💙🐾
+
+### 2026-10-07 · Conway Public Schools (id 13376855)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Theodore Jones Elementary (id 13405941)
+
+Parent-Teacher Conferences will be held on October 21st, beginning at 10:00 AM. This is a great opportunity to discuss your child's progress and ask any questions you may have.
+
+Please use the link below to sign up for a time slot and stay updated on your child's academic development:
+🔗 Parent-Teacher Conference Sign-Up & Updates- https://docs.google.com/document/d/1ccsEgbtvk-Hw3CUxetWq9DgubdgUOWxeBNmeHjzDcpg/edit?usp=sharing
+
+
+We look forward to connecting with you!
+
+### 2026-10-08 · Conway Public Schools (id 13413329)
+
+Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
+Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
+
+### 2026-10-08 · Theodore Jones Elementary (id 13416373)
+
+💙🤍 Happy National Principal’s Month to our incredible principal, Mrs. Echols! 🤍💙
+
+We are so thankful for the leadership, love, and dedication you bring to Theodore Jones Elementary each and every day. You lead with kindness, encourage our students and staff, and always put the needs of our Little Cats first. Your heart for our school and the people in it does not go unnoticed!
+
+Thank you for the countless ways you support, inspire, and make TJE a special place to learn and grow. We are so grateful to have you leading the way and are blessed to call you our principal!
+
+Help us show Mrs. Echols some love this month and thank her for all she does for our Theodore Jones family! 🐾💙
+
+Happy National Principal’s Month, Mrs. Echols! We appreciate you more than you know!
+

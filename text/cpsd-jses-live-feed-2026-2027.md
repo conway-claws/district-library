@@ -880,3 +880,77 @@ Second graders working with Mrs.Dismuke on their phonics skills so they can lear
 
 #WeAreJSE
 
+### 2026-10-02 · Barbara Clardy (id 13338980)
+
+On the hunt for a great read! 🔍📚 
+
+Our students took part in a library scavenger hunt, practicing how to find books across different genres. Way to explore the shelves, readers! 
+
+#WeAreJSE
+
+### 2026-10-02 · Barbara Clardy (id 13339010)
+
+🧠 Hands-on learning in action! This week in enrichment classes, students rotated through different learning stations designed to challenge their critical thinking and spark their curiosity.
+
+#WeAreJSE
+
+### 2026-10-02 · Barbara Clardy (id 13241609)
+
+Mark your calendars, JSE families! 🎀 The Lady Cats annual Change Drive is coming up on Thursday, October 9 during morning drop-off. Start gathering your spare change now and get ready to make a difference! Every coin counts! 💙💗 #WeAreJSE
+
+### 2026-10-05 · Barbara Clardy (id 13365474)
+
+Cancelled field trip? No problem! 🌧️❌ We didn't let the rainy weather dampen our spirits. A little improvisation turned a cancelled trip into an unforgettable day!
+
+#WeAreJSE
+
+### 2026-10-06 · Conway Public Schools (id 13287207)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Conway Public Schools (id 13285810)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Barbara Clardy (id 13389861)
+
+Families, we’d love to see you at our PTO meeting! Join us Friday, October 9 at 2:00 PM in the PD Lab at Jim Stone Elementary. Your ideas and involvement help make our school community stronger—we hope you can make it!
+
+#WeAreJSE
+
+### 2026-10-06 · Barbara Clardy (id 13252007)
+
+💚 Green with envy over this dynamic duo! 
+
+#TwinningTuesday
+#WeAreJSE
+
+### 2026-10-07 · Conway Public Schools (id 13376860)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-08 · Conway Public Schools (id 13413334)
+
+Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
+Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
+
+### 2026-10-08 · Barbara Clardy (id 13414283)
+
+📚Third graders in Ms Jackson’s class were using evidence from the text to explain how Jacques Cousteau was both an inventor and producer. 🌊🐠
+
+#WeAreJSE
+
+### 2026-10-08 · Barbara Clardy (id 13414614)
+
+THAB Fun! ⚽🏀🎒
+
+These take-home activity bags let our students take athletic equipment home to stay active, build healthy habits, and have fun playing with their families!
+
+✨ A huge thank you to Mrs. Breashears for putting these wonderful activity bags together and keeping our kids moving!
+
+#WeAreJSE
+

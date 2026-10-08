@@ -888,3 +888,157 @@ Parents and guardians: Please help your students remember to charge their Chrome
 
 Ruth Doyle volleyball team loved Pink Night and the fact that they could honor Emmersyn Caldwell, an RDMS Alumni.
 
+### 2026-10-01 · Rachel Fowler (id 13334453)
+
+Dear 5th Grade Students and Families, 
+
+Congratulations to our 5th grade class for demonstrating excellent hallway and classroom behavior last week! As a reward, students have earned Pajama Day this Friday, October 2. 
+
+Please note: Students may wear pajamas to school on Friday. 
+The school dress code still applies — outfits should remain school-appropriate. 
+
+We're proud of the positive choices students made and encourage them to continue displaying respectful behavior throughout the school.
+
+### 2026-10-02 · Erika Easley (id 13347755)
+
+Happy Principals' Month to Mr. Kelly! 
+
+The Man. The Myth. The Legend. 
+
+Thank you for leading RDMS, supporting our staff and students, an
+
+### 2026-10-02 · Rachel Fowler (id 13355964)
+
+🧙‍♀️🧪 WIN Time was full of witchy fun! 🎃
+
+We brewed our very own potion to make homemade punch popsicles! Then, we mixed water, paint, and dishwashing liquid to create bubbly “potions” for our witch’s cauldron potion art! 🫧🖌️
+
+It was even more fun with our Caring Cats helping us along the way! 🐱💜
+
+What a fun day of creativity, science, and a little Halloween magic! ✨🧙‍♀️
+
+### 2026-10-02 · Erika Easley (id 13354535)
+
+HAPPY NATIONAL CUSTODIAN DAY!
+
+Today, we are celebrating some of the hardest-working people in our building: our AMAZING RDMS custodians!
+
+They work behind the scenes every single day to keep our school clean, safe, and ready for all of us. They fix it, clean it, move it, find it, and somehow manage to keep RDMS running!
+
+We truly believe **RDMS has the BEST custodians around. **
+
+Happy National Custodian Day from RDMS!
+
+### 2026-10-02 · Conway Athletics (id 13354586)
+
+Ruth Doyle volleyball team couldn’t have been successful this year without their support.  We are thankful for all of the RDMS volleyball Parents of the Week.  We appreciate all you do.
+
+### 2026-10-03 · Rachel Fowler (id 13358538)
+
+There’s something to celebrate at Ruth Doyle Middle School! 
+
+RDMS has been recognized by the Arkansas Department of Education as an Arkansas Gem School in TWO categories–Achievement of All Students and Achievement by Content Area: English-Language Arts.  The designation of Arkansas Gem School means that Ruth Doyle Middle School students performed at a high level on the most recent ATLAS assessments.
+
+Our school once again achieved a state letter grade of B, but there’s more to the story than just a single letter:
+
+⬆️RDMS ranks in the top 10% statewide within its grade span on overall achievement in ELA, math, and science
+⬆️Total achievement points increased from 168 to 181
+⬆️ELA proficiency increased from 54% to 62%
+⬆️Math and science achievement also increased over the previous year
+⬆️RDMS surpassed the state median in all 3 indicators–achievement, growth of all students, and growth of the lowest 25% of students
+⬆️As a result of their exceptionally high level of performance, RDMS will receive a portion of $7 million the state is awarding schools who are leading the way in student learning outcomes
+
+The Arkansas Gem School recognition that RDMS has earned is a reflection of what happens when students, teachers, families, and our entire school community work together with purpose. We are incredibly proud of the hard work, growth, and perseverance of our students and grateful for the educators who make learning and achievement possible every day. Congratulations, RDMS—this is something worth celebrating!
+
+### 2026-10-04 · Rachel Fowler (id 13362302)
+
+🎉Congratulations RDMS Choir Students that made All Region Choir and to everyone who participated!!
+
+🌟Bella Voce Choir
+Soprano 2
+Sophia J: 27th Chair
+
+Alto 1
+Azalea H: 23rd Chair
+
+Alto 2
+Violet G: 22nd Chair
+
+
+🌟Cantabile Choir
+Soprano 1
+Skylar H: 13th Chair
+Morgan G: 14th Chair
+
+Soprano 2
+Alisa J: 14th Chair
+Ramona B: 32nd Chair (2nd Alternate)
+
+Alto 1
+Jaida F: 23rd Chair
+Cadenze W: 30th Chair
+
+
+🌟Vox Anima Choir
+Tenor 2
+Kylen W: 8th Chair
+Noah W: 18th Chair
+
+### 2026-10-05 · Rachel Fowler (id 13358529)
+
+📸 Smile, RDMS families! Yearbook Picture Day is Friday, October 9.
+
+Every student will have their photo taken for the yearbook — no purchase necessary. If you'd like to buy prints, please send the completed order form with your student on Picture Day.
+
+### 2026-10-06 · Conway Public Schools (id 13287211)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Conway Public Schools (id 13285813)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Rachel Fowler (id 13391651)
+
+🎉RDMS Ambassadors are kicking off Paws for a Cause: Stuff The Trailer!!🐾
+
+📅When: October 12-21
+
+❓What: Food Drive to benefit Soul Food Cafe. Soul Food Cafe has consistently served as a district partner to help Conway Wampus Cats who are in need. Now it is our turn to give back!
+
+🚙How: Drop your donations off in front of RDMS! 📝Label donations with students 3rd period homeroom teachers name! Which 3rd period homeroom can collect the most items?
+
+Items that make good donations are shelf-stable, can be prepared easily, something a kid could make on their own and would actually want to eat. #WeAreRDMS #PawsForACause
+
+### 2026-10-06 · Erika Easley (id 13392583)
+
+Today, our RDMS Ambassadors made their very first paw print on the world by serving at Soul Food Café!
+
+Our Ambassadors worked hard, served others, and showed exactly what it means to lead, serve, and connect.
+
+And this is only the beginning…
+
+They can’t wait to get their paws moving again during our RDMS Food Drive, October 12th–21st! You can help us continue serving our community by donating shelf-stable food items during that time.
+
+LET’S LEAVE PAW PRINTS ALL OVER THIS WORLD!
+
+### 2026-10-07 · Conway Public Schools (id 13376863)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-08 · Rachel Fowler (id 13412900)
+
+Good morning RDMS families!
+
+🎉Students crushed ATLAS testing — time to celebrate! 🎉
+
+To reward students for their hard work, they will receive extra outside activity time. Therefore, we have adjusted the lunch schedule for Thursday 10/8 and Friday 10/9:
+
+• 5th grade: 10:32–10:50
+• 6th grade: 10:50–11:11
+• 7th grade: 11:36–12:05
+

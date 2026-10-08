@@ -2206,3 +2206,381 @@ We’re proud of our students for giving their time and energy to support such a
 
 #WampusCats #CommunityService #BlackStudentUnion
 
+### 2026-10-01 · Conway High School (id 13332213)
+
+CHS Spanish Club: ¡Un comienzo fantástico! 
+
+Our first CHS Spanish Club meeting was a wonderful success! Even though our club is still in the process of becoming officially established, we had an amazing turnout and were excited to see so many students interested in celebrating the Spanish language and Hispanic cultures. 
+
+Students learned about the requirements and benefits of becoming a member of the CHS Spanish Club and enjoyed a fun, hands-on activity making beautiful paper flowers to celebrate Hispanic Heritage Month (September 15–October 15). 🌸🌺
+
+Of course, no celebration would be complete without delicious treats! Students enjoyed tasting traditional Mexican cookies and savoring Colombian coffee. ☕🍪
+
+Thank you to all the students who joined us and helped make our first meeting so special! We look forward to a year filled with cultural celebrations, friendship, service, and opportunities to explore the richness of the Spanish-speaking world.
+
+¡Gracias a todos! ¡Esto es solo el comienzo!
+
+### 2026-10-01 · Conway Athletics (id 13335185)
+
+Conference Tennis will start tomorrow at 8:00 a.m. at Burns Park. A plan is  in place to combat the incoming rain.
+
+### 2026-10-01 · Canaan Groesbeck (id 13335290)
+
+Game day for your Lady Cat Volleyball team! They are heading to North Little Rock for  a conference matchup! Good luck, ladies! 
+
+Ticket link: https://gofan.co/event/6710346?schoolId=AR4663
+
+Livestream: NLRTV on You Tube
+
+### 2026-10-01 · Conway High School (id 13335021)
+
+🎉 October is National Principals Month! 🎉
+
+This month, we’re celebrating and expressing our gratitude for Dr. Kate Worley, whose leadership, support, and commitment make a difference every day at Conway High School.
+
+Dr. Worley consistently puts our students, faculty, and campus at the heart of what she does. We’re grateful for the way she supports her staff, champions our students, and works to make CHS the best it can be.
+
+Thank you, Dr. Worley, for all you do for our Wampus Cat family! 💙🤍
+
+#NationalPrincipalsMonth #ThankYouDrWorley #WampusCats
+
+### 2026-10-01 · Conway High School (id 13327212)
+
+📸 Seniors, your photos are ready to view!
+
+CHS Class of 2027 seniors can now access their senior photos using the FaceFind feature:
+
+📱 Text “Senior27CHS” to 90738
+📷 Upload a photo of the student using the FaceFind feature.
+✨ The software will use facial recognition to find all the photos of that student!
+
+Questions? Contact Strain Photography at 501-358-6150 or info@strainphotography.info.
+
+#WampusCats #CHS2027 #SeniorPhotos
+
+### 2026-10-02 · Conway High School (id 13334512)
+
+🧹💙 Happy National Custodian Day! 💙🧹
+
+Today, we’re taking a moment to recognize and celebrate the incredible custodial staff who help keep Conway High School running every single day. From the early mornings to the late afternoons, they work behind the scenes to keep our school clean, safe, welcoming, and ready for our students and staff.
+
+Their hard work, dedication, and willingness to tackle whatever the day brings often go unnoticed—but they make a difference in our school community every day.
+
+Thank you for everything you do for our Wampus Cats! We appreciate you more than you know! 🐾💙
+
+#NationalCustodianDay #WampusCats #ThankYou
+
+### 2026-10-02 · Conway High School (id 13344462)
+
+Mrs. Chen’s Mandarin students had an exciting week filled with hands-on learning, creativity, and cultural exploration! 
+
+✍️ Students in Mandarin I practiced writing their Chinese names using whiteboards, markers, and erasers generously donated by Show-me, a UK-based company. Students enjoyed learning how to write and recognize their own names in Chinese while building confidence with Chinese characters.
+
+🌕 Students also celebrated the Mid-Autumn Festival (Moon Festival), one of the most important traditional festivals in China. They learned about the meaning and traditions behind the holiday, tasted traditional mooncakes, and even made their own snow skin mooncakes (冰皮月饼) in class! 🥮
+
+These immersive activities gave students the opportunity to go beyond the textbook and experience Chinese language and culture firsthand. The classroom was filled with smiles, creativity, teamwork, and, of course, delicious mooncakes!
+
+A heartfelt thank you to Show-me Boards for generously donating our classroom supplies, and to Velda Lueders, a local realtor and wonderful community supporter, whose generous donation made our mooncake-making experience possible. ❤️
+
+We are so grateful for community partners who help us create meaningful, memorable, and engaging learning experiences for our students! 🌟
+
+### 2026-10-02 · Conway High School (id 13345127)
+
+🩸❤️ 56 units. Countless lives impacted.
+
+Conway High School HOSA’s Annual Fall Blood Drive was a HUGE success! Our Wampus Cats donated 56 units of blood, putting CHS in a tie for 2nd place among local high schools for units donated this fall! 👏🐾
+
+And the impact doesn’t stop here. Those 56 units have already made their way to hospitals in Conway, Little Rock, Oklahoma, and Texas, where they are being given to patients in need. ❤️
+
+To every student, staff member, and donor who rolled up a sleeve and gave the gift of life—THANK YOU! Your generosity is making a difference far beyond our CHS campus.
+
+Way to show what it means to be a Wampus Cat! 🐾🩸
+
+#WampusCats #CHSHOSA #GiveBlood
+
+### 2026-10-02 · Joseph Moon (id 13345421)
+
+Wampus Cat Basketball was honored to participate in the PFME MVP Huddle this morning. We got to greet students as they arrived for the assembly, cheer on those receiving awards, and they even gave us gift bags at the end! Thank you to Dr. Calhoun, Mrs. Henderson, and the rest of the PFME team for inviting us to such a great event!
+
+### 2026-10-02 · Marcelle Goins (id 13354616)
+
+Game day reminders:
+-Please purchase tickets before coming to the game. No cash accepted at the gate. https://gofan.co/event/6688687 
+-All home fans please enter through the main gates on the south side of of the stadium.
+-All visitors please enter though the visitors gate on the east side of the stadium. 
+
+If you can't make it, please use the link below to watch the game. 
+🔗: https://youtube.com/live/xTaV_VpwiP0?feature=share
+
+### 2026-10-02 · Conway Athletics (id 13356989)
+
+LADY CAT PLAYERS OF THE WEEK ⭐️
+
+🏀 CJHS: Delayliah Carter
+🏀 CHS: Imani Johnson
+
+Proud of these two Lady Cats and the work they continue to put in! Keep showing up, competing, and getting better! 🚾🏀
+
+### 2026-10-02 · Sara Flenor (id 13357190)
+
+💙🐾 ALL CONWAY GIRLS SPORTS TAILGATE! 🐾💙
+
+What a great night bringing over 70 of our Conway female athletes together! 🚾
+
+A HUGE thank you to Central Arkansas Pest for providing the food and firing up the grill for our girls! We appreciate you investing in our athletes and helping make tonight so much fun! 🙌🔥
+
+Nothing better than great food, great people, and ALL things Conway! 💙
+
+ONE CONWAY. ONE FAMILY. 🐾
+
+### 2026-10-03 · Lashanta Johnson (id 13357407)
+
+Congratulations to our Tennis Team! We have 8 players (2 singles, and 3 doubles teams) headed to State!
+
+### 2026-10-05 · Conway High School (id 13346135)
+
+October is National Physical Therapy Month! 🩵
+
+We’re celebrating our CHS physical therapists, Elizabeth Hart and Kasey Strack! They play an important role in helping our students with mobility challenges and other physical needs safely access, navigate, and participate in their educational environment and daily school routines.
+
+Thank you, Elizabeth and Kasey, for the care, expertise, and support you provide to our students each day. We’re so grateful to have you as part of the Wampus Cat family! 💙🤍
+
+#NationalPhysicalTherapyMonth #WampusCats #WeAreCHS
+
+### 2026-10-05 · Canaan Groesbeck (id 13366555)
+
+Conway Family,  here are a few ways that YOU can help support Lady Cat volleyball's pink night recipient, Emmersyn Caldwell.  There are several ways to give your support including change runs, Go Fan donation link, paper volleyballs for $1, and just simply coming to the game on October 13th! 
+
+Donation Link:
+https://gofan.co/event/6934068?schoolId=AR4663
+
+### 2026-10-05 · Conway High School (id 13369920)
+
+📚 Sharing the joy of reading across our Wampus Cat community!
+
+On Friday, 21 Conway High School students from our Spanish Honor Society visited Ellen Smith Elementary and Carolyn Lewis Elementary, bringing bilingual books and the joy of reading to students in every classroom!
+
+It was a wonderful opportunity for our high school students to give back to their community while encouraging a love of reading in both English and Spanish. Our younger Wampus Cats enjoyed stories in both languages, celebrated their cultures, and saw firsthand the value of being bilingual.
+
+We are incredibly proud of our Spanish Honor Society students for serving as leaders, sharing their time and talents, and making a positive impact on our youngest Wampus Cats! ❤️
+
+A special thank you to Ellen Smith and Carolyn Lewis for welcoming our students and helping make this experience so meaningful!
+
+#ConwayWampusCats #SpanishHonorSociety #BilingualBooks #LanguageEquity #BuildingCommunity
+
+### 2026-10-05 · Conway High School (id 13370571)
+
+💪 Fitness Friday in Nutrition Science 1! 🏃‍♀️
+
+Students in Nutrition Science 1 got moving last week as they participated in Fitness Friday! Students put their fitness to the test using the stepper, treadmill, and jump rope.
+
+A great way to get active, have a little fun, and put healthy lifestyle concepts into action! Way to get moving, Wampus Cats! 🐾
+
+### 2026-10-05 · Conway Athletics (id 13374489)
+
+Click the link to purchase tickets to this Friday's  football game at Cabot https://www.vancoevents.com/us/events/67124/sessions/188312/sections/113484/tickets
+
+### 2026-10-05 · Beth Fluesmeier (id 13372436)
+
+Click on the link below to vote for Darean Holt!
+
+https://www.triarkradio.com/local-news/week-5-player-of-the-week-voting-now
+
+### 2026-10-05 · Beth Fluesmeier (id 13372329)
+
+WAMPUS CAT ATHLETIC EVENTS FOR THIS WEEK
+
+### 2026-10-05 · Conway High School (id 13366478)
+
+📚 ATLAS Testing — October 6 & 7
+
+All sophomores will be taking their ATLAS exams on October 6 and 7. Juniors currently enrolled in Geometry and/or Biology will also be testing.
+
+Students, come prepared to do your best! Make sure your Chromebook is fully charged and ready to go each morning. Get a good night’s sleep, arrive ready to focus, and give it your best effort!
+
+💙🤍 Come prepared. Stay focused. Do your best, Wampus Cats! 🐾
+
+### 2026-10-05 · Conway High School (id 13376393)
+
+🏈 Football Ticket Information for 10/9 game @ Cabot
+
+Conway fans, if you’re headed to the Cabot vs. Conway game, please take a moment to review the ticket and entrance information!
+
+🎟️ Tickets must be purchased online — we are ONLINE/CARD ONLY!
+👉https://www.vancoevents.com/us/events/landing/67124?
+
+All fans should enter through the main ticket booths on the north end of the stadium. After purchasing your ticket, please have the QR code from your email receipt ready to be scanned when you arrive at the gate.
+
+⚠️ Please note: If stadium capacity is reached, ticket sales will cease.
+
+#WampusCats #GoCats
+
+### 2026-10-05 · Conway Athletics (id 13379002)
+
+Thank you to Ott Insurance for being a Wampus Cat Football Sponsorl! #sixlegs
+
+### 2026-10-06 · Conway Athletics (id 13379099)
+
+It's National Coaching Day. Thank you to all of our CPSD Coaches for the hard work you put in to help us be the best! #sixlegs
+
+### 2026-10-06 · Conway Public Schools (id 13287215)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Canaan Groesbeck (id 13365963)
+
+Lady Cat volleyball takes on Cabot tonight!! Big conference match up at Buzz Bolding Arena! Come out and support your Lady Cats.
+
+Ticket Link: 
+https://gofan.co/event/6687091?schoolId=AR4663
+
+Live Stream Link:
+https://youtube.com/live/E9AwkezEtPs?feature=share
+
+### 2026-10-06 · Conway High School (id 13376004)
+
+🩺 Learning by Doing!
+
+Our Patient Care Technician students took their skills into the Sim Lab to practice safely assisting patients out of a vehicle and transporting them to the ER. 🚑
+
+Hands-on practice like this gives students the opportunity to build confidence, strengthen patient-care skills, and experience what it’s like to put their training into action!
+
+### 2026-10-06 · Conway High School (id 13383878)
+
+🌴🎉 A NIGHT IN RIO — Homecoming Dance Tickets Are On Sale! 💃🏽🕺
+
+Get ready for a night of music, dancing, and Carnaval-inspired fun at A Night in Rio! 🌴🎶
+
+📅 Friday, October 16
+🕣 8:30 PM–Midnight
+
+🎟️ TICKET SALES
+• Digital tickets (GoFan): $27.25 — on sale beginning October 5
+https://gofan.co/event/6933857?schoolId=AR4663_2
+
+• Paper tickets: $25.00 — on sale beginning October 12 during both lunches
+• Paper tickets are cash or check only
+
+• ALL ticket sales end October 15
+🚨 NO TICKETS WILL BE SOLD ON THE DAY OF THE DANCE. NO EXCEPTIONS.
+
+A few important reminders:
+• Freshmen and guests 21 and older are not permitted to attend.
+• Out-of-school dates must be escorted by a full-time CHS student or a part-time CHS student with administrative approval.
+• Out-of-school date forms are due to the front office no later than Wednesday, October 7, at 3:30 PM.
+• Students must present a photo ID to enter the dance.
+• No refunds will be issued.
+
+🎟️ Don’t wait until the last minute—get your ticket before sales close October 15!
+
+### 2026-10-06 · Conway High School (id 13382180)
+
+🍝 18 Minutes, 20 Pieces of Spaghetti & 1 Marshmallow
+
+Last week, Ms. Cochran’s students put their teamwork and problem-solving skills to the test with the Marshmallow Challenge! Students had just 18 minutes to build the tallest structure they could using only 20 pieces of spaghetti and masking tape—with one important requirement: it had to hold a marshmallow on top! ⏱️
+
+The challenge required communication, creativity, collaboration, and a willingness to rethink their designs along the way. And, of course, there were plenty of laughs as students raced to see whose structure could reach the greatest heights! 🏗️👏
+
+#ConwayHighSchool #WampusCats #TeamBuilding #ProblemSolving #Collaboration
+
+### 2026-10-06 · Conway Public Schools (id 13285817)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Conway High School (id 13376073)
+
+Our PCT/EMT students had the opportunity to learn more about the many possibilities available in healthcare! 🩺
+
+Representatives from the University of Arkansas at Little Rock’s nursing program visited with students about healthcare career opportunities and what life is really like as a nursing student at UALR. An admissions representative was also on hand to help students take the next steps toward college enrollment.
+
+A big thank-you to the UALR team for spending time with our students and helping them see where their healthcare education could take them! 💙🐾
+
+### 2026-10-07 · Conway High School (id 13375500)
+
+🚨 HOMECOMING  2026: A NIGHT IN RIO — DATE FORM REMINDER! 🌴💃🏽
+
+Bringing an out-of-school date to the Homecoming Dance? Don’t forget! Out-of-school date forms are due to the CHS front office TODAY by 3:30 PM.
+
+Forms must be submitted by the deadline for your date to attend the dance.
+
+⏰ Deadline: Today at 3:30 PM
+📍 CHS Front Office
+
+Don’t wait—get those forms turned in! 🎟️🌴
+
+### 2026-10-07 · Conway Public Schools (id 13376867)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Conway Athletics (id 13394677)
+
+🐾🏆 Proud of our Conway Wampus Cats at the Danny Westbrook Bryant Hornet Invitational!
+Both Senior teams took 1st place team finishes! 🥇🥇 Our Jr. High Boys finished 6th, and both Jr. High Girls ran personal bests! 👏🔥
+
+Way to compete, Wampus Cats! 💙💛 #WampusCats #CrossCountry
+
+### 2026-10-07 · Conway High School (id 13401966)
+
+🏆 A Remarkable Academic Achievement! 🏆
+
+Congratulations to Tyson Garlow on being named a National Merit Semifinalist through the National Merit Scholarship Program!
+
+Representing less than 1% of high school seniors nationwide, National Merit Semifinalists have earned one of the highest academic distinctions a high school student can receive. This prestigious recognition is a reflection of Tyson’s hard work, dedication, and commitment to academic excellence.
+
+We are incredibly proud of Tyson and all he has accomplished, as well as the way he represents Conway High School and Conway Public Schools. His achievement will be celebrated at next week’s school board meeting, where Tyson will be recognized for this outstanding accomplishment.
+
+Congratulations, Tyson! We are proud to call you a Wampus Cat! 🐾💙
+
+#WampusCats #AcademicExcellence #NationalMerit #ProudToBeAConwayWampusCat
+
+### 2026-10-07 · Conway High School (id 13401950)
+
+🎉 Our Second Hispanic Heritage Month Trivia Winners! 🎉
+
+The results are in for our second biweekly Hispanic Heritage Month trivia question! ¡Felicidades to our winners! 🎊
+
+🏆 10th Grade: Paxton Ward
+🏆 11th Grade: Tyler Crocker
+🏆 12th Grade: Neyda Rodriguez
+🏆 Teacher: Dr. Cody Jackson
+
+Thank you to everyone who participated! We had plenty of correct answers, but there could only be one winner per grade level. Keep an eye out for our next trivia question!
+
+#HispanicHeritageMonth #CHSWampusCats #Trivia
+
+### 2026-10-08 · Joseph Moon (id 13401098)
+
+Mark your calendars! The 2026–27 Wampus Cat Basketball schedule is here.
+
+We look forward to another great season representing Conway High School and our community.  See you in November!
+
+### 2026-10-08 · Conway High School (id 13410914)
+
+🎓 PSAT/NMSQT Opportunity for CHS Students!
+
+We’re excited to share a special opportunity for Conway High School students through a partnership with Conway High School and Conway Development Corporation!
+
+💰 $500 Award
+CHS juniors who take the PSAT/NMSQT on October 27 and earn a Selection Index score of 213 or higher will be awarded $500.
+
+🏆 Additional $1,000 Award
+Students who qualify as a National Merit Semifinalist will receive an additional $1,000 award!
+
+📅 Parent Information Meeting — TONIGHT!
+October 8 • 6:00 PM
+📍 Conway High School Lecture Hall
+
+Parents and students are invited to learn more about the PSAT/NMSQT, National Merit recognition, and this exciting opportunity for CHS students.
+
+We hope to see you there! 💙🤍
+
+#ConwayWampusCats #CHS #PSAT #NMSQT #NationalMerit #StudentOpportunity #ConwayPublicSchools
+
+### 2026-10-08 · Canaan Groesbeck (id 13411119)
+
+Tomorrow morning (10/9) be on the lookout for our Lady Cat Volleyball girls in the morning drop off lines at our Elementary schools!! Get your change ready and help support Emmersyn!
+

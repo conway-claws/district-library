@@ -765,3 +765,61 @@ Anyone interested in tryouts need to see Coach Wiedower or Coach Hickey to get s
 
 Make a difference, be a hero, and stay drug free! 💙❤️
 
+### 2026-10-02 · Angel Moix (id 13240586)
+
+📚✨ Storytelling meets strategy in Ms. Smith's 7th Grade Honors ELA class at Simon Middle School!
+Our students are taking a deep dive into literary analysis by breaking down the core elements of a variety of complex stories. But they aren't just filling out worksheets—they are bringing these narrative worlds to life! 🧠💡
+Working in collaborative groups, students have stepped into the roles of literary analysts, project managers, and creative directors. Swipe to see them hard at work planning, sketching, and building their dynamic plot diagrams! 🗺️🎨
+
+### 2026-10-05 · Karon Branch (id 13373885)
+
+We have had a GREAT first half of testing! Writing and Reading testing are now complete. Scores will begin populating in the parent portal and may continue to appear over the next couple of weeks.
+
+We have two days of testing remaining:
+➗ Tuesday, 10/6 – Math
+🔬 Wednesday, 10/7 – Science
+
+Testing will begin at 8:00 AM and conclude at 10:45 AM each morning.
+
+Thank you for partnering with us and supporting our students through testing! We appreciate you!
+
+### 2026-10-06 · Conway Public Schools (id 13287212)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Conway Public Schools (id 13285814)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Conway Public Schools (id 13376864)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Angel Moix (id 13335728)
+
+🌟 Huge congratulations to our 7th Grade Students of the Month! 🌟📚 Asle brings focus, determination, and thoughtful ideas to class every single day. Her love for reading and passion for learning shine through in everything she does!⭐ Jihad leads by example with his incredible work ethic and positive attitude. Always kind, attentive, and patient, he truly embodies the Simon Standard every day!We are so proud of you both! 👏🎉#SimonStrong #WeAreSimon
+
+### 2026-10-07 · Angel Moix (id 13402665)
+
+🎉 Mark Your Calendars for Spirit Days! 🗓️✨
+
+Get ready to dress up and show your school spirit with our upcoming Hat Days and PJ Days! Check out the schedule and guidelines below:
+
+🎩 HAT DAYS
+
+Dates: Dec 11 | Jan 8 | Mar 5 | May 7
+
+⚠️ Note: Standard hats only! Scarves, bonnets, durags, or similar head coverings will not be permitted.
+
+💤 PJ DAYS
+
+Dates: Oct 9 | Nov 13 | Jan 22 | Feb 12 | Apr 16
+
+⚠️ Note: Keep it cozy, but keep it classic! All pajamas must be school-appropriate.
+
+Which theme are you most excited for? Drop a comment below! 👇
+

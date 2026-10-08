@@ -519,3 +519,77 @@ Happy Human Resource Professional Day! #CPSD #HRProfessionalDay #TeamConway
 
 Hey Team!Conway FFA would love to have your continued support with their Fall Plant Sale of Mums and Pansies. Please review the link provided below.  Sale has been pushed back to end tomorrow, Tuesday, September 29 at 3:00pm and we anticipate delivery for October 6th.  Thank you for your continued support! If you have any questions or concerns, please do not hesitate to contact us at louisl@conwayschools.info or starkh@conwayschools.info.FORM: Conway FFA Fall Plant Sale
 
+### 2026-10-02 · Conway Public Schools (id 12662646)
+
+Happy School Custodian Appreciation Day! Our custodians are often the first to arrive and the last to leave, working tirelessly to keep our campuses clean, safe, and welcoming. Team Conway shines bright because of your daily dedication. We appreciate you more than words can say! 🧼✨
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-02 · Tim McMahan (id 13350560)
+
+Happy custodian day to some of the hardest working people on my team! I appreciate each of you greatly. Have a good weekend 
+T-Mac
+
+### 2026-10-02 · Conway Public Schools (id 13354917)
+
+October is Principal Appreciation Month!
+
+We’re excited to celebrate our incredible Conway Public Schools principals all month long!
+
+Thank you to our principals for leading with heart, supporting our staff, partnering with families, and always putting our students first. We’re grateful for all you do each day!
+
+Join us in celebrating our amazing principals throughout the month!
+
+#WeAreCPSD #WeAreConway #PrincipalAppreciationMonth #TeamConway #WampusCatNation
+
+### 2026-10-06 · Conway Public Schools (id 13376936)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.
+
+Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Conway Public Schools (id 13285705)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Conway Public Schools (id 13376942)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Conway Public Schools (id 13285801)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Conway Public Schools (id 13376918)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Conway Public Schools (id 13376851)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-08 · Conway Public Schools (id 13377832)
+
+📚 INSIDE THE PLAYBOOK: Did You Know?
+
+Did you know that since 2022, a total of 209 Conway High School students have earned the Arkansas Seal of Biliteracy?   
+
+This achievement recognizes students who demonstrate high proficiency in both English and another language, including Spanish, Chinese, Urdu, French, German, Russian, and American Sign Language. We are so proud of these multilingual Wampus Cats for opening doors to global opportunities as part of Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-08 · Conway Public Schools (id 13413326)
+
+Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
+Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
+

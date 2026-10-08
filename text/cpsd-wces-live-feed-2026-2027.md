@@ -1191,3 +1191,94 @@ Reminder: Tomorrow is picture day for 3rd and 4th grade students. Any K-2 studen
 
 The Cheetah Girls came for Brown Day today!! 🤎🤎
 
+### 2026-10-02 · Woodrow Cummins Elementary (id 13343466)
+
+W.I.N. time in Kindergarten! Our kinders are working hard on reading CVC words and building those early reading skills one word at a time!
+
+### 2026-10-02 · Jenna Havlik (id 13348196)
+
+Our kindergarten friends have been learning so much about Rap a Tap Tap! 🎶 Today, we had so much fun exploring the book together and joining in on the repeated rhythm as we read! There’s nothing better than learning, laughing, and making memories with friends! 📚❤️✨
+
+### 2026-10-02 · Jenna Havlik (id 13353165)
+
+Third grade September Level- Up winners!! 🎉
+
+### 2026-10-02 · Jenna Havlik (id 13356134)
+
+Congratulations to these students who received positive office referrals for doing a great job being C.A.T.S. Kids this week!!
+
+### 2026-10-02 · Woodrow Cummins Elementary (id 13356728)
+
+Today student made Apple Pie in Mrs Lute’s class and then wrote about their experience.
+
+### 2026-10-03 · Woodrow Cummins Elementary (id 13357901)
+
+Thank you to everyone who helped make "Grand's Week" and our Literati Book Fair a success.  We really enjoyed seeing all of the amazing families and support systems our students have in their lives.  We have many more exciting events coming up at WCE! Take a look at our Little Cat Chronicle to learn more!
+
+### 2026-10-05 · Woodrow Cummins Elementary (id 13373093)
+
+Families,Sadly we had to cancel our field trip opportunity.  UCA inadvertently scheduled us for Oct. 16, which is their Fall Break.  Other available dates conflicted with our Fall Break.  We will let you know soon once we get something else planned.
+
+### 2026-10-06 · Conway Public Schools (id 13287201)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Conway Public Schools (id 13285804)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Jenna Havlik (id 13389640)
+
+Dear WCE Families,
+
+We’re excited to announce a NEW attraction coming to this year’s Little Cat-A-Thon MegaThon Adventure — The Not-So-Haunted House! 🏚️🦇
+
+Get ready for some spooky-but-fun adventure! This not-so-scary haunted house is sure to be a fun addition to our Little Cat-A-Thon experience.
+
+🕸️ Ready to Join the Adventure?
+
+Scan the QR code on the flyer to:
+
+* Register for Little Cat-A-Thon
+* Collect donations online
+* Watch a video preview of The Not-So-Haunted House!
+
+We can’t wait to see our Little Cats take on this exciting new attraction! 🐾🎃
+
+Let’s make this year’s Little Cat-A-Thon MEGA!
+
+Thank you for supporting Woodrow Cummins Elementary PTO and helping make amazing experiences possible for our students!
+
+### 2026-10-07 · Jenna Havlik (id 13395704)
+
+It's the first day of 3rd and 4th grade Running Club!
+
+### 2026-10-07 · Conway Public Schools (id 13376854)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Woodrow Cummins Elementary (id 13405730)
+
+Dear WCE Families,Our Little Cat-a-thon PTO Fundraiser is underway, and we are so excited to reward our students for their fundraising efforts! 🎉🐾Students can earn some AMAZING incentives as they reach different fundraising levels:🐾 Student Incentives & Prizes$0–$24: Bounce House Party 🎪$25+: Chalk Battle, Bracelet & Carnival GamesT-shirt earned by 9/25$50+: Megathon Color Run & Hat Day at WCE 🎨$75+: Pop Fidget Bracelet$100+: Bubble Dash & Squishy Toy(Sibling goal: $150)$150+: Foam “Snow” Party Pit, Slip N Slide, Popcorn & Movie Party Day ❄️🍿(Sibling goal: $200)$200+: Slime Fest 💚💜(Sibling goal: $250)$250+: Free Yearbook (or reimbursement) & Silly String Principal(s)! 📚(Sibling goal: $300)$350+: Urban Air Field Trip 🚌(Sibling goal: $400)$375+: Catered Lunch with Principal(s)! 🍕(Sibling goal: $425)There are SO many fun rewards waiting for our Little Cats! Every dollar raised helps support Woodrow Cummins Elementary PTO and provides opportunities and resources for our students.Thank you for supporting WCE and helping make this fundraiser a success! We can't wait to celebrate our Little Cats! 💙🐾
+
+### 2026-10-07 · Woodrow Cummins Elementary (id 13408082)
+
+Running Club Pickup Update We will be re-configuring our Running Club pickup procedures and routines to make dismissal as safe, efficient, and organized as possible. Thank you in advance for your patience and understanding as we work through the kinks.With more than 100 students participating in Running Club, dismissal takes time and requires coordination from multiple staff members. We are working to make improvements and will communicate the plan and procedures for next week as soon as possible.In the meantime, we ask for your patience and cooperation. Respectful communication and behavior toward all WCE staff members is expected at all times. Our staff is working hard to ensure that every student is dismissed safely and efficiently.Thank you for your understanding as we make adjustments that will ultimately make Running Club pickup better for everyone.
+
+### 2026-10-08 · Woodrow Cummins Elementary (id 13411243)
+
+Dear WCE Families,Get ready to SLIME YOUR FRIENDS! 🧪💦 Our Woodrow Cummins Elementary PTO Little Cat-a-Thon is underway, and we’re challenging each Little Cat to raise $200 for the chance to win an unforgettable SLIME FEST! 🎉💚💙 How to Participate:1. Register OnlineScan the QR code on the flyer or visit the Little Cat-a-Thon online store to register and start collecting donations today!2. Collect DonationsAsk family and friends to support our WCE Little Cats and help us reach our fundraising goal.3. Reach $200 & Win a SLIME FEST! 🧪Students who reach the $200 prize level will earn the opportunity to slime their friends at our Slime Fest!📅 Important Deadlines:Friday, October 9: All in-person donations (cash, check) must be turned in to the school.Sunday, October 11 at 11:59 PM: The online store closes for any last-minute donations.Every donation helps support Woodrow Cummins Elementary PTO and our students!Let's get slimy, Little Cats! 🐾💚💙Register and start collecting donations today!Thank you for supporting WCE!Woodrow Cummins Elementary PTO
+
+### 2026-10-08 · Woodrow Cummins Elementary (id 13411331)
+
+Dear WCE Families,Get ready to SLIME YOUR FRIENDS! 🧪💦 Our Woodrow Cummins Elementary PTO Little Cat-a-Thon is underway, and we’re challenging each Little Cat to raise $200 for the chance to win an unforgettable SLIME FEST! 🎉💚💙 How to Participate:1. Register OnlineScan the QR code on the flyer or visit the Little Cat-a-Thon online store to register and start collecting donations today!2. Collect DonationsAsk family and friends to support our WCE Little Cats and help us reach our fundraising goal.3. Reach $200 & Win a SLIME FEST! 🧪Students who reach the $200 prize level will earn the opportunity to slime their friends at our Slime Fest!📅 Important Deadlines:Friday, October 9: All in-person donations (cash, check) must be turned in to the school.Sunday, October 11 at 11:59 PM: The online store closes for any last-minute donations.Every donation helps support Woodrow Cummins Elementary PTO and our students!Let's get slimy, Little Cats! 🐾💚💙Register and start collecting donations today!Thank you for supporting WCE!Woodrow Cummins Elementary PTO
+
+### 2026-10-08 · Conway Public Schools (id 13413328)
+
+Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
+Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
+

@@ -770,3 +770,148 @@ Learning and growing together at Table 4! 💡 Every book is a new adventure whe
 
 #JuliaLeeMoore #WeAreJLM #GrowingReaders
 
+### 2026-10-01 · Julia Lee Moore Elementary (id 13337249)
+
+Due to potential rain tomorrow (Oct. 2), the 4th grade "Get Moving Arkansas" field trip is cancelled. Thank you for your understanding!
+
+### 2026-10-02 · Julia Lee Moore Elementary (id 13247429)
+
+Happy National Custodian Appreciation Day! Today, we want to give a HUGE thank you to our incredible custodial team—Mrs. Gail, Mrs. Tania, and Ms. Jackie!
+
+Thank you for everything you do behind the scenes to keep our school clean, safe, and welcoming every single day. We appreciate your hard work, dedication, and warm smiles more than words can say! 💙
+
+#JuliaLeeMoore #WeAreJLM #ThankYou
+
+### 2026-10-02 · Julia Lee Moore Elementary (id 13343394)
+
+A huge thank you to the May Family for bringing autumn to the lounge with an incredible spread of warm spiced apple cider, fresh apples with dip, and homemade baked treats! 🍎🍁✨
+
+#JuliaLeeMoore #WeAreJLM #ThankYou
+
+### 2026-10-02 · Julia Lee Moore Elementary (id 13332132)
+
+JLM FAMILIES! 
+
+It's FALL FESTIVAL time! We thought we'd have a little friendly donation competition between grade-levels. 
+
+Starting MONDAY, October 5th-THURSDAY, October 8th we will be keeping count of candy and 2-liters donated by each grade-level. The grade-level with the most donations will receive an extra recess with some surprise guests! 
+
+So, don't be looking for the candy monster next week, take those donations to your hall and place them in your grade-level's donation box!
+
+We couldn't do Fall Festival without YOU! Thank you so much for your support!
+
+### 2026-10-04 · Julia Lee Moore Elementary (id 13332297)
+
+Don’t forget! Our Fall Festival Donation Competition starts TOMORROW morning! 
+
+Send in your candy and 2-liter donations to your child's grade-level donation box this week. The competition ends this Thursday, October 8th! Which grade is going to take home the extra recess with special guests? 🏆 
+
+Thank you so much for supporting JLM! 💙✨
+
+### 2026-10-05 · Julia Lee Moore Elementary (id 13285262)
+
+Our first graders worked hard on their number bonds! Using two-color counters, they practiced breaking down and building up the number 9! 
+
+#JuliaLeeMoore #WeAreJLM #FirstGrade
+
+### 2026-10-06 · Julia Lee Moore Elementary (id 13310878)
+
+Our kindergarteners just finished their paintings after exploring the element of art LINE, using everything from bold zigzags to gentle waves to bring their paper to life. 🎨✨
+
+#JuliaLeeMoore #WeAreJLM #Kindergarten #LittleArtists
+
+### 2026-10-06 · Conway Public Schools (id 13287205)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Julia Lee Moore Elementary (id 13372726)
+
+IT'S OFFICIALLY FALL FESTIVAL WEEK!
+
+JLM's Fall Festival would not be possible without the support of our sponsors. We want to give a HUGE shout out and thank you to this year's GOLD sponsors! 
+
+#JuliaLeeMoore #WeAreJLM #FallFestival #GoldSponsor
+
+### 2026-10-06 · Conway Public Schools (id 13285808)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Julia Lee Moore Elementary (id 13372767)
+
+IT'S OFFICIALLY FALL FESTIVAL WEEK!
+
+JLM's Fall Festival would not be possible without the support of our sponsors. We want to give a HUGE shout out and thank you to this year's GOLD sponsors! 
+
+#JuliaLeeMoore #WeAreJLM #FallFestival #GoldSponsor
+
+### 2026-10-06 · Julia Lee Moore Elementary (id 13372803)
+
+IT'S OFFICIALLY FALL FESTIVAL WEEK!
+
+JLM's Fall Festival would not be possible without the support of our sponsors. We want to give a HUGE shout out and thank you to this year's GOLD sponsors! 
+
+#JuliaLeeMoore #WeAreJLM #FallFestival #GoldSponsor
+
+### 2026-10-06 · Julia Lee Moore Elementary (id 13371675)
+
+JLM Fall Festival ticket pre-order forms are due TOMORROW, Wednesday, October 7th! Tickets will also be sold at Fall Festival, but please note it will be CASH ONLY. Thank you for your support!
+
+### 2026-10-07 · Julia Lee Moore Elementary (id 13324415)
+
+No "blues" here except the color of our clothes! 💙✨
+
+#JuliaLeeMoore #WeAreJLM #FirstGrade
+
+### 2026-10-07 · Conway Public Schools (id 13376858)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Julia Lee Moore Elementary (id 13372848)
+
+Our next shout out goes to this year's SILVER sponsor. Without your support, JLM's Fall Festival wouldn't be possible! A HUGE thank you from us to you!
+
+#JuliaLeeMoore #WeAreJLM #FallFestival #SilverSponsor
+
+### 2026-10-07 · Julia Lee Moore Elementary (id 13372878)
+
+Thank you to our BRONZE sponsors! JLM is so thankful to have great partners like you!
+
+#JuliaLeeMoore #WeAreJLM #FallFestival #BronzeSponsor
+
+### 2026-10-07 · Julia Lee Moore Elementary (id 13376932)
+
+Thank you to our BRONZE sponsors! JLM is so thankful to have great partners like you!
+
+#JuliaLeeMoore #WeAreJLM #FallFestival #BronzeSponsor
+
+### 2026-10-07 · Julia Lee Moore Elementary (id 13368505)
+
+JLM Fitness Club will not meet tomorrow, Thursday, October 8th. Please make arrangements for regular dismissal. Thank you!
+
+### 2026-10-08 · Julia Lee Moore Elementary (id 13405259)
+
+From taste-testing and seed investigations to learning about the apple life cycle, our young scientists are hard at work! 📝🍎✨
+
+#JuliaLeeMoore #WeAreJLM #YoungScientists
+
+### 2026-10-08 · Julia Lee Moore Elementary (id 13376985)
+
+Our last sponsor shout outs for Fall Festival 2026 are to our amazing Friends and Families! We are so thankful for your support and for helping us make Fall Festival a success! 
+
+#JuliaLeeMoore #WeAreJLM #FallFestival #FriendsAndFamily
+
+### 2026-10-08 · Conway Public Schools (id 13413332)
+
+Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
+Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
+
+### 2026-10-08 · Julia Lee Moore Elementary (id 13377013)
+
+Our last sponsor shout outs for Fall Festival 2026 are to our amazing Friends and Families! We are so thankful for your support and for helping us make Fall Festival a success! 
+
+#JuliaLeeMoore #WeAreJLM #FallFestival #FriendsAndFamily
+

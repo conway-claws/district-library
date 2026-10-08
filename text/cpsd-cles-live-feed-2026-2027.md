@@ -1297,3 +1297,198 @@ Small conversations can lead to big growth! Let’s work together to help our Li
 
 #WeAreCLE
 
+### 2026-10-01 · Carolyn Lewis Elementary (id 13334920)
+
+We are so very sorry to share that the 8th Annual Get Moving Arkansas, scheduled for Friday, October 2, has been canceled for our 4th graders due to the potential for heavy rainfall and lightning.
+
+We know our students were looking forward to this event. We appreciate your understanding. 
+
+#WeAreCLE
+
+### 2026-10-02 · Carolyn Lewis Elementary (id 13332369)
+
+💙 Happy School Custodian Appreciation Day! 💙
+
+Today we celebrate and thank all of our amazing CLE custodians for everything they do each day to keep our school clean, safe, and welcoming for our students and staff! We are blessed with the best at CLE! We appreciate you more than you know! 🐾💙
+
+#WeAreCLE
+
+### 2026-10-02 · Carolyn Lewis Elementary (id 13292243)
+
+🐾 Responsibility in Action! 💙
+
+This month, our CLE students are practicing Responsibility at school and at home! Check out the graphic for two fun ways families can practice together.
+
+📸 Parents, we’d love to see it! Share a picture of your CLE student showing responsibility at home or in the community. Let’s celebrate our Little Cats as they Be Strong and make a difference! 💙🐾
+
+#WeAreCLE
+
+### 2026-10-02 · Carolyn Lewis Elementary (id 13336441)
+
+📢 Lunch Visitor Procedure Update
+
+Beginning Monday, October 5, 2026, we are updating our lunch visitor procedures to help keep our Little Cats safe.
+
+If you are visiting your student for lunch:
+
+Check in at the office with a valid photo ID and make sure you are on your student’s pick-up list.
+When it is your student’s lunch time, the office will call them to the front office.
+Sign your student out.
+Exit through the front of the building with your student.
+Walk around the north end of the building to the designated lunch visitor area at the pavilion near the safe room, or choose to eat lunch with your student in your vehicle.
+When lunch is over, walk your student back to the front of the building and sign them back in.
+
+💙 Thank you for your partnership as we work together to keep our Little Cats safe!
+
+#WeAreCLE
+
+### 2026-10-02 · Carolyn Lewis Elementary (id 13343275)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-10-02 · Carolyn Lewis Elementary (id 13342380)
+
+🚲🌟 National Bike to School Day is October 9! 🌟🚲
+
+Grab your bike and join us for a fun ride to school! We’ll meet at 6:30 a.m. at the Catherine Place pavilion on Gardenia. For safety, all students must ride with an adult.
+
+Bring your breakfast and enjoy a tailgate breakfast with us at CLE!
+
+Questions? Contact Lindsay Spicer at spicerl@conwayschools.info.
+
+Let’s ride together! 🚴‍♀️🚴‍♂️💙
+
+### 2026-10-04 · Carolyn Lewis Elementary (id 13279587)
+
+📚 Testing Continues This Week at CLE! 📚
+
+Our 3rd and 4th grade Little Cats will continue Interim 1 Testing this week! 📝
+
+📅 Monday: Writing
+📅 Wednesday: Math
+📅 Thursday: Science
+📅 Friday: Make-Up Testing
+
+Please make sure students get plenty of rest, eat a good breakfast, and arrive at school on time. We are cheering you on, Little Cats! 💙💛
+
+#WeAreCLE
+
+### 2026-10-05 · Carolyn Lewis Elementary (id 13213742)
+
+🐾🌈 CLE Little Cat-A-Thon Color Run Fundraiser Reminder! 🌈🐾
+
+Our Little Cat-A-Thon fundraiser is underway! Help us reach our $50,000 schoolwide goal and support opportunities for our students. 💙
+
+🎉 The more you raise, the more prizes you can earn! Individual prize levels include:
+
+$25: Chalk Battle + bracelet + carnival games
+$50: MegaThon Adventure Color Run
+$100: Bubble Dash/Bubble Bash
+$150: Snow Party
+$200: Slime Fest
+$250: Silly String Officer Worley
+$300: Popcorn & Movie Party
+$400: Silly String the Principals
+$500: Lunch with the Principals
+
+🏆 There are also class prizes and top collector prizes available!
+
+📅 Fundraiser ends October 15
+🏃 Color Run & Prize Event: October 19
+
+🔗 Register and start collecting donations:
+https://megadoughshop.com/pumpkin-bash-1827.html
+
+
+🐾 Every donation makes a difference! Let’s make a BIG difference together! 💙
+
+#WeAreCLE
+
+### 2026-10-05 · Carolyn Lewis Elementary (id 13311793)
+
+First grade has kicked off the year with fun filled learning, from guest readers and engaging math activities to Freedom Week, Ms. Ryall’s class has had a blast! #WeAreCLE
+
+### 2026-10-05 · Carolyn Lewis Elementary (id 13378923)
+
+Attn: CLE Running Club members, 
+Your child received a note today welcoming them to the 2026 Club. Please note that Running Club will officially begin on October 14. 
+
+Thank you!!!
+
+### 2026-10-06 · Conway Public Schools (id 13287203)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Carolyn Lewis Elementary (id 13383075)
+
+🏆 Happy National Coaches Day! 🏆
+
+Today we are celebrating two amazing coaches at CLE! 💙
+
+A big thank you to Coach Jami and Mrs. Stroman for all you do to encourage, support, and help our Little Cats grow and succeed! We appreciate you both more than you know! 🐾💙 #WeAreCLE
+
+### 2026-10-06 · Conway Public Schools (id 13285806)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Carolyn Lewis Elementary (id 13385622)
+
+💙 Happy National Principals Month! 💙
+
+Today and every day, we celebrate and appreciate our amazing principal, Mrs. Sturdivant! Thank you for your leadership, dedication, and for all the ways you support our students, staff, and families at CLE. We are so grateful for you! 🐾💙
+
+Great principals make a BIG difference!
+
+#NationalPrincipalsMonth #WeAreCLE
+
+### 2026-10-07 · Conway Public Schools (id 13376856)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Carolyn Lewis Elementary (id 13354223)
+
+Erupting apples for apple week in kindergarten! #WeAreCLE
+
+### 2026-10-08 · Carolyn Lewis Elementary (id 13354399)
+
+Students had fun apple tasting for apples week in kindergarten! They tasted red, yellow, and green apples.  They colored thumbs up or down
+
+### 2026-10-08 · Conway Public Schools (id 13413330)
+
+Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
+Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
+
+### 2026-10-08 · Carolyn Lewis Elementary (id 13342330)
+
+Reminder:🚲🌟 National Bike to School Day is October 9! 🌟🚲
+
+Grab your bike and join us for a fun ride to school! We’ll meet at 6:30 a.m. at the Catherine Place pavilion on Gardenia. For safety, all students must ride with an adult.
+
+Bring your breakfast too and join us for a Tailgate Breakfast at CLE!
+
+Questions? Contact Lindsay Spicer at spicerl@conwayschools.info.
+
+Let’s ride together! 🚴‍♀️🚴‍♂️💙 #WeAreCLE
+
+### 2026-10-08 · Joshua Smith (id 13416786)
+
+🚲☀️ Bike to School Day is TOMORROW! 🐾💙
+
+Get those bikes ready, Little Cats! Join us Friday, October 9, for a fun morning of biking, breakfast, and making memories with our CLE families!
+
+🚲 Meet at 6:30 AM at the Catherine Place Pavilion on Gardenia to ride together to school.
+
+👨‍👩‍👧 All students must ride with an adult.
+
+🔦 Bring a bike light or headlamp to help keep everyone safe and visible!
+
+🥞 Stick around for our Tailgate Breakfast! Bring your own breakfast and a blanket to enjoy outside, or stay cozy and eat in your car!
+
+We can’t wait to see our Little Cats rolling into school and enjoying some sunrise fun together! 💙🐾
+
+#WeAreCLE
+

@@ -321,3 +321,53 @@ Throw on your favorite boots and come ready to make some memories with your Litt
 
 Mark your calendars and make plans now—we can’t wait to see our Mattison families there!
 
+### 2026-10-02 · Melissa Spence (id 13347036)
+
+📸 Picture Day is Monday, October 6th!
+
+Get those smiles ready, Little Cats! 
+
+💛 All students will have their photograph taken on Picture Day, and ordering photos is optional.
+
+
+👕 Have your child come dressed in their chosen outfit and ready to show off their best smile! 😁
+
+We can’t wait to see our Little Cats looking picture-perfect! 📸✨
+
+### 2026-10-02 · Melissa Spence (id 13352161)
+
+ATLAS Testing Dates are Coming Up!Our Little Cats are ready to show what they know! Please take a look at our upcoming ATLAS testing dates:3rd & 4th GradeOctober 5 — MathOctober 6 — ReadingOctober 7 — WritingOctober 8 — Science 1st & 2nd GradeOctober 27 — LiteracyOctober 28 — Math KindergartenOctober 29 — LiteracyOctober 30 — Math Families can help students prepare by making sure they get a good night’s sleep, eat a healthy breakfast, and arrive at school on time and ready to learn.We are proud of our Little Cats and all the hard work they’ve put in. Do your best, stay positive, and keep going!
+
+### 2026-10-02 · Melissa Spence (id 13354897)
+
+-CORRECTION-📸 Picture Day is Tuesday, October 6th!Get those smiles ready, Little Cats! 💛 All students will have their photograph taken on Picture Day, and ordering photos is optional.👕 Have your child come dressed in their chosen outfit and ready to show off their best smile! 😁We can’t wait to see our Little Cats looking picture-perfect! 📸✨
+
+### 2026-10-05 · Melissa Spence (id 13377410)
+
+Reminder: Picture day is tomorrow. Also, Running Club for grades 2nd - 4th is cancelled this week due to testing
+
+### 2026-10-06 · Conway Public Schools (id 13287204)
+
+Happy National Instructional Coaches Day! Today we are celebrating our phenomenal Instructional Coaches. They work side by side with our educators, sharing creative strategies and tools to help our classrooms thrive.Pictured here are just a few of our amazing instructional coaches in action! Thank you for leveling up our game plan and being true champions for kids on Team Conway! 📋💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-06 · Conway Public Schools (id 13285807)
+
+🏆 Happy National Coaches Day! Today we are also celebrating our incredible athletic coaches across the district. They spend early mornings, late nights, and weekends mentoring our student-athletes, teaching teamwork, discipline, and resilience both on and off the field. Thank you for leading our teams with passion and being true champions for kids on Team Conway! 🏈🏐👟
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-07 · Conway Public Schools (id 13376857)
+
+October is National Physical Therapy Month! A huge shoutout to our incredible CPSD Physical Therapists, Elizabeth Hart and Kasey Strack. They work behind the scenes every day helping our students gain strength, mobility, and confidence so they can thrive both in and out of the classroom. Thank you for being vital players on Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-08 · Conway Public Schools (id 13413331)
+
+Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
+Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
+
+### 2026-10-08 · Melissa Spence (id 13415111)
+
+Good morning, Mattison Families!Please use the link below to sign up for Parent-Teacher Conferences on Wednesday, October 21 (10:00 a.m. – 7:00 p.m.). We are aiming for 100% participation!If you requested interpreter services: Your conference has already been scheduled. Please check the note sent home with your assigned time—no online sign-up needed.https://docs.google.com/document/d/1dr6OgKV2wCqL-3F2vA7NqHVYIpSCLgF_ald0IxgVgRc/edit?usp=sharingThank you,The Mattison Team
+
