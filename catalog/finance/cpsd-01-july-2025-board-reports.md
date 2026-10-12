@@ -17,8 +17,8 @@ tags: [finance, monthly-financial-reports, 2025-2026]
 date: 2025-07-31
 sha256: 3fdb151ce467ba3f6593a9337424efcf9ab1a3500317e6c1e92864e30e730b93
 extractor: pdftotext@26.08.0+finance-table
-last_check: 2026-09-28
-fail_since:
-fail_reason:
+last_check: 2026-10-12
+fail_since: 2026-10-12
+fail_reason: HTTP Error 404: Not Found
 ---
 Source file '01 July 2025 Board Reports' from the [cpsd-monthly-financial-reports-2025-2026] container; extracted with anydoc.

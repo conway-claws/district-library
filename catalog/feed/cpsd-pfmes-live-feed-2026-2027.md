@@ -11,10 +11,10 @@ drive_kind:
 rights: public-web
 text: text/cpsd-pfmes-live-feed-2026-2027.md
 retrieved: 2026-10-08
-verified: 2026-09-28
+verified: 2026-10-12
 status: current
 tags: [live-feed, 2026-2027]
-last_check: 2026-09-28
+last_check: 2026-10-12
 fail_since:
 fail_reason:
 ---

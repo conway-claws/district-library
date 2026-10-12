@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-03-licensed-personnel.md
 retrieved: 2026-08-09
-verified: 2026-09-28
+verified: 2026-10-12
 status: current
 tags: [school-board, policy]
 sha256: 4b54b6974fbb353437d7f01fa04ab7400ab8cb9de0b83d238f74d5d2440d1bb4
-last_check: 2026-09-28
+last_check: 2026-10-12
 fail_since:
 fail_reason:
 extractor: anydoc@0.2.4

@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-salary-schedules-2026-2027.md
 retrieved: 2026-10-01
-verified: 2026-09-28
+verified: 2026-10-12
 status: current
 tags: [finance, salary-schedules, state-required, 2026-2027]
 sha256: 26b9f780e78ba8550490a87329d93e4a8c8bf4343a056f16a8efc32d38d87fb0
-last_check: 2026-09-28
+last_check: 2026-10-12
 fail_since:
 fail_reason:
 extractor: anydoc@0.2.4

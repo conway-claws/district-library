@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-licensed-ppc-minutes-december-2025.md
 retrieved: 2026-09-29
-verified: 2026-09-28
+verified: 2026-10-12
 status: current
 tags: [ppc, personnel-policy-committee, minutes, 2025-2026]
 date: 2025-12-31
-last_check: 2026-09-28
+last_check: 2026-10-12
 fail_since:
 fail_reason:
 extractor: anydoc@0.2.4

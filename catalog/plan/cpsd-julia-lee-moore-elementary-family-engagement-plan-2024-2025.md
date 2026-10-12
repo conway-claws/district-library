@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-julia-lee-moore-elementary-family-engagement-plan-2024-2025.md
 retrieved: 2026-10-01
-verified: 2026-09-28
+verified: 2026-10-12
 status: current
 tags: [school-board, family-engagement-plan, 2024-2025]
 sha256: 6919de2c658ae66058d58096f57eaede877ee574496bb429ea008b9c84ee7534
-last_check: 2026-09-28
+last_check: 2026-10-12
 fail_since:
 fail_reason:
 extractor: anydoc@0.2.4

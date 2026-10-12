@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-ellen-smith-elementary-family-engagement-plan-2024-2025.md
 retrieved: 2026-08-09
-verified: 2026-09-28
+verified: 2026-10-12
 status: current
 tags: [school-board, family-engagement-plan, 2024-2025]
 sha256: 727722ce5af1533249dbd947f277f44f5542c753adb5213237d62b3958b68951
-last_check: 2026-09-28
+last_check: 2026-10-12
 fail_since:
 fail_reason:
 extractor: anydoc@0.2.4

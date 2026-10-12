@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-32-classified-personnel-assignments.md
 retrieved: 2026-10-01
-verified: 2026-09-28
+verified: 2026-10-12
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2007-06-12
 sha256: 6c3783245ae4089fd6b48879612222f87806acd220dc1b4cfae9abef1fac7a4c
-last_check: 2026-09-28
+last_check: 2026-10-12
 fail_since:
 fail_reason:
 extractor: tesseract@5.5.3+pdftoppm

@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-woodrow-cummins-elementary-family-engagement-plan-2024-2025.md
 retrieved: 2026-10-01
-verified: 2026-09-28
+verified: 2026-10-12
 status: current
 tags: [school-board, family-engagement-plan, 2024-2025]
 sha256: 74178def4d4fd723e2e114475e99990625961743348cc75c47945c984f7b9895
-last_check: 2026-09-28
+last_check: 2026-10-12
 fail_since:
 fail_reason:
 extractor: anydoc@0.2.4
