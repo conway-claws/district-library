@@ -915,3 +915,111 @@ Our last sponsor shout outs for Fall Festival 2026 are to our amazing Friends an
 
 #JuliaLeeMoore #WeAreJLM #FallFestival #FriendsAndFamily
 
+### 2026-10-09 · Julia Lee Moore Elementary (id 13387316)
+
+Fall Festival is TONIGHT! 🍂🎟️ A quick Flashback Friday to last year’s memories, and now it’s time to make even bigger ones with us tonight! 
+
+#JuliaLeeMoore #WeAreJLM #Fall Festival #FlashbackFriday
+
+### 2026-10-09 · Julia Lee Moore Elementary (id 13426912)
+
+Huge thank you to the UCA Track & Field team and the Conway High School Lady Cat Volleyball team for coming out and helping open car doors at drop-off this morning!#JuliaLeeMoore #WeAreJLM #ThankYou #Community
+
+### 2026-10-09 · Julia Lee Moore Elementary (id 13431898)
+
+🎃🍂 Fall Festival is THIS EVENING! 🍂🎃
+
+A quick reminder for our 1st–4th grade families: Dismissal traffic will look a little different this afternoon!
+
+📹 Please take a moment to watch the video for an explanation from Mr. Hughes about today’s dismissal procedures. 
+Grades 1-4 Fall Festival Afternoon Dismissal Video
+
+🚗 Important Reminder: There will be no parent parking available for walk-up student pickup.
+
+Thank you for your patience, flexibility, and support as we work to keep dismissal safe and running smoothly. We look forward to a fun-filled Fall Festival with our school community! 🍁🎉
+
+### 2026-10-09 · Julia Lee Moore Elementary (id 13405736)
+
+🍂 FALL FESTIVAL IS TONIGHT! 🎟️
+Join us tonight from 4:00 PM until dark for our Fall Festival! Be sure to check your child's backpack—every student is bringing home 5 FREE tickets to use tonight! We can't wait to see you there! 🍁✨
+
+### 2026-10-12 · Julia Lee Moore Elementary (id 13324726)
+
+Math Monday! Our 1st graders are busy finding all the ways to make numbers up to 10! 🧠💡
+#JuliaLeeMoore #WeAreJLM #FirstGrade #MathMonday
+
+### 2026-10-12 · Conway Public Schools (id 13377019)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Julia Lee Moore Elementary (id 13451503)
+
+Congratulations to our Teacher of the Month Mrs. Riley Walker and Employee of the Month Ms. Jennifer Hurst! Thank you both for your incredible dedication to our school. 🍎👏
+
+A special thank you to Sonic for sponsoring these awards and supporting our team! 💙
+
+#JuliaLeeMoore #WeAreJLM #TeacherOfTheMonth #EmployeeOfTheMonth
+
+### 2026-10-13 · Julia Lee Moore Elementary (id 13405472)
+
+Today our students practiced listening closely, keeping the rhythm, and following multi-step directions—all through song and movement! 🎶💡
+
+#JuliaLeeMoore #WeAreJLM #LearningThroughMusic #MovementAndLearning
+
+### 2026-10-13 · Conway Public Schools (id 13377225)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Julia Lee Moore Elementary (id 13463193)
+
+JLM Choir practice is CANCELED for TODAY, October 13th. Please make arrangements for regular student dismissal. Thank you!
+
+### 2026-10-13 · Conway Public Schools (id 12662874)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Julia Lee Moore Elementary (id 13411679)
+
+From cozying up with autumn stories to exploring sensory bins and running our pumpkin market, our kindergarteners are loving all things fall! 🎃📚✨
+
+#JuliaLeeMoore #WeAreJLM #Kindergarten
+
+### 2026-10-14 · Conway Public Schools (id 13377275)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Jalon Hughes (id 13475543)
+
+JLM Walk/Run Club:
+Due to weather conditions we will be canceling Walk/Run this afternoon. Please prepare to pick up your child like normal dismissal. Thank you!
+
+### 2026-10-15 · Julia Lee Moore Elementary (id 13411895)
+
+Throwing it back to Kona Ice day!  Nothing beats a sweet, icy treat with friends! 🍧 
+
+#JuliaLeeMoore #WeAreJLM #FirstGrade #KonaIce
+
+### 2026-10-15 · Conway Public Schools (id 13377376)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

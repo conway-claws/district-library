@@ -1492,3 +1492,168 @@ We can’t wait to see our Little Cats rolling into school and enjoying some sun
 
 #WeAreCLE
 
+### 2026-10-09 · Carolyn Lewis Elementary (id 13368943)
+
+📚❤️ We loved having members of the Spanish Honor Society from Conway High School visit CLE to read to our students as part of Hispanic Heritage Month! #WeAreCLE
+
+### 2026-10-09 · Conway Public Schools (id 13428926)
+
+CLE Families,
+
+Today, a student brought a toy gun to school and told others it was real. Staff responded promptly after a student reported the incident, and the item was confirmed to be a toy.
+
+We appreciate the student who spoke up and the quick response of the teacher and administrators in addressing the situation and helping ensure student safety.
+
+Please remind your child never to bring toy weapons to school and to report safety concerns to a trusted adult.
+
+Thank you for your partnership.
+
+### 2026-10-09 · Carolyn Lewis Elementary (id 13383375)
+
+❤️ Red Ribbon Week is coming to CLE! ❤️
+
+Join us October 26–30 as we celebrate “Be a Superhero, Be Drug Free!” 🦸‍♀️🦸‍♂️
+
+Our Little Cats can participate each day with fun spirit days:
+🔴 Monday: Wear Red
+🧢 Tuesday: Hat Day
+🐾 Wednesday: Team CLE Day
+🦸 Thursday: Superhero T-Shirt or Favorite College Sports Team
+😴 Friday: Pajama Day
+
+Please note: No costumes for Superhero Day. Thank you!
+
+Together, we can be DRUG FREE! ❤️💪
+
+#RedRibbonWeek #WeAreCLE
+
+### 2026-10-09 · Carolyn Lewis Elementary (id 13384529)
+
+❤️ Red Ribbon Week is coming to CLE! ❤️
+
+We will celebrate October 26–30, 2026, with fun activities centered around making healthy choices and staying drug free! 🦸‍♀️🦸‍♂️
+
+Let’s show our Little Cat spirit and work together to be drug free! ❤️🐾
+
+ #WeAreCLE
+
+### 2026-10-09 · Carolyn Lewis Elementary (id 13427737)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-10-12 · Conway Public Schools (id 13377017)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Joshua Smith (id 13441367)
+
+Khloe was recognized for being caring and trustworthy! Ms. Brooks stated that she is a "model student" and a great example of a CATS kid at CLE! Great job Khloe! 
+
+#WeAreCLE
+
+### 2026-10-12 · Joshua Smith (id 13441411)
+
+We were excited to help Wampus Cat Volleyball collect change for their Pink Out Drive! 
+
+🚲💙 Bike to School Day at CLE! 💙🚲
+
+We had a great time celebrating National Bike to School Day on Friday!
+
+A BIG thank you to Mrs. Spicer, Mrs. Stanfield, our wonderful parents, Will Jenkins from CAB, and Officer Worley for helping make this event safe and successful for our students!
+
+We appreciate everyone who helped make this a fun morning for our Little Cats! 🐾
+
+#WeAreCLE
+
+### 2026-10-12 · Carolyn Lewis Elementary (id 13449975)
+
+🐾💙 ONLY 3 DAYS LEFT! 💙🐾
+CLE families, there’s still time to register for our Little Cat-A-Thon Color Run Fundraiser! 🎉 Help us reach our $50,000 schoolwide goal and earn some amazing prizes along the way!
+📅 Fundraiser ends October 15!
+🔗 Register online and start collecting donations:
+https://megadoughshop.com/pumpkin-bash-1827.html
+Every donation makes a difference for our Little Cats! Let’s finish strong and show what Team CLE can do! 🐾💙
+#WeAreCLE
+
+### 2026-10-12 · Carolyn Lewis Elementary (id 13451882)
+
+📣 CLE Sweatshirt Order Extended! 💙🐾
+Good news, Little Cats! Our CLE school sweatshirt order deadline has been extended! 🎉 Watch for the order form coming home on orange paper.
+🗓️ All orders are due next Monday, October 19th!
+Be sure to check your child’s backpack so you don’t miss out! 💙
+#WeAreCLE
+
+### 2026-10-13 · Conway Public Schools (id 13377223)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Carolyn Lewis Elementary (id 13457327)
+
+📸 CLE Yearbook Picture Reminder! 💙
+
+Yearbook pictures are coming up this week!
+
+🐾 Thursday, October 15: Kindergarten and 4th Grade
+
+🐾 Friday, October 16: 1st, 2nd, and 3rd Grade
+
+We can’t wait to see our Little Cats smile for the camera! 📷
+
+#WeAreCLE
+
+### 2026-10-13 · Conway Public Schools (id 12662872)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377273)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Carolyn Lewis Elementary (id 13430568)
+
+🍎🍏 A BIG thank-you to our amazing CLE PTO for treating our teachers and staff to a delicious caramel apple bar! ❤️ We appreciate you thinking of us and always finding sweet ways to show our CLE family some love! Thank you for all you do to make our school special! 💙
+
+#WeAreCLE
+
+### 2026-10-14 · Joshua Smith (id 13468696)
+
+Tuesday we kicked off our first D3 Boys Group with our 4th graders at Carolyn Lewis! 
+
+Coach German joined Mr. Smith to introduce the group and talk with the boys about what it means to be a good friend. We also had some fun playing “Would You Rather?” and had the boys running from one side of the safe room to the other to pick their answers. One of the favorites was whether they would rather have spaghetti for hair or sweat syrup! 😂
+
+D3 will meet once a month to focus on friendship, conflict resolution, integrity, and making good choices. We’re excited to have this opportunity to connect with our boys and help them grow as leaders!
+
+A big thank you to Coach German for partnering with us to make this happen! 💙
+
+### 2026-10-14 · Carolyn Lewis Elementary (id 13457391)
+
+📸 Yearbook Picture Reminder! 💙💛
+
+Tomorrow, Thursday, October 15, is yearbook picture day for our Kindergarten and 4th grade students! 📷 Be ready to smile, Little Cats! 🐾
+
+#WeAreCLE
+
+### 2026-10-15 · Conway Public Schools (id 13377374)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

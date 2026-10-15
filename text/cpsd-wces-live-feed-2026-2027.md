@@ -1282,3 +1282,92 @@ Dear WCE Families,Get ready to SLIME YOUR FRIENDS! 🧪💦 Our Woodrow Cummins 
 Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
 Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
 
+### 2026-10-08 · Woodrow Cummins Elementary (id 13405886)
+
+Dear WCE Families,We are excited to announce that we are growing a Storybook Pumpkin Patch in the WCE Library, and we need your help! 🎃📚We invite your child to decorate a pumpkin to look like one of their favorite book characters and bring it to school to become part of our Storybook Pumpkin Patch!🎃 Here’s How to Participate:Choose a favorite book and design your pumpkin based on a favorite character from that book.Purchase a small to medium-sized FAKE pumpkin.NO REAL PUMPKINS—FAKE PUMPKINS ONLY!Gather your decorating supplies. Acrylic paint or permanent markers work best. Feel free to add fun materials such as yarn, buttons, wiggle eyes, and more!Get creative and decorate your pumpkin! Family pumpkins are welcome, too!Bring your pumpkin and the corresponding book to school beginning Monday, October 12. If you don't have the book, we may have a copy available in the library. Please let Mrs. Havlik know if you need help finding the book.Don't forget to put your child's name on the pumpkin or on an index card next to it so we know who it belongs to.Pumpkins will be displayed in our library and should be taken home at the end of the school day on Friday, October 30. If your child needs help getting their pumpkin home, please make the necessary arrangements.Participation is completely voluntary, and this is NOT a contest. We simply want to fill our library with creativity, imagination, and a little bookish fun! 📚🎃Family pumpkins are welcome!We can't wait to see all of the creative Storybook Pumpkins our Little Cats bring to life!Have FUN and be creative!!! 🎃📚🐾Mrs. HavlikWCE Library
+
+### 2026-10-08 · Woodrow Cummins Elementary (id 13416200)
+
+Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell, who is a former WCE student! Get your change ready and help us  support Emmersyn! Just like every year, we hope to raise the most money of all elementary schools to show our generosity and support!Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
+
+### 2026-10-09 · Woodrow Cummins Elementary (id 13416293)
+
+Don't forget! Bring change today to support Emmersyn Caldwell, a former WCE student who is now in Jr. High and is fighting Leukemia.  Let's show up and show Emmersyn our WCE love and support!
+
+### 2026-10-09 · Jenna Havlik (id 13428898)
+
+Our students showed up and showed out bringing their change this morning!!!  Way to go WCE!!!🩷
+
+### 2026-10-09 · Woodrow Cummins Elementary (id 13414994)
+
+WCE Families,Okay, Little Cats… the weather is getting colder, and we have the perfect excuse to get cozy! If you haven’t grabbed one of our WCE Team Throws blankets yet, NOW is the time! These blankets are SO soft, super cozy, and the perfect size for snuggling up at football games, movie nights, chilly evenings, or even as a Christmas gift. 🎄And let's be honest… you’re going to want one. For just $25, you can choose from two awesome designs:🐾 Woodrow Cummins Little Cats
+🐾 Conway Wampus CatsEach blanket is a large 50" x 60" super-soft micro-plush throw—aka the kind of blanket everyone in the family is going to fight over. PLUS, every purchase helps support WCE students and school initiatives! So you get a ridiculously cozy blanket AND help our Little Cats. That's a pretty easy yes! 💙🗓️ ORDER BY OCTOBER 22ND!Don't wait until the first really cold night when everyone suddenly needs a blanket. Go ahead and grab yours now!📲 Scan the QR code on the flyer to order or go https://mydesigns.teamthrows.com/f/wce-blanket-fundraiser/$25 • 50" x 60" • Super Soft • WCE Spirit • Cozy Season Approved 💙🐾Thank you for supporting Woodrow Cummins Elementary! We appreciate our WCE families more than you know! 💙
+
+### 2026-10-09 · Woodrow Cummins Elementary (id 13429241)
+
+Check out the Little Cat Chronicle for upcoming events!
+
+### 2026-10-11 · Woodrow Cummins Elementary (id 13439975)
+
+Dear Woodrow Families,Our Little Cat-a-Thon event day is coming up on Tuesday, October 13! Thank you for all your hard work and for helping raise money for our amazing school. We are excited to celebrate with our Little Cats!Please review these important reminders as we get ready for the big day.🐾 Event Day: Tuesday, October 13Our event will take place Tuesday morning and wrap up around lunchtime.👕 What to WearStudents should wear comfortable, activity-appropriate clothing and shoes. If your child earned a WCE white T-shirt, please have them wear it!👚 Change of ClothesStudents participating in the Chalk Battle, Slime Fest, or Snow Party should bring a change of clothes.🎉 Fun for Everyone!All students will have the opportunity to enjoy fun activities, including bounce houses, races, and more, thanks to our wonderful PTO!💙 Final Donation DeadlinesFriday, October 9: All in-person donations (cash or check) must be turned in to the school.Sunday, October 11, at 11:59 p.m.: The online fundraising store closes for any last-minute donations.Thank you for supporting Woodrow Cummins Elementary and making this fundraiser such a success! We appreciate your generosity and all you do for our Little Cats.
+
+### 2026-10-12 · Conway Public Schools (id 13377015)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Woodrow Cummins Elementary (id 13445020)
+
+Pokemon Club is canceled today. We are sorry for any inconvenience this may cause!
+
+### 2026-10-12 · Woodrow Cummins Elementary (id 13447404)
+
+Dear Woodrow Families,Woodrow Cummins Elementary will host our Veterans Day Assembly on Wednesday, November 11, 2026, at 8:30 a.m. as we honor the brave men and women who have served or are currently serving in our nation's military.If your child has a parent, grandparent, great-grandparent, sibling, aunt, uncle, or other family member who has served or is currently serving, we would love to recognize them during our assembly. Family members who attend will have the opportunity to be introduced and honored for their service.We are also creating a special presentation featuring our students' military family members. If you would like your service member included, please email a few photos along with the following information to Brooke Jones at jonesb@conwayschools.info:NameBranch of serviceYears of serviceRelationship to the studentThank you for helping us honor our heroes and teach our Little Cats the importance of gratitude, service, courage, and patriotism. We look forward to celebrating with you!With gratitude,Woodrow Cummins Elementary
+
+### 2026-10-12 · Jenna Havlik (id 13453245)
+
+Tomorrow is the big day!! Please see the graphics below for information about the Little Cat-A-Thon.
+
+### 2026-10-13 · Conway Public Schools (id 13377221)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Woodrow Cummins Elementary (id 13457779)
+
+If you are interested in volunteering at Woodrow Cummins Elementary, please join us for Volunteer Training on Thursday, October 15, at 8:30 a.m. in the WCE cafeteria.This training is a district and state requirement for anyone wishing to volunteer in Conway Public Schools.We appreciate your willingness to give your time and support our Little Cats!
+
+### 2026-10-13 · Conway Public Schools (id 12662870)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377271)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Woodrow Cummins Elementary (id 13471435)
+
+What a fun day in first grade! Mrs. Lute’s class learned about writing using ordinal words and the steps to carving a pumpkin! Hands-on, meaningful learning are the best!
+
+### 2026-10-15 · Conway Public Schools (id 13377372)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

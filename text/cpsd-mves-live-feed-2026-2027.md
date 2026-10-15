@@ -1422,3 +1422,163 @@ We are so proud of our young makers and thankful to everyone who stopped by to e
 Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
 Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
 
+### 2026-10-08 · Audrey Cooper (id 13418757)
+
+🚶‍♂️👟 Walking Together, Growing Together!💙🤍
+
+Our Little Cat Vikings had a wonderful time celebrating National Walk to School Day alongside schools across the country! 🐾
+
+We loved gathering at Tucker Creek Trail and walking together as one big school family! What a great way to promote healthy habits, build community, and enjoy time together!
+
+A special THANK YOU to Coach Hedgecock,  Officer Slayton, our crossing guards, and our amazing families for helping make this event fun, safe, and successful! We couldn't have done it without you!
+
+💙🤍 Together, we make MVE a great place to be!
+
+#BetterTogether #LittleCatVikings #WalkToSchoolDay #WeAreMVE
+
+### 2026-10-09 · Audrey Cooper (id 13427788)
+
+🎮❤️ RED RIBBON WEEK 2026! ❤️🎮
+
+LEVEL UP YOUR LIFE! Healthy Choices Are Your Superpower! 💪⭐
+
+Get ready, Little Cats! 🐾 Marguerite Vann Elementary is celebrating Red Ribbon Week, October 26–30! Join us for a fun-filled week of dress-up days as we encourage our students to make healthy choices, stay drug-free, and be the heroes of their own stories!
+
+🎮 Monday, October 26-  Superhero/Hero Day: Dress as your favorite hero or wear a superhero shirt!
+💙 Tuesday, October 27 – Team Up Day: Wear your favorite team gear, team colors, or MVE gear!
+😎 Wednesday , October 28– Bright Future Day: Wear bright or neon colors and sunglasses!
+💤 Thursday, October 29 – Comfy Being Me Day: Wear school-appropriate pajamas or comfy clothes!
+❤️ Friday, October 30 – Red Out: Wear as much RED as you can!
+
+✨ Every healthy choice helps us LEVEL UP toward a brighter future!
+
+📢 Reminder: School dress code applies all week. No masks or weapon-like props.
+
+Let's make Red Ribbon Week a fun celebration of healthy choices and positive futures! ❤️
+
+#RedRibbonWeek2026 #LevelUpYourLife #HealthyChoices #DrugFreeLooksLikeMe
+
+### 2026-10-10 · Audrey Cooper (id 13439533)
+
+💙🤍 Special Visitors at MVE! 🏐📣
+
+We had some special visitors on campus this past week! A HUGE thank you to the Conway Junior High Volleyball Team  and  UCA Cheerleaders  for helping welcome our Little Cats to school! 🐾
+
+Your smiles, energy, and enthusiasm made our students feel extra special as they started their day! We love seeing our community come together to support our students and spread positivity! 
+
+Thank you for making a difference at MVE! 💙🤍
+
+#WeAreMVE
+
+### 2026-10-11 · Audrey Cooper (id 13439668)
+
+🎃🍂 Pumpkin Patch Adventures & Learning Through Our Senses! 🍁🐾
+
+Pumpkin patch experiences are always the BEST! Our Little Cats had a wonderful time exploring, discovering, and making special memories! 💙🤍
+
+What makes this experience even more meaningful? It connects perfectly to our Arts & Letters curriculum, where students have been exploring the essential question: “How do people use their senses to experience the world?” 👀👂👃✋👅
+
+From seeing the colorful pumpkins and hearing the sounds of fall to feeling the textures of pumpkins and smelling the fresh autumn air, our students had opportunities to make real-world connections to their classroom learning!
+
+We love when learning extends beyond the classroom and comes to life through hands-on experiences! 🎃🍁
+
+#WeAreMVE
+
+### 2026-10-11 · Audrey Cooper (id 13442120)
+
+💙🤍🐾 Get Ready for a GOOD TIME at MVE! 🏃‍♀️🏀🎉
+
+We are excited to welcome our special guests for VIP in PE Week, October 12–16!
+
+Our Little Cats are ready to move, play, laugh, and make special memories with their loved ones during physical education! 💙
+
+Each student may invite ONE Very Important Person to join them for PE! Whether it's a parent, grandparent, or another special person, we can't wait to see everyone having fun together!
+
+Get ready to lace up those tennis shoes and join us for some FUN! 👟🐾
+
+#WeAreMVE
+
+### 2026-10-12 · Conway Public Schools (id 13377022)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Audrey Cooper (id 13439650)
+
+💙🤍 Creativity, Collaboration, and FUN at MVE!🐾✨
+
+So many fun and creative learning experiences are happening at Marguerite Vann Elementary! From our amazing teacher cadets helping our little learners, to hands-on Makerspace creations, to building and exploring with Magna-Tiles, our Little Cats are learning through creativity, collaboration, and play! 🧩🎨
+
+We love seeing our students think outside the box, use their imaginations, and develop problem-solving skills while having FUN!
+
+Great things are happening at MVE, and we love watching our Little Cats learn and grow! 💙🐾
+
+#LevelUp
+
+### 2026-10-12 · Audrey Cooper (id 13447814)
+
+📚✨ Parent-Teacher Conferences are Coming Up! ✨📚
+
+At Marguerite Vann Elementary, we believe that great things happen when families and teachers work together! 💙🐾
+
+📅 Wednesday, October 21
+⏰ 10:00 AM -7:00 PM
+
+We look forward to meeting with our families to celebrate student growth, discuss progress, and set goals for continued success!
+
+📱 Ready to schedule your conference?
+Open your CPSD app, click Rooms, and find the link to sign up for a time with your child's teacher.
+
+💛 Together, we are partnering for student success!
+
+### 2026-10-13 · Conway Public Schools (id 13377228)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 12662877)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377278)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Audrey Cooper (id 13476231)
+
+Fun time are coming to Marguerite Vann!
+
+Get ready for our Monster Mash on Friday, October 30, from 5:30–7:00 PM! 🧡💜
+
+Bring the family for games, a cake walk, and lots of fun! Admission is just $5 per family! Boo grams are also due THIS Friday, October 16. Information was sent home last week. Boo grams are $1.00 each.
+
+Check out the flyers for more details and ways to help make these events a success! 🐾
+
+### 2026-10-14 · Audrey Cooper (id 13476256)
+
+Running Club parents:
+
+If it is raining, we will still have running club! Club members will meet in the PE room, and we will pick up in the front by the office at 3:45.
+
+### 2026-10-15 · Conway Public Schools (id 13377379)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

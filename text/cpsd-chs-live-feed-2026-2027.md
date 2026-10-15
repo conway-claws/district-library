@@ -2584,3 +2584,274 @@ We hope to see you there! 💙🤍
 
 Tomorrow morning (10/9) be on the lookout for our Lady Cat Volleyball girls in the morning drop off lines at our Elementary schools!! Get your change ready and help support Emmersyn!
 
+### 2026-10-08 · Conway Athletics (id 13418269)
+
+Conway senior Raven Fuller has climbed to #10 in the Arkansas Class of 2027 rankings, moving up 3 spots and posting a new season-best 16:07 5K! 🔥
+
+### 2026-10-08 · Conway Athletics (id 13418861)
+
+CHS would like to thank Kona Ice (&The Griffins) for treating us after practice last week!  We are excited for the state tournament next Monday at Burns Park!  Go Cats!
+
+### 2026-10-08 · Conway High School (id 13421340)
+
+🎓 Senior Ad Deadline is TOMORROW!
+
+Don’t miss your chance to celebrate your senior with a personalized ad in the 2026–27 yearbook! Senior ads can be designed, built, and paid for online at Jostens.com.
+
+⏰ The deadline to order is tomorrow, October 9!
+
+Celebrate your senior with a special message they’ll be able to look back on for years to come! 💙
+
+#WampusCats #SeniorAds #Yearbook
+
+### 2026-10-08 · Conway Athletics (id 13374597)
+
+Click the link to purchase tickets to this Friday's  football game at Cabot https://www.vancoevents.com/us/events/67124/sessions/188312/sections/113484/tickets
+
+### 2026-10-09 · Conway High School (id 13366736)
+
+🎓 Senior Parents & Students: FAFSA Parent Night
+
+Conway High School will host a FAFSA Parent Night in conjunction with Parent/Teacher Conferences on Wednesday, October 21, from 4–6 p.m. in the CHS Lecture Hall.
+
+Financial aid representatives from local colleges will be available to assist seniors and their parents with completing the FAFSA and the SAMS application for the Arkansas Academic Challenge Scholarship.
+
+To make the most of the evening, families are encouraged to:
+
+📌 Create a FAFSA ID before October 21. Visit studentaid.gov, click “Create Account,” and then “Get Started.”
+
+📌 Bring parents' 2025 tax returns to help complete the FAFSA.
+
+📌 Know your counselor. If you have questions before the event, please reach out to your assigned counselor based on the student's last name:
+
+A–C: Ms. Gray — graym@conwayschools.info
+D–He: Ms. Armstrong — armstrongj@conwayschools.info
+Hi–Me: Ms. Jernigan — jerniganc@conwayschools.info
+Mi–Sh: Ms. Martin — martinma@conwayschools.info
+Si–Z: Mr. Martin — marting@conwayschools.info
+
+We hope to see our senior families there and help make the financial aid process a little easier! 💙
+
+### 2026-10-09 · Conway Athletics (id 13426150)
+
+Your Cross Country runners of the week are Drew Jordan and Harper Mahan. Congratulations to both runners!
+
+### 2026-10-09 · Canaan Groesbeck (id 13389219)
+
+Lady Cat Invitational Tournament tomorrow morning! We have 24 of the top teams in Arkansas coming to Conway this weekend for some good volleyball. Come out and support your Lady Cats!! 
+
+Live Scoring Link:
+https://docs.google.com/spreadsheets/d/1VpcavSipO6ciMIHpjCG9YN3UQpyiUwPpvPXWmachRPI/edit?usp=sharing
+
+### 2026-10-09 · Conway High School (id 13432018)
+
+Dear Conway High School Families,Make-up picture day will be held on Tuesday, October 13, from 9:00 a.m. to 12:00 p.m.Order forms are available in the front office. Families may also order online at www.strainschoolpics.com. Please note that a $1 fee applies to online orders, and online ordering will close 48 hours before picture day.Thank you!
+
+### 2026-10-09 · Conway High School (id 13432032)
+
+Make-up pictures will be taken Tuesday, October 13, from 9 a.m. to 12 p.m.
+
+📝 Order forms are available in the front office.
+💻 Order online at www.strainschoolpics.com. A $1 fee applies to online orders.
+
+⏰ Online ordering closes 48 hours before picture day.
+
+### 2026-10-10 · Canaan Groesbeck (id 13389281)
+
+Big Tournament today at Buzz Bolding! Great way to watch some good volleyball and support your Lady Cats! 
+
+Live Scoring Link:
+https://docs.google.com/spreadsheets/d/1VpcavSipO6ciMIHpjCG9YN3UQpyiUwPpvPXWmachRPI/edit?usp=sharing
+
+### 2026-10-10 · Conway Athletics (id 13439473)
+
+🥇🤼 HISTORY MADE! 🤼🥇
+
+Congratulations to Dexter Francis, Conway's first KC Fall Brawl medalist! 🏅🔥 Way to represent and make your mark at the KC Fall Brawl Wrestling Tournament!
+
+### 2026-10-11 · Conway Athletics (id 13441427)
+
+Congratulations to our Conway High School girls, Zulema Mendoza and Makenna Williams, for BOTH bringing home 3rd place medals at Fall Brawl! 🏆🔥
+
+### 2026-10-12 · Conway Public Schools (id 13377028)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Canaan Groesbeck (id 13445744)
+
+Pink Night game is tomorrow night!!! This is another great way to help support our Pink Night Recipient, Emmersyn Caldwell. 
+JV match starts at 5pm! 
+
+Ticket Link: https://gofan.co/event/6687092?schoolId=AR4663
+Live Stream Link: https://youtube.com/live/4Ns-Z7SUktY?feature=shareGo Fan Donation Link: https://gofan.co/event/6934068?schoolId=AR4663
+
+### 2026-10-12 · Conway High School (id 13427395)
+
+👻 Don't get ghosted by memories! Capture the moments, friendships, and memories of the school year in the Conway High School yearbook. 📸
+
+🎃 Order yours before these memories disappear!
+
+🖥️ Order online: http://jostensyearbooks.com?ref=A00319100
+
+#WampusCats #CHSYearbook
+
+### 2026-10-12 · Beth Fluesmeier (id 13446730)
+
+This week's Athletic Events
+
+### 2026-10-12 · Conway High School (id 13447479)
+
+👑 Meet your 2026 Conway High School Homecoming Court! 💙🤍
+
+Join us Friday, October 16, as our Wampus Cats take on Central High School! The Coronation of the Queen will take place at 7 p.m. at John McConnell Stadium. Come out to cheer on our Wampus Cats and celebrate this year's Homecoming Court!
+
+✨ Seniors (left to right): Kimoni Brown, Jenna Dooley, Lalah Mitchell, Jordyn Terrell, Khushi Lalwani, Jordyn Rester, and Maryah McDaniel
+
+✨ Juniors (left to right): Katherine Bradshaw, Ariana Clinton, Kailey McFee, Madison Smith, Talia Davis, and Evie Fulmer
+
+✨ Sophomores (left to right): Allison Rippy, Maybelline Vega, Allison Rippy, Kyleigh Boyd, Mylee Cook, and Nicole Jones
+
+Let's make it a night to remember, Wampus Cats! 🐾
+
+#WampusCats #CHSHomecoming2026 #ANightInRio
+
+### 2026-10-12 · Conway Athletics (id 13447758)
+
+Attending the JV Football game tonight @ Cabot? Please use the link below to purchase tickets. 7:00 Kickoff
+
+https://www.vancoevents.com/us/DVHS
+
+### 2026-10-12 · Canaan Groesbeck (id 13445600)
+
+Congratulations, Addy!! We are so proud of you. Way to play!
+
+### 2026-10-12 · Conway High School (id 13368146)
+
+💗 Conway Family, it’s almost time for our annual Lady Cats Change Drive!
+
+On Monday, October 13 at 3:30 p.m., the Conway High School Lady Cat Volleyball team will be collecting change at dismissal in support of this year’s Pink Night recipient, Emmersyn Caldwell.
+
+Get your change ready and help us show Emmersyn just how much the Conway community cares! Every little bit makes a difference. 💕🏐
+
+#PinkNight #LadyCats #ConwayFamily #WampusCats
+
+### 2026-10-13 · Conway Public Schools (id 13377234)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Lashanta Johnson (id 13454240)
+
+Our Boys & Girls competed and represented well in our Tennis State Finals today! Freshman Emery Howell & Junior Olivia Lee made it to the 2nd round and lost in a 3 set match. We are so proud of how both teams competed and supported each other this year! Thank you to our parents, administrators, and the community support!
+
+### 2026-10-13 · Conway High School (id 13457979)
+
+🎓 It’s not too late to celebrate your senior!
+
+Missed the deadline to purchase a senior ad in the yearbook? You have one more chance! Jostens is reopening the ordering link today, but don’t wait too long—it closes October 16!
+
+Make sure your senior’s special memories and milestones have a place in the yearbook! ❤️🐾
+
+### 2026-10-13 · Conway High School (id 13462521)
+
+🏆 Hard Work Deserves a Reward!
+
+Ms. Brown and Ms. Faulks’ 6th-period ELA class earned a special reward day after scoring the highest on their last two assessments out of five classes! 🎉
+
+To celebrate their hard work, the teachers surprised students with a game day in the library! From Battleship and Connect Four to UNO and more, students enjoyed a period of friendly competition—and even the teachers joined in on the fun! 🎲
+
+We love seeing hard work rewarded with a little fun! Way to go, Wampus Cats! 💙🤍
+
+#WampusCatPride #ConwayHighSchool #LearningIsFun
+
+### 2026-10-13 · Conway Public Schools (id 12662883)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377285)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Marcelle Goins (id 13473444)
+
+72 hour sale!!! Visit our store for 30% off tees until 10/16! 
+
+https://sideline.bsnsports.com/schools/arkansas/conway/conway-high-school-west-campus/shop/t-shirts?utm_id=97757_v0_s00_e0_tv2_a1demo0jmdm7mg&fbclid=IwVERDUAU8eu9leHRuA2FlbQIxMQBwZG9mAWZkaWQWUQTCimdHtuAm1kg77fwHg441Bz6ETXNydGMGYXBwX2lkCjY2Mjg1NjgzNzkAAR4z3tTSQnENGqoTxTum0D7AStv_Arfmj59OQWLnnTSlshYouxZI3VgVV0ZnVg_aem_4YtqPYD90u5Q_v7pNFy5HA
+
+### 2026-10-14 · Conway High School (id 13478775)
+
+🌴🎟️ Homecoming 2026: A NIGHT IN RIO — TICKET SALES END TOMORROW! 🎟️🌴
+
+This is your last chance to get your ticket for the Homecoming Dance!
+
+💵 Paper Tickets: $25
+🕛 Paper ticket sales end at the end of 2nd lunch TOMORROW.
+💰 Cash or check only.
+
+💻 Digital Tickets (on GoFan): $27.25
+https://gofan.co/event/6933857?schoolId=AR4663_2
+🌙 Digital ticket sales end at MIDNIGHT TOMORROW.
+
+🚨 NO TICKETS WILL BE SOLD THE DAY OF THE DANCE. NO EXCEPTIONS.
+
+If you’re planning to join us for the Homecoming dance tomorrow night, make sure you get your ticket TODAY! 🌴🎶💃🏽
+
+### 2026-10-15 · Conway Public Schools (id 13377385)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-15 · Canaan Groesbeck (id 13479000)
+
+Lady Cat Volleyball is heading to Jonesboro for another conference match up!! Good luck, ladies!! 
+
+Ticket Link: https://gofan.co/event/6923184?schoolId=AR11920
+
+### 2026-10-15 · Conway Athletics (id 13461364)
+
+Information for tonight's Jr. High Football games at NLR. 
+
+Ticket link: https://gofan.co/event/6710335?schoolId=AR4720
+
+We do not accept cash at the gate or at the concession stand.  NLR Schools has a clear bag policy, no outside food or drink is allowed in the stadium and we do not accept LRSD season passes. We will open the Main Street (visitor's side) gate at 4:45pm.
+
+### 2026-10-15 · Canaan Groesbeck (id 13484182)
+
+If you didn't get  a chance to buy a Pink Night shirt, there is still a way you can help support Emmersyn! 
+Click the link below to donate. All proceeds will be going to Emmersyn and her family to help in her fight!! 
+
+The link will close on October 30th!
+Donation Link:  https://gofan.co/event/6934068?schoolId=AR4663
+
+### 2026-10-15 · Conway High School (id 13485717)
+
+2026 Bentonville HS Tournament Results
+
+Congratulations to CHS Speech & Debate Team for their success at the Bentonville High School Speech & Debate Tournament October 9-10, 2026. 
+
+As a team, they brought home 1st place in Squad Efficiency.
+
+Individual awards: 
+Amelia Garrett (senior) placed 2nd in Dramatic Interpretation and 2nd in Storytelling.
+Luci Gutierrez (senior) placed 4th in Song Lyric Interpretation and 5th in Program of Oral Interpretation.
+Dylan Simmons (senior) placed 3rd in Varsity IPDA debate and 3rd place varsity IPDA speaker.
+Mikah Roberts (sophomore) placed 3rd in Novice Lincoln-Douglas Debate and 2nd place novice LD speaker.
+

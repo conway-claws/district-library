@@ -1331,3 +1331,168 @@ Students that are at the high school first period will got to study hall in the 
 
 Thank you for a smooth and successful pep rally!!
 
+### 2026-10-08 · Conway Public Schools (id 13418139)
+
+IMPORTANT MESSAGE: Due to a medical emergency, First Responders were called to the CJHS. Students and Staff are safe. Normal activities have resumed.
+
+### 2026-10-08 · Conway Junior High (id 13369156)
+
+We're celebrating Hispanic Heritage Month with a fun-filled Spirit Week October 12–16! Students and staff are encouraged to join in each day:
+
+Monday – Bandera Day: Represent your country by wearing its flag colors or jersey!
+
+Tuesday – Jersey Day: Wear your favorite World Cup jersey!
+
+Wednesday – Como La Flor: Inspired by Frida Kahlo, wear flowers!
+
+Thursday – Brillamos Juntos: Wear bright colors to highlight Hispanic Heritage Month!
+
+Friday – Vaquero Day: Wear your favorite cowboy/cowgirl outfit!
+
+We can't wait to see our Wampus Cats celebrating and showing their school spirit throughout the week! ❤️💙🐾
+
+¡Vamos Wampus Cats!
+
+### 2026-10-09 · Conway Junior High (id 13427977)
+
+💗 SPARE CHANGE DRIVE @ CJHS 💗
+
+Let’s come together to support CJHS student Emmersyn Caldwell! Every little bit makes a difference, and all spare change donations will go directly toward benefiting Emmersyn.
+
+📅 Tuesday, October 13th & Wednesday, October 14th
+
+💰 Donations will be accepted during the morning car lines and in the courtyard.
+
+Every penny counts! Thank you for helping us show our Wampus Cat family support and love. 💙
+
+### 2026-10-09 · Marcus Kordsmeier (id 13429986)
+
+WAMPUS CAT BOYS — SEASON RECAP
+
+The 2026 season has come to an end and we couldn’t be more proud of this group.
+
+7th Place — 6A State Tournament
+
+3rd Place — 6A Central Conference
+
+Laken put together an incredible couple of days at State, finishing tied for 3rd and earning All-State honors. He battled through a two-hole playoff for a spot in the Arkansas overall tournament, and although the result wasn’t what we hoped for, his performance was something to be proud of.
+
+More importantly, we’re proud of this entire team. From the first tournament to the final putt, these guys showed grit, character, determination, and a willingness to compete. They represented Conway High School and Wampus Cat Golf the right way all season long.
+
+Thank you to everyone who supported these guys throughout the season. 
+
+Proud of this team. Proud to be Wampus Cats!
+
+### 2026-10-12 · Conway Junior High (id 13165674)
+
+Dear Parents and Students,
+We hope you have a great week! Here are the important updates and announcements for the upcoming week.
+
+Link to Announcements: 
+
+https://docs.google.com/document/d/1Od7p7r2ZqXVPTas6D62umJI99XyOCKWtUDlOlNcyL1Q/edit?usp=sharing
+
+### 2026-10-12 · Conway Junior High (id 13428044)
+
+💗 SPARE CHANGE DRIVE @ CJHS 💗
+
+Let’s come together to support CJHS student Emmersyn Caldwell! Every little bit makes a difference, and all spare change donations will go directly toward benefiting Emmersyn.
+
+📅 Tuesday, October 13th & Wednesday, October 14th
+
+💰 Donations will be accepted during the morning car lines and in the courtyard.
+
+Every penny counts! Thank you for helping us show our Wampus Cat family support and love. 💙
+
+### 2026-10-12 · Conway Public Schools (id 13377027)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Conway Junior High (id 13448871)
+
+🌮 Let’s Treat Our CJHS Teachers During Parent-Teacher Conferences! 💙🐾
+
+P.A.W.S. will be providing a delicious taco bar lunch for our amazing teachers during parent-teacher conferences, and we need your help! We are collecting monetary donations, drinks, and desserts to make this meal extra special.
+
+If you would like to contribute, please check out our SignUp Genius below for ways to help!
+
+🔗 SignUp Genius: https://www.signupgenius.com/go/20F0D45A4AA2DABFFC52-66564733-parent?useFullSite=true#/
+
+💸 Ways to Donate:
+
+Venmo: @ConwayJrHighPAWS
+
+Cash App: $ConwayJrHighPAWS
+
+Thank you for helping P.A.W.S. take care of our CJHS teachers and show them some love! 💙
+
+### 2026-10-12 · Conway Junior High (id 13219338)
+
+Join us on Thursday, October 15th as we wear pink and show our support for three special members of our Wampus Cat family: Emmy Caldwell, Mrs. Holt, and Mrs. Chapman. 🎀
+
+Let's come together as a school community to show our love, support, and encouragement. 💕
+
+Wear pink and help us PINK OUT CJHS!
+
+### 2026-10-12 · Conway Junior High (id 13368631)
+
+🥞 REMINDER: Our Annual Pancake Breakfast is Coming Up! 🥞
+
+Mark your calendars for Saturday, October 25, from 8:00 a.m. to 1:00 p.m. at Stoby’s Restaurant!
+
+For just $8, enjoy all-you-can-eat pancakes, available for dine-in or drive-thru!
+
+🎟️ Tickets are available in advance at Conway Junior High. Parents can send money with their child, and students can stop by Ms. Taylor’s office to purchase a ticket. Exact change is very much appreciated!
+
+Most importantly, all proceeds benefit the students and staff at Conway Junior High School. Come enjoy some pancakes and support our Wampus Cats! 💙🐾
+
+We hope to see you there! 🥞💙
+
+### 2026-10-13 · Conway Public Schools (id 13377233)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 12662882)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377284)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Marquis Rogers (id 13473970)
+
+Faculty Meeting in the library at 3:40 today. Please notify your evaluator if you cannot be in attendance.
+
+### 2026-10-15 · Conway Public Schools (id 13377384)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-15 · Cheyenne Kuhn (id 13483273)
+
+Congratulations to the CJHS volleyball players of the week! We’re so proud of their hard work and leadership! 💙🏐🏆 Good job girls!
+
+### 2026-10-15 · Jennifer Dozler (id 13487567)
+
+Please remember that El Fuego, in coordination with Ms Morales, has a fajita lunch provided in room 118 to help celebrate Hispanic Heritage Month!! Enjoy!
+

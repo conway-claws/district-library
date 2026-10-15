@@ -985,3 +985,188 @@ Bring the whole family and come hang out with us! We can’t wait to see our Cat
 
 #WeAreCarlStuart #WeAreConway #ChampionsforKids
 
+### 2026-10-08 · Carl Stuart Middle School (id 13409265)
+
+🎶🎤 We are SO proud of our Carl Stuart singers! 🎤🎶
+
+Carl Stuart Middle School is celebrating the outstanding accomplishments of its young singers following the recent Arkansas Junior High All-Region Choir auditions. 🎼✨
+
+Students in grades seven through nine from across the state competed for a place in one of three Region 4 honor choirs: Bella Voce, Cantabile, and Vox Anima. Among the hundreds of students who auditioned were singers from Carl Stuart Middle School, under the direction of Ellen Wiles. 🎶
+
+Our 2026 Junior High All-Region Choir students are:
+
+🎵 Mariana L.
+🎵 Eliana W.
+🎵 Mellie Z.
+🎵 Aaliana B.
+🎵 Sofia M.
+🎵 Oliver M.
+🎵 Felix S.
+🎵 Liam F.
+🎵 Jaxon P.
+🎵 Turner D.
+
+These students have worked exceptionally hard over the past several months to prepare for audition day. Their preparation included district-wide workshops, rehearsals with the JH TB Choir, small-group and individual practice sessions during class and WIN time, all leading up to a fabulous preview concert on September 28 at the beautiful Windgate Center for Fine & Performing Arts. 🎶👏
+
+In addition, these students learned challenging vocal music in German, Latin, Irish Gaelic, and Old Norse, requiring them to develop not only their vocal skills but also their musicianship, pronunciation, and understanding of unfamiliar languages and texts. 🌎🎼
+
+After months of preparation, all of that hard work culminated in a two-minute audition — just two minutes for students to demonstrate the musical growth, preparation, and confidence they developed over many weeks. 🎤✨
+
+For Wiles, the achievement represents something even greater than simply being selected for an honor choir.
+
+“Putting yourself in a room and auditioning takes courage,” Wiles said. “Every student [representing CSMS] worked incredibly hard, but they also had to be brave enough to put that work on display in a short time frame. That takes discipline, preparation and dedication. I am incredibly proud of every student who prepared and auditioned.”
+
+🎶👏 Congratulations to all of our talented singers! We are incredibly proud of you! 💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-09 · Carl Stuart Middle School (id 13355771)
+
+🎉🇲🇽 Mrs. Arizmendi’s class is celebrating Hispanic Heritage Month with a fun game of La Lotería and a chance to try some Mexican candy! 🍬🎊 
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-09 · Carl Stuart Middle School (id 13400254)
+
+📚✨ Our Fall Book Fair is NEXT WEEK: October 12-21! ✨📚
+
+Students will have an opportunity to preview the Book Fair with their ELA/Reading class on October 12 and October 13.  Students can begin purchasing on Wednesday, October 14.  Families are invited to stop by on October 15 during our Fall Festival (5:30pm-7:00pm), and on October 21 during our Parent Teacher Conferences. 
+
+🔗 Visit our Book Fair Homepage for all the details! 👉 https://bookfairs.scholastic.com/bf/carlstuartmiddleschool
+
+On our website, you can:
+
+📖 Preview the Books – See what titles will be available at the fair!
+
+💳 Set Up an E-Wallet – Add money online for your student so they don’t have to bring cash to school.
+
+❤️ Share the Fair – Contribute to our school’s donation fund to help ensure every student has the opportunity to purchase a book.
+
+We can’t wait to celebrate reading with our students and families! 📚💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-11 · Carl Stuart Middle School (id 13441434)
+
+CSMS Newsletter October 12-21: https://conwaypublicschools.edurooms.com/newsletters/carl-stuart-middle-school/newsletters/2026-2027-newsletter-october-12-21
+
+### 2026-10-12 · Conway Public Schools (id 13377026)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Carl Stuart Middle School (id 13399614)
+
+🍎🥪 Happy School Lunch Week! 🥪🍎
+
+We’re kicking off the week by celebrating and thanking our amazing cafeteria staff! From serving up delicious meals to making sure our students have the fuel they need to learn, grow, and succeed, they do so much for our school each day. 💙
+
+Thank you for all you do for our Cats! We appreciate you more than you know! 🐾
+
+#SchoolLunchWeek #WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-12 · Carl Stuart Middle School (id 13442396)
+
+Picture Day Forms will be coming home with students on Monday, October 12. Picture Day is October 27 for 5th graders and October 28 for 6th and 7th graders.  
+
+If you wish to purchase pictures, please send your student with the form and money on Picture Day. You can also pay online using this link: https://v2.myproimages.com/strain-photography-schools/61707/search?code=CSMS26
+
+PLEASE NOTE THAT OUR  PICTURE DAYS AND RED RIBBON WEEK WILL BE TAKING PLACE AT THE SAME TIME!  October 27 is Country vs Country Club and October 28 is Sports Day.
+
+### 2026-10-13 · Conway Public Schools (id 13377232)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Carl Stuart Middle School (id 13399834)
+
+🎃🍿 2 DAYS UNTIL THE CARL STUART FALL FESTIVAL! 🍿🎃
+
+Grab the whole family and join us THIS THURSDAY, October 15, from 5:30–7:00 PM for an evening of fun!
+
+🎟️ FREE entrance
+🍿 FREE popcorn
+🍋 FREE lemonade
+🎶 Live music
+🎯 Games
+🌮 Food trucks📚 BOOK FAIR OPEN
+🎉 And so much more!
+
+Our students and their entire families are invited! We can’t wait to see our Carl Stuart families there! 🐾💙
+
+📅 Thursday, October 15
+⏰ 5:30–7:00 PM
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-13 · Conway Public Schools (id 12662881)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377282)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Carl Stuart Middle School (id 13385961)
+
+📚💬 Dialogue Sort!
+
+Mrs. Mosley’s 5th grade ELA students are learning how dialogue can enhance their writing! Students sorted examples of dialogue into correct and incorrect categories, paying close attention to punctuation!✏️📖
+
+We love seeing our Cats learning through hands-on activities! 🐾
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-14 · Carl Stuart Middle School (id 13449915)
+
+📚🎉 Looking for a little piece of last school year? Last year’s yearbooks will be available for just $10 at our Fall Festival on Thursday, October 15! Stop by and grab yours while supplies last! 💙🐾 
+
+#WeAreCarlStuart #WeAreConway
+
+### 2026-10-15 · Conway Public Schools (id 13377383)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-15 · Carl Stuart Middle School (id 13400025)
+
+🎃🎉 IT’S FALL FESTIVAL DAY! 🎉🎃
+
+The wait is over, Cats! We’re ready for a night of family fun, and we want to see YOU there!
+
+Join us TONIGHT from 5:30–7:00 PM for:
+
+🍿 FREE popcorn
+🍋 FREE lemonade
+🎯 Games
+🌮 Food trucks
+🎶 Live music
+📚 BOOK FAIR OPEN
+🎉 And MORE!
+
+Bring the whole family, enjoy the festivities, and be sure to stop by the Book Fair while you’re here! Admission is FREE, so grab your family and we’ll see you tonight! 🐾💙
+
+📅 TONIGHT, October 15
+⏰ 5:30–7:00 PM
+
+LET’S HAVE SOME FALL FESTIVAL FUN! 🎃
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+

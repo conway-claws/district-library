@@ -954,3 +954,101 @@ These take-home activity bags let our students take athletic equipment home to s
 
 #WeAreJSE
 
+### 2026-10-08 · Barbara Clardy (id 13420457)
+
+❄️ It’s the most wonderful time of the year!
+
+The Jim Stone Elementary PTO is thrilled to announce our 4th annual Winterfest Fundraising Event! Mark your calendars and get ready for a festive afternoon of community, celebration, and giving back.
+
+This year, proceeds from the event will support the purchase of a new parent lunch area for our school. Come out, have fun, and help us make this exciting addition a reality for our Jim Stone families!
+
+📅 Date: Sunday, December 6, 2026
+🕒 Time: 2:00 PM – 4:00 PM
+📍 Location: Jim Stone Elementary School
+
+#WeAreJSE
+
+### 2026-10-09 · Barbara Clardy (id 13241643)
+
+Good morning, JSE! TODAY is the day! 🎉 The Lady Cats Change Drive is happening RIGHT NOW in the morning drop-off line. Grab that change from your cup holders, piggy banks, and couch cushions — let's make a difference together! 💙💗🎀
+
+#WeAreJSE
+
+### 2026-10-09 · Barbara Clardy (id 13414655)
+
+⚖️Third graders in Mrs. Razer's science classes are working cooperatively to form hypotheses about objects that will balance during science. 👩‍🔬👨‍🔬 #WeAreJSE
+
+### 2026-10-09 · Barbara Clardy (id 13436179)
+
+The desk fairy showed up in ALL three first grade classrooms today!!! We love squeaky clean and organized desks! 🧼 #WeAreJSE
+
+### 2026-10-12 · Conway Public Schools (id 13377021)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Barbara Clardy (id 13447921)
+
+We'd love to see your family at JIM STONE lunch! Families are always welcome to join us on **Fridays only** in our guest lunch room. Kindergarten meets 10:45–11:15, 1st grade 11:15–11:45, 2nd grade 11:30–12:00, 3rd grade 12:00–12:30, and 4th grade 12:15–12:45. Feel free to bring outside food! 💙
+
+#WeAreJSE
+
+### 2026-10-13 · Conway Public Schools (id 13377227)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Barbara Clardy (id 13358231)
+
+The chicest hair at JSE! 💁‍♀️✨ They understood the assignment for #TwinningTuesday.
+
+#WeAreJSE
+
+### 2026-10-13 · Conway Public Schools (id 12662876)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377277)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Barbara Clardy (id 13475325)
+
+Another THANK YOU goes out to Ms. Staley from Ridgemere Senior Living Center for taking time to come and share her love for reading with our kindergarten friends! What a treat! We love Ms. Staley! ❤️
+
+#WeAreJSE
+
+### 2026-10-14 · Barbara Clardy (id 13479257)
+
+🎶 Music class was Spooky Wooky this week with Mr. Sorrells!  AND...if you're not careful, you might even find a rhyming spider on your back having a little snack. 🕷️
+
+#WeAreJSe
+
+### 2026-10-14 · Barbara Clardy (id 13480220)
+
+Another round of THAB!
+
+#WeAreJSE
+
+### 2026-10-15 · Conway Public Schools (id 13377378)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

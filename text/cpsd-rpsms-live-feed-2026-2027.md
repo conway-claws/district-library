@@ -823,3 +823,105 @@ Dates: Oct 9 | Nov 13 | Jan 22 | Feb 12 | Apr 16
 
 Which theme are you most excited for? Drop a comment below! 👇
 
+### 2026-10-09 · Angel Moix (id 13428037)
+
+🌟 Big Cheers for Our Stars of the Month at SMS! 🌟
+
+Please join us in celebrating two incredible members of our Simon family who make a difference every single day.
+
+🍎 Teacher of the Month: Ms. Larson
+Ms. Larson has embraced her new role with enthusiasm, humility, and dedication. Whether she’s setting high expectations for her students, seeking out best practices, or stepping up as a true team player, she proves what it truly means to be #SimonStrong in everything she does!
+
+✨ Employee of the Month: Ms. Angela
+Known as the official "Queen of Clean," Ms. Angela goes above and beyond to keep our campus safe, healthy, and pristine. Dependable, compassionate, and quick to lend a helping hand to students and staff alike, she is a true gem of the SMS crew!
+
+Thank you both for your hard work, positive energy, and commitment to excellence. We are so lucky to have you! 💙
+
+#SimonStrong #WeAreSimon
+
+### 2026-10-09 · Angel Moix (id 13240579)
+
+Ready, set, trade! 📈 At the beginning of the year, Ms. Smith’s Gifted and Talented students took a deep dive into the business world to prepare for the upcoming Stock Market Game!First, they read the book "Lawn Boy" to see how a small summer job can turn into a huge enterprise. Then, students jumped into an awesome trading activity from Economics Arkansas! 🗺️✨
+Our young entrepreneurs spent the day exploring:
+          Voluntary Trade 🤝 (How trading helps both sides win!)
+          Specialization 💡 (Why focusing on one skill makes us stronger!)
+          Medium of Exchange 💵 (How money makes the world go 'round!)
+It was an incredible day of hands-on learning, and Ms. Smith's future investors are officially ready to take on the market! 🚀📊
+
+### 2026-10-10 · Angel Moix (id 13431028)
+
+Huge Congratulations to Our Simon Middle School All-Region Choir Students!
+
+We are so proud of our talented singers who earned a spot in the All-Region Choir! Please join us in celebrating their amazing accomplishment and hard work:
+
+Cantabile Choir (Treble Choir): 
+     Crystal S.-D.– Soprano 1 (8th Chair) 
+     Crosby E.– Alto 2 (5th Chair)  
+     Paris K.– Alto 2 (15th Chair)
+
+Vox Anima (Tenor/Bass Choir): 
+     Clayton K.– Tenor 1 
+     Macoy M.– Tenor 1 (not pictured)
+
+Way to represent Simon Middle School!
+
+#SimonStrong #WeAreSimon
+
+### 2026-10-11 · Karon Branch (id 13442501)
+
+SMS PTO Mtg. will be held, in the cafeteria, on Oct. 13th, at 4:15 PM.
+
+### 2026-10-12 · Conway Public Schools (id 13377025)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Karon Branch (id 13442654)
+
+Las Delicias popsicles will be available for purchase by all students on Wednesday, October 14, for $3.
+
+### 2026-10-13 · Conway Public Schools (id 13377231)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 12662880)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377281)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Angel Moix (id 13434151)
+
+🍳 Science you can taste! 🧪✨
+
+Simon Middle School students in Cooking Club are mixing ELA, math, and chemistry right in the kitchen! From measuring volume and scaling recipes to observing heat-driven chemical reactions, our young chefs are learning that cooking is full-flavored STEM in action.
+
+Tastes like a recipe for success! 👩‍🍳👨‍🍳
+
+#SimonStrong #WeAreSimon #STEMinAction
+
+### 2026-10-15 · Conway Public Schools (id 13377382)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

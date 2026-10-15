@@ -575,3 +575,87 @@ Help us show Mrs. Echols some love this month and thank her for all she does for
 
 Happy National Principal’s Month, Mrs. Echols! We appreciate you more than you know!
 
+### 2026-10-09 · Theodore Jones Elementary (id 13375812)
+
+🐾 Pawsitive Family Connection: Responsibility 🐾
+
+This week, we’re talking about **Responsibility** and what it means to make choices that positively impact the people around us. 💙
+
+Our quote comes from Martin Luther King, Jr., a community problem solver, role model, and advocate for people’s rights:
+
+“The time is always right to do what is right.”
+
+As a family, take a few minutes to talk about what this quote means to you. Do you believe it’s your responsibility to do the right thing, even when it may be difficult? How can each of us show responsibility in our homes, schools, and communities?
+
+We’d love to see how our Little Cats are practicing responsibility at home! 
+Please include your pictures here in the comments! 🐾💙
+
+### 2026-10-11 · Theodore Jones Elementary (id 13407365)
+
+Check out our Paw Print Newsletter and stay up to date- https://conwaypublicschools.edurooms.com/newsletters/theodore-jones-elementary/newsletters/october
+
+### 2026-10-12 · Conway Public Schools (id 13377016)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Theodore Jones Elementary (id 13430959)
+
+❤️🎗️ Red Ribbon Week at Theodore Jones Elementary!🎗️❤️
+
+Red Ribbon Week is October 26–30, and we’re excited to celebrate healthy choices, kindness, and living drug-free! ❤️ Our theme is “Healthy Kids ❤️ Brighter Futures!” Throughout the week, we’ll show our spirit and remind everyone that making healthy choices today helps build a brighter tomorrow!
+
+❤️ Monday, October 26 – Red’y to Be Drug Free!
+Wear as much RED as you can!
+
+💜 Tuesday, October 27 – Be Yourself!
+Show off your CRAZY socks and/or CRAZY hair!
+
+💛 Wednesday, October 28 – Too Bright for Drugs!
+Wear neon or bright colors!
+
+💚 Thursday, October 29 – Decade Day!
+Dress up in your favorite decade as we remember to “Make healthy choices for your future.”
+
+💙 Friday, October 30 – Superhero Day!
+Dress as your favorite superhero and remember: “Be a Hero—Be Drug Free!”
+
+Throughout Red Ribbon Week, we encourage our students to **be kind, make healthy choices, and live drug-free! Let’s work together to build a school community that celebrates positive choices and encourages every student to be the best they can be. ❤️
+
+Let’s see that TJE spirit all week long! 🎗️❤️
+
+### 2026-10-13 · Conway Public Schools (id 13377222)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 12662871)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377272)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-15 · Conway Public Schools (id 13377373)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

@@ -593,3 +593,97 @@ This achievement recognizes students who demonstrate high proficiency in both En
 Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
 Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
 
+### 2026-10-12 · Conway Public Schools (id 13377011)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Conway Public Schools (id 13431810)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 13377246)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices e
+
+### 2026-10-13 · Conway Public Schools (id 13377218)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 12662867)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 13435837)
+
+Reminder that there will be no school for students from Tuesday, October 20th through Friday, October 23rd.
+
+Oct 20: Teacher Work Day (No Students)
+Oct 21: Parent/Teacher Conferences (No Students)
+Oct 22-23: Fall Break (District Closed)
+Oct 26: Return to School
+
+Enjoy the extended break, and let's keep driving forward as #TeamConway!
+
+### 2026-10-14 · Conway Public Schools (id 13377336)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken
+
+### 2026-10-14 · Conway Public Schools (id 13377268)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Tim McMahan (id 13479049)
+
+Good afternoon,
+Tomorrow with payroll there will be some adjustments. Adam or I will be at the office from 7:30 to 8:30 and then 12 to one. If you are a paper check, you are the only one that needs to come. If you have any questions, please reach out to us.
+Thanks
+
+### 2026-10-14 · Tim McMahan (id 13479177)
+
+Sorry guys if I confused you. No one needs to come sign anything your only coming if your payroll is a paper check.
+Thanks
+T-Mac
+
+### 2026-10-15 · Conway Public Schools (id 13377303)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD foo
+
+### 2026-10-15 · Conway Public Schools (id 13377369)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-15 · Conway Public Schools (id 13486867)
+
+🐾💙 Catch up on what’s happening in Wampus Cat Nation! 💙Our October School Board Meeting Recap is here! From celebrating outstanding students and staff to highlighting the amazing things happening across Conway Public Schools, there is so much to be proud of! 🌟Take a few minutes to check out this month’s recap and see how #TeamConway continues to make a difference for our students, staff, and families! 💙
+https://conwaypublicschools.edurooms.com/newsletters/conway-public-schools/newsletters/october-2026-school-board-meeting-recap#WeAreCPSD #WeAreConway #WampusCatNation #ChampionsforKids
+

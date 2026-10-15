@@ -529,3 +529,99 @@ October is National Physical Therapy Month! A huge shoutout to our incredible CP
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-08 · Reigha Smith (id 13419080)
+
+What a season it was for Courtway Volleyball! 🏐
+
+I am so proud of this group of girls and the growth they showed throughout the season. From the beginning until now, they have worked, learned, competed, and continued to push one another. Getting to coach this group has truly been a blessing, and I’m thankful for every opportunity I had to watch them grow both on and off the court.
+
+The season may be over, but the work isn’t. I’m excited to head into the off-season and continue building our strength — mentally and physically — while growing together as a team. There is so much potential in this group, and I’m excited to see what the future holds for Courtway Volleyball.
+
+So proud of these girls and all they accomplished this season. The best is yet to come! 💙
+
+— Coach J
+
+### 2026-10-08 · Courtway Middle School (id 13420903)
+
+Don't let your favorite Courtway memories disappear! 👻🎃 Make sure all the fun, friendships, and unforgettable moments are captured in this year's yearbook!
+Scan the QR code or visit https://jostensyearbooks.com?ref=A01047635 to order yours today!
+🕷️ Don't get ghosted by memories!
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-09 · Courtway Middle School (id 13436134)
+
+We're proud to recognize our Courtway Students of the Month for September! 💙 These Wampus Cats are doing great things, and we're excited to celebrate them! Congratulations to Jayden H., Alivea P., Timiah W., Joshua M., Jasper M., Edwin L., Yasmin S., and James M.! Keep up the great work!
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-10 · Courtway Middle School (id 13436064)
+
+Congratulations to our September Sonic Teacher of the Month, Ms. Curry! 💙 Ms. Curry teaches 7th grade Keyboarding and 6th grade Career Awareness, helping our students build skills they'll use well beyond the classroom. We're lucky to have her on Team Courtway! Thank you for all you do for our students!
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-12 · Conway Public Schools (id 13377023)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Courtway Middle School (id 13451526)
+
+Mrs. Jensen’s classes switched things up with a scavenger hunt to review the four types of sentences. Much more fun than sitting and taking notes! ✏️📚
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-12 · Courtway Middle School (id 13452112)
+
+Earlier this semester, our yearbook students attended a Jostens Yearbook Conference at CHS where they learned more about photography and design. They also got to work with a cover designer to create this year’s yearbook cover. We can’t wait to see it all come together! 📸📘
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-13 · Conway Public Schools (id 13377229)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Courtway Middle School (id 13452192)
+
+Mr. Underwood and Mrs. Gibson’s math classes reviewed positive and negative integer operations with a D&D-style game of Math vs. Monster! A fun way to practice those skills and make math a little more adventurous. 🎲➕➖
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-13 · Courtway Middle School (id 13452709)
+
+Big ideas, small spaces! 🏠
+
+Mrs. Curry’s 6th graders became architects, creating their own micro-mansion floor plans while learning about careers in architecture and construction. Students applied creativity, problem-solving, and real-world thinking as they planned layouts, features, and design elements—just like real architects. We might have some future designers in this class!
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-13 · Conway Public Schools (id 12662878)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377279)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-15 · Conway Public Schools (id 13377380)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

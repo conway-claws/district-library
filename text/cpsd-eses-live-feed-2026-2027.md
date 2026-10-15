@@ -471,3 +471,71 @@ Emmersyn is a 9th grader at Conway Junior High School. She was a member of the C
 
 We want to remind our families that our doors do not open until 7:30 am.  There is no adult supervision until that time.  Please monitor your students on the front porch until a staff member arrives at 7:30.
 
+### 2026-10-08 · Ellen Smith Elementary (id 13417952)
+
+🍁📚 We're just a few days away from our next Starbooks Café! ☕🍂
+
+Students are encouraged to spend a little extra time reading this weekend to finish their Starbooks cards and earn their invitation to the café!
+
+⏰ REMINDER: All completed Starbooks cards MUST be turned in by 8:30 a.m. on Monday, October 12th to attend our Starbooks Café on Tuesday, October 13th!
+
+📖🍁 Keep reading, Little Cats! You're almost there! 🐾☕
+
+### 2026-10-11 · Matthew Coatney (id 13442687)
+
+Good Evening, Ellen Smith Families!I wanted to share a few updates and reminders about some upcoming events at Ellen Smith!🏃 Adventure Run Fundraiser UpdateWe have officially passed $4,600 raised for our Adventure Run fundraiser! Thank you to everyone who has donated and helped us get to this point!Let's see if we can break the $5,000 mark this week! Our fundraiser will close on October 30th. Every donation helps us provide fun events and experiences for our students. We appreciate your continued support!📚 Parent-Teacher Conferences – October 21stParent-Teacher Conferences are just around the corner! If you have not yet signed up for a time to meet with your child's teacher(s), please use the link below to schedule your conference.Click Here to Sign Up for Parent-Teacher ConferencesWe look forward to seeing you on October 21st!📸 School Picture Day – October 29thSchool pictures will be taken on Thursday, October 29th. Picture forms will be sent home with students this week, so be on the lookout for those!🎀 Red Ribbon Week – October 26th–30thWe will celebrate Red Ribbon Week during the last week of October! Our theme is "Make Healthy Choices. Stay Drug-Free!" We encourage all students to participate in our dress-up days throughout the week.​ See the attached FlyerThank you all for your continued support of Ellen Smith Elementary! We have a lot of exciting things happening over the next few weeks, and we appreciate everything you do to help make these experiences possible for our students.Thanks,Matt CoatneyPrincipal, Ellen Smith Elementary
+
+### 2026-10-12 · Conway Public Schools (id 13377020)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Matthew Coatney (id 13449047)
+
+Good afternoon, 3rd and 4th grade families!Just a quick reminder that our musical is tonight at 6:30 p.m. Doors will open at 6:00 p.m. so everyone can come in and find a seat.Students will meet Mr. Guzman behind the stage. They will use the stairs to the right of the stage to get there.We look forward to seeing you tonight and watching our students perform!Thanks!
+
+### 2026-10-13 · Conway Public Schools (id 13377226)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 12662875)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377276)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Matthew Coatney (id 13479027)
+
+Our PTO fundraiser is going strong! 
+
+🏃 Adventure Run Update! 🏃‍♀️
+
+We are so close to crossing the $5,000 mark! 🎉
+
+Thank you to everyone who has donated and shared our fundraiser. Every dollar helps support fun events and experiences for our Ellen Smith students! We have 16 days left in our fundraiser!
+
+### 2026-10-15 · Conway Public Schools (id 13377377)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

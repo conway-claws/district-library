@@ -371,3 +371,55 @@ Emmersyn is a 9th grader at Conway Junior High School. She was a member of the C
 
 Good morning, Mattison Families!Please use the link below to sign up for Parent-Teacher Conferences on Wednesday, October 21 (10:00 a.m. – 7:00 p.m.). We are aiming for 100% participation!If you requested interpreter services: Your conference has already been scheduled. Please check the note sent home with your assigned time—no online sign-up needed.https://docs.google.com/document/d/1dr6OgKV2wCqL-3F2vA7NqHVYIpSCLgF_ald0IxgVgRc/edit?usp=sharingThank you,The Mattison Team
 
+### 2026-10-09 · Melissa Spence (id 13424545)
+
+💗 Reminder, Mattison Families! 💗
+
+The Conway High School Lady Cat Volleyball Team will be in our morning drop-off line TODAY (October 9) collecting spare change to support their Pink Night recipient, Emmersyn Caldwell, a Conway student battling leukemia.
+
+Bring your spare change and help us make a difference! Every penny counts! 💗🏐
+
+### 2026-10-12 · Conway Public Schools (id 13377018)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 13377224)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 12662873)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377274)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Melissa Spence (id 13475278)
+
+Hello, Mattison Families! 💙Get ready for a Spooky Snack Attack! 🎃👻Our October Game Day Grub Snack Day Fundraiser is here! This fundraiser helps us raise money that goes right back into our students through fun rewards, celebrations, and special activities!For just $2.00, your Little Cat can enjoy:🧀 One individual bag of Cheetos🎃 One package of Spooky Fruit SnacksImportant Details:💵 Cost: $2.00 per snack bag (limit 2 per student)📝 Orders Due: Monday, October 26🎉 Snack Delivery: Friday, October 30, during our Birthday/Snack Day✉️ Payment: Exact cash only, please!Order forms will be sent home with students this week! To participate, simply complete the form and return it to your child's teacher with payment by Monday, October 26.Participation is completely optional! Families are welcome to purchase snacks to support our fundraiser, but there is no obligation to participate.Looking Ahead: We will not have a Snack Day Fundraiser in November or December. Our monthly fundraisers will resume after winter break!Thank you for supporting our school and helping us create more exciting experiences for our Little Cats! Every purchase makes a difference! 🐾💙
+
+### 2026-10-15 · Conway Public Schools (id 13377375)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

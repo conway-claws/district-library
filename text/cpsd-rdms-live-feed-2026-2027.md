@@ -1042,3 +1042,86 @@ To reward students for their hard work, they will receive extra outside activity
 • 6th grade: 10:50–11:11
 • 7th grade: 11:36–12:05
 
+### 2026-10-12 · Conway Public Schools (id 13377024)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Rachel Fowler (id 13449177)
+
+Happy Monday, RDMS Families!
+
+As a reminder, if you drop your student off at our morning crosswalk, please park your vehicle and walk your child to the crosswalk rather than allowing them to cross on their own.
+
+Despite the abundance of signage in this area, we continue to see vehicles that do not come to a complete stop. Our priority is to ensure the safety of every student as they arrive at school each morning.
+
+Thank you for helping us keep our Wampus Cats safe! We appreciate your cooperation and support in making student safety a priority.
+
+### 2026-10-13 · Conway Public Schools (id 13377230)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools Athletics (id 13463907)
+
+RDMS Football was busy these past two weeks.  
+
+Here are the Players Of The Week 
+Jude Pierce 
+Mason Davis
+Maddox McCarthy 
+Luke Whitehead 
+Blake Pulver 
+Devin Hill 
+Beckett Davidson 
+Seven Reed 
+Abbott Young 
+Nathan Page (Not pictured) 
+
+Great Job RDMS Football!
+
+### 2026-10-13 · Conway Public Schools (id 12662879)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377280)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Erika Easley (id 13449383)
+
+🍎🥗 Happy National School Lunch Week! 🥗🍎
+This week, we celebrate our AMAZING RDMS cafeteria crew! Thank you for serving up delicious meals, warm smiles, and kindness every day. You keep our Wampus Cats fueled and ready to learn! ❤️🐾
+
+### 2026-10-14 · Rachel Fowler (id 13469804)
+
+We Need Your Help to Honor Our Veterans! 🇺🇸
+
+This Veterans Day, we are excited to honor and celebrate the incredible veterans in our community at our RDMS Veterans Day Assembly on Wednesday, November 11, 2026 at 9:45am in the cafetorium. We want to highlight the bravery, sacrifice, and service of our local heroes. 
+
+Do you know a veteran who lives in our community? We’d love to hear their story! Please share their name, branch of service, and any special memories or accomplishments you’d like us to recognize during the assembly. You can provide information by going to this Google Form by Friday, November 6: https://forms.gle/HfufKfGmbfKJYHiz8
+
+Let’s come together to make this a meaningful celebration for all the men and women who have served our country.
+
+### 2026-10-15 · Conway Public Schools (id 13377381)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

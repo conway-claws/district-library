@@ -383,3 +383,86 @@ Let's welcome Ms. Jennifer Chtwood to Sallie Cone Preschool. WE are all looking 
 
 🐾💙 Meet Mrs. Jennifer McMillion! 💙🐾 A new Paraprofessional here at Sallie Cone Preschool!
 
+### 2026-10-09 · Sallie Cone Preschool (id 13430645)
+
+🌲🎨 Our Right Brain learners in the Arkansas-themed room explored one of our state’s natural treasures—the pine tree, Arkansas’s state tree! 🌳
+
+The children used their senses to investigate pine cones, feeling their unique textures and describing what they noticed. Then, they got creative by using pine cones as painting tools! 🖐️🖌️
+
+✨ Skills We’re Growing: 🌿 Sensory Exploration & Language Development: Observing, touching, and describing the pine cone encourages children to explore their environment, build vocabulary, and express their observations.
+
+🎨 Fine Motor Skills & Creativity: Using pine cones to paint strengthens hand coordination and control while encouraging creativity and experimentation with different textures and patterns.
+
+Learning about Arkansas is even more fun when little hands get involved! ❤️🌲
+
+### 2026-10-12 · Conway Public Schools (id 13377012)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Sallie Cone Preschool (id 13443400)
+
+🍎💛 Happy Principal Appreciation Month, Dr. Marci Martin! 💛🍎
+
+October is Principal Appreciation Month, and we are proud to recognize Dr. Marci Martin, who is serving as principal of Sallie Cone Preschool for the first time this school year after previously serving as our assistant principal.
+
+Leadership is about more than a title; it is about showing up, listening, supporting others, and working together to create an environment where everyone can succeed. Dr. Martin leads with a team-centered mindset, often reminding us that “we are a team.” This perfectly reflects our district’s theme this year: Be the Bean. Be the Best! 🌱
+
+As she continues to grow in her role, Dr. Martin embraces both the challenges and the rewarding moments that come with leadership. One statement that speaks volumes about her heart for this position is, “I prayed for this.” Those words reflect a willingness to embrace the journey, knowing that meaningful work comes with both difficult days and incredible blessings.
+
+Dr. Martin takes time to listen to her staff, steps in wherever she is needed, and works diligently to help each day run smoothly. Her commitment to supporting our team helps create an environment where staff members feel heard and where children and families can thrive. ❤️
+
+Thank you, Dr. Martin, for your willingness to serve, your dedication to our Sallie Cone family, and your reminder that we are stronger when we work together. We appreciate the heart you bring to leadership and look forward to all the wonderful things ahead! 🍎✨
+
+#PrincipalAppreciationMonth #SallieConePreschool #BeTheBean #BeTheBest
+
+### 2026-10-12 · Sallie Cone Preschool (id 13443413)
+
+🎃🍂 Our preschoolers are getting into the fall spirit by creating their own emotion faces on pumpkin cutouts! 
+Through this fun, hands-on activity, children are learning to recognize and express emotions while building self-awareness, fine motor skills, and creativity. 🧡 
+These experiences support social-emotional development and help children build the skills needed to understand their own feelings and recognize emotions in others. 🍁😊 #SallieConePreschool #LearningThroughPlay
+
+### 2026-10-12 · Sallie Cone Preschool (id 13452662)
+
+We are closed for Fall Break on October 22-23, 2026
+
+### 2026-10-12 · Sallie Cone Preschool (id 13452681)
+
+Attention Families, please sign up with your child's teacher for a time slot on Parent Teacher Conference day. 
+Look forward to seeing everyone there!
+
+### 2026-10-13 · Conway Public Schools (id 13377219)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 12662868)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377269)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-15 · Conway Public Schools (id 13377370)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

@@ -711,3 +711,88 @@ October is National Physical Therapy Month! A huge shoutout to our incredible CP
 Conway Family, it is that time! Our High School Lady Cat Volleyball team will be in the drop off line tomorrow morning (October 9th) to collect change for their Pink Night Recipient, Emmersyn Caldwell! Get your change ready and help us  support Emmersyn!
 Emmersyn is a 9th grader at Conway Junior High School. She was a member of the Conway Junior High Volleyball team when she began to experience joint pain. After blood work, she was diagnosed with Leukemia and began chemo treatments in May of this year. Emmersyn is still fighting and undergoing treatment.
 
+### 2026-10-08 · Ida Burns Elementary (id 13419156)
+
+🍁🐾 Fall Parent-Teacher Conferences are Coming! 🐾🍁Ida Burns families, it's time to schedule your parent-teacher conference! 💙📅 Wednesday, October 21, 2026Please open the attached conference sign-up sheet, find your child's teacher, and click their name to select your conference time.We look forward to visiting with our Little Cats' families and celebrating all the wonderful learning happening at Ida Burns! 🐱🍂#IdaBurnsElementary #LittleCats #ParentTeacherConferencesPlease Click to schedule your conference!  IBES Fall Conferences 26-27
+
+### 2026-10-09 · Caroline Baker (id 13428549)
+
+💙🤍We had some special visitors come out this morning and greet our kiddos! 💙🤍
+
+### 2026-10-09 · Caroline Baker (id 13437253)
+
+Today on our Fri-Yay morning Google meet, we honored 2 classified staff members for going above and beyond for our students and teachers! These ladies are our classified employees of the month! First, we have Mrs. TaKayla White! You can always catch Mrs. White stepping in to help supervise kids in the building and pulling students to intervene with and work on their reading. We love her sweet and shy spirit. Next, we have Mrs. Tonni McCuien! Mrs. Tonni works hard to coordinate, cook, and clean in the cafeteria for our students and staff. We always have the best looking breakfasts and lunches! Ida Burns sure is thankful for all these 2 ladies do!! We love you both!!
+
+### 2026-10-10 · Caroline Baker (id 13438676)
+
+Picture day is coming for our Little Cats on Wednesday, October 14th. 
+
+Information has been sent home or will be coming home on Monday! Check your child's backpack/folder for more information.
+
+### 2026-10-12 · Conway Public Schools (id 13377014)
+
+It is National School Lunch Week! This week is all about recognizing the power of a healthy, delicious meal in helping our students learn, grow, and thrive every day, while celebrating the amazing team that feeds our district.
+
+To kick off the week, here is our first big stat: Did you know our CPSD Food Service team serves over 1 million lunches across the district every single school year?
+
+That takes a massive amount of prep, care, and friendly smiles in the lunch line. Thank you to our incredible nutrition crew for keeping Team Conway fueled and ready to excel! 🍎🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-12 · Ida Burns Elementary (id 13443164)
+
+Newsletter for the week of October 12. 
+
+https://app.smore.com/n/xz8dc
+
+### 2026-10-12 · Ida Burns Elementary (id 13289456)
+
+🎬✨ Lights, Camera, ACTION! ✨🎬
+ Mark your calendars! Our talented Ida Burns 3rd and 4th graders are taking the stage to celebrate the history of music from the movies! 🎶🍿 
+
+From *The Wizard of Oz* to *The Little Mermaid* to *Coco*, this show is sure to have your hands clappin’ and toes tappin’! 👏🎵
+ 📅 October 15, 2026 
+📍 James H. Clark Auditorium 
+🚪 Doors open at 6:00 PM | 🎭 Show begins at 6:30 PM
+
+We can’t wait to see our Little Cats shine on stage! 💙🐾🌟 
+Save the date and come enjoy the show!
+
+### 2026-10-13 · Conway Public Schools (id 13377220)
+
+🍎 National School Lunch Week: Fact #2!
+Here is a fun stat for your Tuesday: CPSD students consume over 520,000 packages of apple slices every school year! That equals more than 65,000 pounds of fresh apples keeping our kids healthy and energized. Way to go, Wampus Cats! 🍏🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-13 · Conway Public Schools (id 12662869)
+
+Big break ahead, Wampus Cats! Reminding all families that students will have an extended break from October 20th through October 23rd.Here is the multi-day breakdown:
+🛑 Oct 20: Teacher Work Day (No school for students)
+💬 Oct 21: Parent/Teacher Conferences (No school for students)
+🍁 Oct 22-23: Fall Break (Schools & Offices Closed)
+🐾 Oct 26: Return to SchoolWe are so proud of the hard work our students and staff have put in so far this term. Enjoy the time off, rest up, and let's come back ready to win together as Team Conway! 💙#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Conway Public Schools (id 13377270)
+
+🍗 National School Lunch Week: Fact #3!
+Can you guess the fan-favorite meal in our cafeterias? The #1 lunch entree across CPSD is chicken tenders served with macaroni & cheese and a warm roll! It is a classic for a reason. What was your favorite school lunch growing up? Tell us in the comments! 🧀😋
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-14 · Caroline Baker (id 13482095)
+
+We have had the best 2 days celebrating our District Student of the Month and District Staff member of the month. Stella is a third grader who works hard each and every day. She shows up for her classmates, is a model peer, and gives 100% effort in the classroom. Ms. Denise Wahrer is a First Grade teacher. She is a leader amongst her peers and gives the best hugs. You can always count on Ms. Wahrer to lend a helping hand and hit the ground running with feedback she receives. We are so proud of Stella and Ms. Wahrer! We can't wait to see them move mountains at Ida Burns this year!
+
+### 2026-10-15 · Conway Public Schools (id 13377371)
+
+📊 National School Lunch Week: Fact #4!
+
+It takes serious experience to run a championship food service program! Did you know our CPSD food service staff members have a combined total of 425 years of experience in school food service? Talk about a dedicated, expert squad taking care of our students! 💪💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-15 · Ida Burns Elementary (id 13289470)
+
+Tonight is our 3rd and 4th grade musical! We hope to see you there!
+
