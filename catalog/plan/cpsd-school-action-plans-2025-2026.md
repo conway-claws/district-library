@@ -11,10 +11,10 @@ drive_kind: folder
 rights: public-record
 text:
 retrieved:
-verified: 2026-10-12
+verified: 2026-10-19
 status: current
 tags: [school-board, school-improvement-plan, 2025-2026]
-last_check: 2026-10-12
+last_check: 2026-10-19
 fail_since:
 fail_reason:
 ---

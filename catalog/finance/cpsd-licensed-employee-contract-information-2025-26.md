@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-licensed-employee-contract-information-2025-26.md
 retrieved: 2026-10-01
-verified: 2026-10-12
+verified: 2026-10-19
 status: current
 tags: [finance, employee-contracts, state-required, 2025-2026]
 sha256: 957f9b40f8411fe7a4497c061240b995d91690a517b13c415277a622f679b4e5
-last_check: 2026-10-12
+last_check: 2026-10-19
 fail_since:
 fail_reason:
 extractor: pdftotext@26.08.0+finance-table
