@@ -659,3 +659,60 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-16 · Conway Public Schools (id 13377395)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Theodore Jones Elementary (id 13479124)
+
+🐾 "Paws”itive Family Connection: RESPECT starts at home! 💙
+
+This week, we are so excited to share what our TJE families are doing to teach and encourage respect at home! From practicing good sportsmanship and using kind words to listening when others are speaking and treating others with kindness, our families are helping our Little Cats understand that respect starts with the little things we do every day. 🐱💙
+
+We love seeing the wonderful ways our families are building character and teaching our students to be respectful, kind, and thoughtful toward others. Thank you to our families for partnering with us as we help our Little Cats grow into caring friends and leaders!
+
+Remember, Little Cats: Be a friend first! 💙🐾
+
+📸 Have you talked about respect at home? We would love to hear from you! Please share your pictures and ideas in the comments!
+
+### 2026-10-16 · Theodore Jones Elementary (id 13503863)
+
+Have you signed up for parent-teacher conferences? If not, click here:
+🔗 Parent-Teacher Conference Sign-Up & Updates
+https://docs.google.com/document/d/1ccsEgbtvk-Hw3CUxetWq9DgubdgUOWxeBNmeHjzDcpg/edit?tab=t.0
+
+### 2026-10-17 · Theodore Jones Elementary (id 13510777)
+
+TJE Families, We Need YOU! We have to work together to support your child's success. Whether your child is excelling or needs additional support, staying connected with your child's teacher matters!
+
+We know life gets busy, but we don't want this opportunity to pass without connecting with you. If you haven't scheduled your conference, please take a moment to do so. If the available times don't work for your family, please reach out to your child's teacher so we can explore other options.
+
+At TJE, we believe that when families and schools work together, your child can accomplish great things! Thank you for partnering with us. https://docs.google.com/document/d/1ccsEgbtvk-Hw3CUxetWq9DgubdgUOWxeBNmeHjzDcpg/edit?tab=t.0
+
+### 2026-10-18 · Theodore Jones Elementary (id 13514117)
+
+Stay in the Know- https://conwaypublicschools.edurooms.com/newsletters/theodore-jones-elementary/newsletters/october
+
+### 2026-10-19 · Theodore Jones Elementary (id 13518640)
+
+Today and Wednesday are the last days to shop our Book Fair! 
+
+If you didn't send money with your student today, you can add money to an eWallet (until noon) and Mrs. Yates will call them down to the fair today!
+
+All information can be found here:
+  https://canva.link/tjbookfair
+
+Families can also join us Wednesday for Family Day! 
+Book Fair will be open 10:00-12:00 and 1:30-6:30. Drop by to enter your student into a drawing for free books and posters! No purchase necessary to enter. 
+
+
+See you there!
+
+### 2026-10-21 · Theodore Jones Elementary (id 13554099)
+
+Monday, our Stream Team hit the creek to collect baseline water quality data right here in our little creek behind the school. From waders to nets, everyone jumped into help gather samples and learn what it takes to monitor and protect our local waterways. GO TJ Little Cats!
+

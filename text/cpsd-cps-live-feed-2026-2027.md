@@ -687,3 +687,75 @@ It takes serious experience to run a championship food service program! Did you 
 🐾💙 Catch up on what’s happening in Wampus Cat Nation! 💙Our October School Board Meeting Recap is here! From celebrating outstanding students and staff to highlighting the amazing things happening across Conway Public Schools, there is so much to be proud of! 🌟Take a few minutes to check out this month’s recap and see how #TeamConway continues to make a difference for our students, staff, and families! 💙
 https://conwaypublicschools.edurooms.com/newsletters/conway-public-schools/newsletters/october-2026-school-board-meeting-recap#WeAreCPSD #WeAreConway #WampusCatNation #ChampionsforKids
 
+### 2026-10-15 · Conway Public Schools (id 13377520)
+
+As National Hispanic Heritage Month comes to a close today, we are looking back on a wonderful month of learning, culture, and community across Conway Public Schools!
+
+Pictured here are just a few moments of our students and staff celebrating together throughout the month. Thank you to everyone who shared their stories and traditions with us. We are so proud to honor the rich diversity that makes Team Conway special!✨
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-15 · Eric King (id 13492076)
+
+HOMECOMING 2026!Ticket link: https://gofan.co/event/6688686?schoolId=AR4663
+
+### 2026-10-16 · Conway Public Schools (id 13377391)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Conway Public Schools (id 13377415)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Conway Public Schools (id 13377858)
+
+📊 INSIDE THE PLAYBOOK: Did You Know? 
+
+Did you know that Conway High School students earned scores of 3 or higher on a total of 1,092 Advanced Placement (AP) exams in 2026?
+
+Earning a 3 or higher qualifies students for college credit at most universities across the country. Huge congratulations to our hard-working students and AP teachers for proving once again that Team Conway aims for academic excellence! 🎒✨
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Conway Public Schools (id 13503465)
+
+Test
+
+### 2026-10-16 · Conway Public Schools (id 13505993)
+
+📚⚾⚽ A big round of applause for our Wampus Cats! 💙🐾At this week’s October School Board meeting, we were proud to recognize our Baseball and Girls Soccer teams for earning State Academic Championships for the 2025–2026 school year! The Arkansas Activities Association recognizes teams that excel in the classroom, awarding State Academic Championships based on each team’s cumulative grade point average during the most recent official grading period.
+
+ Led by Coach Hardin, our Baseball team earned an impressive 3.92 GPA!Led by Coach Eskola, our Girls Soccer team achieved an outstanding 3.932 GPA!These student-athletes prove that being a Champion means working hard both on and off the field! We are proud of their dedication to academics, athletics, and representing Conway Public Schools with excellence. 💙A special congratulations to the coaches, seniors, and all team members, including last year’s seniors, who contributed to these incredible accomplishments!Way to go, Wampus Cats! We are proud to have you on #TeamConway! 🐾💙#WeAreCPSD #WeAreConway #WampusCatNation #ChampionsforKids #TeamConway
+
+### 2026-10-16 · Conway Public Schools (id 13474252)
+
+Stay in the loop, Wampus Cat families! 🐾📱   
+Have you recently moved, changed your cell number, or switched email addresses? Keeping your contact information current ensures you never miss important campus announcements, emergency weather alerts, or classroom updates.
+
+If you’re heading to campus for upcoming Parent-Teacher Conferences, it’s a great time to pop into the front office and make sure your details are up to date! You also don't have to wait for conferences, our office staff is happy to help you update your records anytime you stop by during regular school hours.
+
+Have questions? Reach out to your school's front office .
+#StayInTheLoop #WeAreWampusCats #TeamConway #ConwayPublicSchools
+
+### 2026-10-16 · Conway Public Schools (id 13474272)
+
+Stay in the loop! Need to update your address, phone number, or email? Stop by your school's front office during Parent-Teacher Conferences—or swing by anytime during regular school hours!
+
+### 2026-10-17 · Conway Public Schools (id 13506619)
+
+Wampus Cat Pride: Celebrating Remarkable Academic Achievement! This week at our October School Board meeting, we proudly recognized Conway High School senior Tyson Garlow for an incredible accomplishment — being named a National Merit Semifinalist! Representing fewer than 1% of high school seniors nationwide, this prestigious recognition through the National Merit Scholarship Program reflects Tyson’s hard work, dedication, and commitment to academic excellence. Tyson was the only Conway High School student to earn this honor, and we couldn’t be prouder! We also celebrated an exciting partnership with the Conway Development Corporation designed to encourage more students to take the PSAT/NMSQT and pursue this prestigious recognition. Jamie Gates, Executive Vice President of the Conway Area Chamber of Commerce and representative of the Conway Development Corporation, joined us to share more about the initiative.Through this partnership, eligible juniors who take the PSAT/NMSQT on October 27 and score 213 or higher will receive $500, beginning with the Class of 2027. Students who go on to become National Merit Semifinalists will receive an additional $1,000 during their senior year. As part of this initiative, Tyson was presented with a $1,500 check in recognition of his achievement! 👏Congratulations, Tyson! We are so proud of the way you represent Conway High School and Conway Public Schools. We’ll be cheering you on as you continue your journey toward becoming a National Merit Finalist! 💙🐾#WeAreCPSD #WeAreConway #WampusCatNation #ChampionsforKids #TeamConway
+
+### 2026-10-19 · Tim McMahan (id 13528161)
+
+Normal hours for all shifts on Tuesday and Wednesday. Please use this extra time with fewer people in the buildings to get your areas clean for parent teacher conferences on Wednesday.. I would like all hallways, scrubbed, and buffed tomorrow. Please pay attention to Glass that needs to be cleaned and all high dusting and cobwebs.
+Thanks
+T-Mac
+

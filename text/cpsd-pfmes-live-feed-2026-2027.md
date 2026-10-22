@@ -423,3 +423,15 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-16 · Conway Public Schools (id 13377397)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-20 · Melissa Spence (id 13540399)
+
+Good afternoon, Mattison Families!Parent-Teacher Conferences are TOMORROW, Wednesday, October 21, from 10:00 a.m. to 7:00 p.m.! 💙If you haven't signed up yet, it's not too late! We would love the opportunity to connect with every family to celebrate your child's progress and discuss ways we can continue working together to support their success. Our goal is 100% participation!📅 Date: Wednesday, October 21⏰ Time: 10:00 a.m. – 7:00 p.m.🔗 Sign Up Here: https://docs.google.com/document/d/1dr6OgKV2wCqL-3F2vA7NqHVYIpSCLgF_ald0IxgVgRc/edit?usp=sharing🌎 Families Who Requested Interpreter Services: Your conference has already been scheduled! Please refer to the note sent home with your assigned conference time. You do not need to sign up online.We look forward to seeing you tomorrow and partnering together to help our Little Cats shine! 💙🐾
+

@@ -1052,3 +1052,46 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-16 · Conway Public Schools (id 13377400)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Barbara Clardy (id 13500170)
+
+📸 Missed Picture Day? No Worries!
+
+Our Make-Up / Retake Picture Day is coming up on Monday, November 9.
+
+#WeAreJSE
+
+### 2026-10-19 · Barbara Clardy (id 13479880)
+
+Jim Stone Elementary Spirit Week is October 26–30!
+
+🧢 Monday — Hat Day: Hats off to healthy choices!
+🌟 Tuesday — Neon Day: Our future is bright!
+😎 Wednesday — Sunglasses Day: Cool kids make cool choices!
+💜 Thursday — Spirit Day: JSE is the dream team!
+🦸 Friday — Every Day Heroes: Show some love for your everyday hero and dress like them!
+
+We can’t wait to see everyone’s school spirit!
+
+#WeAreJSE
+
+### 2026-10-20 · Barbara Clardy (id 13475535)
+
+The perfect match! 🖤🤍
+
+#TwinningTuesday
+#WeAreJSE
+
+### 2026-10-21 · Barbara Clardy (id 13553997)
+
+We may be busy with conferences, but just look at these kiddos being busy with their THABs! 💪 Thanks to Mrs. Breashears for keeping our students active over the break! 🎉
+
+#WeAreJSE
+

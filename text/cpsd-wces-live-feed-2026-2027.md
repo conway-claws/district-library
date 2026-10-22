@@ -1371,3 +1371,27 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-16 · Conway Public Schools (id 13377394)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-19 · Jenna Havlik (id 13526394)
+
+Third Grade enjoyed their field trip to UCA’s Planetarium to kick off their new Literacy module: Outer Space!🪐
+
+### 2026-10-19 · Woodrow Cummins Elementary (id 13528585)
+
+Dear Wampus Cats Families,With cooler weather right around the corner, now is the perfect time to cozy up with a Conway Wampus Cats blanket! We are so close to reaching our fundraising goal; we only need to sell 7 more blankets! Every purchase helps us reach our goal, and we would love your support.⏰ The LAST day to order is October 22! Don't wait until it's too late!Choose from two great designs featuring our Conway Wampus Cats or the WCE Little Cats. To purchase, simply scan the QR code on the attached flyer or visit the WCE Blanket Fundraiser ORDER.Thank you for supporting our Wampus Cats! Let's sell those last 7 blankets and reach our goal together!Go Wampus Cats! 💙🐾
+
+### 2026-10-21 · Woodrow Cummins Elementary (id 13557792)
+
+Check out our Little Cat Chronicle!
+
+### 2026-10-21 · Jenna Havlik (id 13560451)
+
+Don't miss out on your last chance to get a warm, cozy blanket to snuggle up with as the weather gets colder! Go to https://mydesigns.teamthrows.com/f/wce-blanket-fundraiser/ to enter your order! Order window closes Oct. 22!
+

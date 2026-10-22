@@ -1125,3 +1125,102 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-16 · Conway Public Schools (id 13377403)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Rachel Fowler (id 13498897)
+
+Have you ever seen a classroom turn into a living cell? 🧫✨ Mrs. Sellers ran an amazing kinesthetic lesson for her 6th graders about organelles!
+
+• Entry: Students drew UNO cards at the “cell membrane” (represented by Mrs. Sellers) — blue/green passed through, while yellow/red (the “toxic” cells) had to go to the end of the line and draw again.
+ • Students rotated through organelle stations: mitochondria = jumping jacks ⚡️, cell wall = wall sits 🧱, chloroplasts = basking by a lamp to “photosynthesize” 🌞, nucleus = bossing instructions 🧠.
+ • Leaving class: Students drew again — red/yellow were “waste” and expelled (allowed to leave), blue/green stayed useful and redrew.
+
+💡🧬Hands-on + movement = Science that students remember. It was active, memorable, and connected movement to science content. 
+
+#WeAreRDMS #TeamConway #ActiveLearning
+
+### 2026-10-16 · Rachel Fowler (id 13502246)
+
+🎃🧪🕷️During WIN time, with the help of our fantastic Caring Cats, we explored the exciting world of chemical reactions with a fun, festive Halloween twist! 🕷️🧪🎃
+
+Our students got hands-on with science, making observations, exploring reactions, and learning through a little spooky-season magic! We love making learning fun! 🐾💙🚾
+
+### 2026-10-18 · Erika Easley (id 13508907)
+
+Happy Boss's Day! 
+Today, we are celebrating three incredible leaders who help make RDMS such a special place!
+
+🐾 Mr. Kelly, Mrs. Oates, and Mr. Stacks 🐾
+
+Each of you brings something unique to our school, but you all share one thing in common: a heart for our students, staff, and the RDMS family! ❤️
+
+### 2026-10-18 · Rachel Fowler (id 13514379)
+
+Snow Cones for $3 each! 
+
+Monday, October 19 during lunch/activity time
+
+RDMS Washington, DC is hosting a Spring Break Trip Fundraiser!
+
+Bright flavors, smiling faces, and a great cause — bring your friends and support our trip!#WeAreRDMS #TeamConway
+
+### 2026-10-19 · Conway Athletics (id 13528301)
+
+Ruth Doyle Girls Basketball  hustler of the week is Aviana Greenlaw.
+
+### 2026-10-19 · Rachel Fowler (id 13514459)
+
+🎉RDMS Ambassadors are making a final push at Paws for a Cause: Stuff The Trailer!!🐾
+
+📅When: ends October 21
+
+❓What: Food Drive to benefit Soul Food Cafe. Soul Food Cafe has consistently served as a district partner to help Conway Wampus Cats who are in need. Now it is our turn to give back!
+
+🚙How: Drop your donations off in front of RDMS! 📝Label donations with students 3rd period homeroom teachers name! Which 3rd period homeroom can collect the most items?
+
+Items that make good donations are shelf-stable, can be prepared easily, something a kid could make on their own and would actually want to eat.
+
+### 2026-10-20 · Rachel Fowler (id 13521036)
+
+📣 Parent/Teacher Conferences
+
+ 📅Wednesday, October 21
+ ⏰ 10:00 AM – 7:00 PM
+
+ 🍽️ Please note: The building will be closed from 4:00–5:00 PM so teachers can take a dinner break.
+
+ Unable to attend? You can message your student’s teacher on Rooms through the CPSD App.
+
+We will be selling previous Wampus Cat and Ruth Doyle T-shirts for $10 during Conferences! We can only accept cash as payment.
+
+#WeAreRDMS #TeamConway
+
+### 2026-10-21 · Rachel Fowler (id 13549692)
+
+Good morning RDMS Families!
+
+A quick update for Parent/Teacher Conferences: Our Spanish interpreter will be on Ruth Doyle campus from 5pm to 7pm tonight.
+
+We look forward to seeing all of our families today!
+
+### 2026-10-21 · Rachel Fowler (id 13514490)
+
+Want to make a difference and have fun doing it? Join us for Red Ribbon Week — Oct 26–30! Theme: “Make A Difference. Be A Hero. Stay Drug Free.™”
+
+Day-by-day fun:
+ 📅 Oct 26 — “Listen to Unc Day”: Dress like an elder. Learn from others’ experiences and listen.
+ 📅 Oct 27 — Student/Teacher Clone Day or Wear Red Day ❤️Students dress like teachers; teachers dress like students — or wear red to show your support.
+ 📅 Oct 28 — “Anything but a Cap”: No hats — wear headbands, bows, sunglasses, crazy hair — get creative and put a lid on bullying.
+ 📅 Oct 29 — “NPC Day”: Minimalist vibes — gray hoodies, plain tees, jeans.
+ 📅 Oct 30 — “Character Day” or show Wampus Cat pride in blue & white 🐾
+
+Guidelines: School-appropriate costumes only. No full-face masks/makeup, no dangerous props, and blow-up costumes must stay deflated in class.
+
+#WeAreRDMS #TeamConway #RedRibbonWeek #StayDrugFree
+

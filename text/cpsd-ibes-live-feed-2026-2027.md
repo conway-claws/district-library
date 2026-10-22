@@ -796,3 +796,79 @@ It takes serious experience to run a championship food service program! Did you 
 
 Tonight is our 3rd and 4th grade musical! We hope to see you there!
 
+### 2026-10-15 · Ida Burns Elementary (id 13495118)
+
+Tonight is our 3rd and 4th grade musical. Dress in your Sunday best or like you are out on the town for a movie night. Doors open at 6:00 pm and show starts at 6:30.  Students should arrive NO LATER than 6:20.
+
+### 2026-10-16 · Conway Public Schools (id 13377393)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-18 · Ida Burns Elementary (id 13513162)
+
+Tomorrow is the BIG day! We can't wait to see you at our annual Trunk or Treat!!
+
+### 2026-10-18 · Ida Burns Elementary (id 13514424)
+
+Here is our parent newsletter for the week of 10-19-26.  
+https://app.smore.com/n/xz8dc
+
+### 2026-10-19 · Ida Burns Elementary (id 13526088)
+
+Papa John's Pizza Day is Oct 20th. Ida Burns PTO receives 20% of all sales. The guest will receive30% off their order. ***CODE DOUGH MUST BE USED DURING ONLINE ORDERING, OVER THE PHONE, OR IN PERSON TO RECEIVE CREDIT FOR SALES***
+
+### 2026-10-20 · Caroline Baker (id 13534558)
+
+Papa John's Pizza Day is Oct 20th. Ida Burns PTO receives 20% of all sales. The guest will receive30% off their order. 
+
+***CODE DOUGH MUST BE USED DURING ONLINE ORDERING, OVER THE PHONE, OR IN PERSON TO RECEIVE CREDIT FOR SALES***
+
+### 2026-10-20 · Caroline Baker (id 13535349)
+
+We will host our parent teacher conferences on Wednesday, October 21st from 10:00 to 7:00. We would love to see you all!!
+
+### 2026-10-20 · Ida Burns Elementary (id 13526127)
+
+Papa John's Pizza Day is TODAY!!!!!!!!!!!!!!!!!  Ida Burns PTO receives 20% of all sales. The guest will receive30% off their order. ***CODE DOUGH MUST BE USED DURING ONLINE ORDERING, OVER THE PHONE, OR IN PERSON TO RECEIVE CREDIT FOR SALES***
+
+### 2026-10-21 · Caroline Baker (id 13556040)
+
+Honoring Our Heroes This Veterans Day!
+
+Dear Ida Burns Families,
+
+This Veterans Day, we want to take a special opportunity to honor the brave men and women who have served our country!
+
+At Ida Burns Elementary, we know that many of our students and families have loved ones who have proudly served in the United States Armed Forces. This year, we would love to recognize these special individuals by creating a Veterans Day slideshow featuring photographs of our very own Ida Burns family heroes!
+
+We invite you to submit a photograph of a veteran in your family, along with the following information:
+
+- Veteran's Name
+- Branch of Military
+- Military Rank
+- Relationship to an Ida Burns Student or Staff Member (Example: Grandfather of Emma, 2nd Grade)
+- Photograph of the Veteran
+
+Please note: To protect the privacy of our students, only their first names will be included in the slideshow.
+
+Please email your photograph and information to bakerca@conwayschools.info.
+
+We kindly ask that all photographs be submitted digitally through email rather than sending original photographs to school. We know how precious these family photographs can be, and we would hate for a treasured photo to be accidentally lost or damaged.
+
+Whether your loved one is currently serving, has previously served, or is no longer with us, we would be honored to recognize their service and sacrifice.
+
+We are grateful for the courage, dedication, and sacrifices of our veterans, and we look forward to sharing these special individuals with our Ida Burns school family.
+
+Thank you for helping us teach our students the importance of honoring those who have served our country!
+
+With gratitude,
+
+Mrs. Baker  
+Principal, Ida Burns Elementary
+
+Home of the Wampus Cats!
+

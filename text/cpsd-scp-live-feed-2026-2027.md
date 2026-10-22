@@ -466,3 +466,30 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-16 · Conway Public Schools (id 13377392)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-19 · Sallie Cone Preschool (id 13515530)
+
+Our September Staff Member of the Month is someone who has shown what it means to be a dependable teammate and leader. When staff members were asked why this person deserves this recognition, a common theme stood out—this is someone others can count on. This staff member has stepped up and has gone above and beyond to help others adjust to the expectations and routines of our school. Whether it’s lending a hand, answering a question, listening when someone needs support, or simply doing whatever needs to be done, this person never hesitates to step in and help. Coworkers described this staff member as an amazing teacher who is always willing to do whatever is necessary to help both students and staff succeed. When something needs to be done, this person doesn’t wait for someone else to handle it—they step in and help get it done. This staff member represents exactly what it means to be part of Team Sallie Cone: being a leader, a listener, a helper, and most importantly, a teammate others know they can depend on. So, it is my pleasure to announce that our September Staff Member of the Month is...
+
+### 2026-10-19 · Sallie Cone Preschool (id 13515544)
+
+Our October Staff Member of the Month is someone whose positivity and kindness make a difference in our school every single day. When staff members were asked why this person deserves this recognition, one thing came through loud and clear—this person brings joy to the people around them. Coworkers shared that this staff member is always smiling and brings sunshine to even the roughest days. They also talked about the amazing job this person does with our students. You can see that impact just by walking into the classroom and noticing how attentive, engaged, and connected the students are. But the impact doesn’t stop with the students. This person was also described as a GREAT co-teacher—someone you can count on, someone who supports the people they work with, and someone who will always have your back. This staff member represents so much of what Team Sallie Cone is all about: positive, supportive, dependable, and always focused on doing what is best for our Littlest Cats. So, it is my pleasure to announce that our October Staff Member of the Month is
+
+### 2026-10-19 · Marci Martin (id 13526799)
+
+🍂 FALL FAMILY ENGAGEMENT EVENT 🍂
+
+Before or after your child’s conference, be sure to stop by the cafeteria and join us for our Fall Family Engagement Event!
+
+Come enjoy a little fall fun with your Littlest Cat! 💙🐾
+
+Open during Parent-Teacher Conferences
+Closes at 6:30 PM to allow time for clean-up.
+

@@ -625,3 +625,55 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-15 · Courtway Middle School (id 13493814)
+
+Congratulations to our September Employee of the Month, Crystal Hansen! 💙 We’re so lucky to have her at Courtway and appreciate all she does for our students and staff!
+
+Thank you to the Misty Givens Agency for sponsoring our Employee of the Month!
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-16 · Conway Public Schools (id 13377402)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-20 · Courtway Middle School (id 13539904)
+
+Dear Courtway Families,We have a few important reminders as we wrap up this week and look ahead to next week at CMS!Parent-Teacher Conferences – Wednesday, October 21Parent-Teacher Conferences will be held tomorrow, October 21, from 10:00 AM to 7:00 PM. Conferences are drop-in, so no appointment is needed! Families are welcome to stop by anytime during conference hours to visit with teachers about their student's progress.Please enter through the front office doors. Student schedules will be available if you need a copy to help locate your student's teachers.Please keep in mind that our teachers will be taking short dinner breaks between 4:00 and 6:00 PM. If you stop by and a teacher is unavailable, they should return shortly. We appreciate your patience and understanding!Fall Break – October 22–23There will be no school for students on Thursday, October 22, or Friday, October 23, for Fall Break. We hope everyone enjoys the long weekend!Red Ribbon Week – October 26–30When students return on Monday, we'll kick off Red Ribbon Week! We have a fun week of dress-up days planned as we encourage students to make healthy, drug-free choices.Monday, October 26 – Heroes Wear Red! Wear red for Red Out Day.Tuesday, October 27 – Team Up Against Drugs! Wear your favorite team jersey, team colors, or school spirit gear.Wednesday, October 28 – Heroes Don't Hide Behind a Mask! Wear a superhero shirt or superhero colors.Thursday, October 29 – Dream Big. Be a Hero! Pajama Day!Friday, October 30 – Scare Away Drugs! Halloween Costume Day!Important Costume Reminders for Friday:Students are welcome to wear Halloween costumes to school on Friday, October 30! However, the following items will NOT be allowed:Face paintMasksFake bloodFake weaponsAll costumes should be school-appropriate and allow students to participate in their regular school day.We look forward to seeing our Courtway families at conferences tomorrow! Enjoy Fall Break, and we can't wait to see our students back on Monday for Red Ribbon Week!Courtway Middle School
+
+### 2026-10-20 · Courtway Middle School (id 13540001)
+
+We can't wait to see our Courtway families tomorrow! 💙
+
+Parent-Teacher Conferences are Wednesday, October 21, from 10:00 AM–7:00 PM. No appointment needed—just drop in!
+Please enter through the front doors. Student schedules will be available if you need a copy to help find your student's teachers.
+Teachers will be taking short dinner breaks between 4:00–6:00 PM, so if a teacher isn't available when you stop by, they'll be back shortly!
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-21 · Courtway Middle School (id 13540061)
+
+When we return from Fall Break, we're kicking off Red Ribbon Week, October 26–30! We've got a fun week of dress-up days planned as we encourage our students to make healthy, drug-free choices!
+
+❤️ Monday: Heroes Wear Red! – Red Out Day
+🏈 Tuesday: Team Up Against Drugs! – Wear your favorite team jersey, team colors, or school spirit gear.
+🦸 Wednesday: Heroes Don't Hide Behind a Mask! – Wear a superhero shirt or colors.
+💤 Thursday: Dream Big. Be a Hero! – Pajama Day
+🎃 Friday: Scare Away Drugs! – Halloween Costume Day
+
+A reminder for Friday: Costumes are welcome, but face paint, masks, fake blood, and fake weapons are NOT allowed. All costumes must be school-appropriate.
+
+We can't wait to see our Wampus Cats show their spirit next week!
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-22 · Courtway Middle School (id 13559577)
+
+Mrs. Havens’ and Mrs. Armstrong’s classes had an ELA Cafe Day! 🍂📚 Students enjoyed a fall cookie, bookmark, and hot chocolate while spending the class period quietly reading. Such a cozy way to slow down and enjoy a good book!
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+

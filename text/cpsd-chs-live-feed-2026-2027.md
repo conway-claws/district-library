@@ -2855,3 +2855,288 @@ Luci Gutierrez (senior) placed 4th in Song Lyric Interpretation and 5th in Progr
 Dylan Simmons (senior) placed 3rd in Varsity IPDA debate and 3rd place varsity IPDA speaker.
 Mikah Roberts (sophomore) placed 3rd in Novice Lincoln-Douglas Debate and 2nd place novice LD speaker.
 
+### 2026-10-15 · Conway High School (id 13490501)
+
+📚 Great Discussions, Deeper Connections!
+
+Yesterday, Mr. Terrell’s AP English Literature students dove into The Kite Runner by Khaled Hosseini through an engaging fishbowl-style seminar! 🗣️
+
+By sharing ideas, asking questions, and building on one another’s perspectives, students explored the novel in a collaborative discussion that brought literature to life. Way to think critically and learn from one another, Wampus Cats! 💙🤍
+
+#WampusCats #APEnglishLiterature #ConwayHighSchool
+
+### 2026-10-15 · Conway Athletics (id 13489296)
+
+Conway Cross Country had a great day at our home meet! 💙🤍
+
+🏆 Senior High Boys & Girls — 1st Place! 🥈 Junior High Boys — 2nd Place! 
+🏅Junior High Girls — Two runners in the Top 6!
+
+We are proud of our Wampus Cats and their hard work! Way to run, Conway! 🐾
+
+#WampusCatPride #ConwayXC
+
+### 2026-10-15 · Conway High School (id 13490823)
+
+🌴🎟️ FINAL DAY TO BUY HOMECOMING TICKETS! 🎟️🌴
+
+It’s your last chance to get your ticket for Homecoming 2026: A NIGHT IN RIO! 🎶💃🏽
+
+💻 Digital Tickets: $27.25 on GoFan
+
+🎟️ Buy your ticket here:
+https://gofan.co/event/6933857?schoolId=AR4663_2
+
+⏰ Online ticket sales end TONIGHT at MIDNIGHT!
+
+🚨 Having trouble finding the tickets? If you visit GoFan’s website directly, search for Conway High School and select the black-and-white GoFan icon — NOT the Wampus Cat head!
+
+🌴 Don’t wait until it’s too late! No tickets will be sold at the door, so make sure you secure your spot tonight! 🪇✨
+
+#ConwayHighSchool #WampusCats #Homecoming2026 #ANightInRio
+
+### 2026-10-15 · Conway High School (id 13492162)
+
+✍️📚 Inspiring the Next Generation of Writers!
+
+Author Cindy Bonds, who has published seven novels and a novella, visited Mrs. Cochran’s Creative Writing class today to share her expertise and experience as an author!
+
+Students learned about strategies for staying motivated as writers, along with the publishing and editing process. They asked thoughtful questions and received valuable ideas and feedback to help them strengthen their writing and pursue their own publishing goals.
+
+Thank you, Cindy Bonds, for sharing your knowledge and encouraging our aspiring authors! 🐾📖
+
+#WampusCats #CreativeWriting #FutureAuthors
+
+### 2026-10-16 · Conway Public Schools (id 13377407)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Beth Fluesmeier (id 13499817)
+
+Here is the link for the football program for tonight's homecoming game.
+Conway vs Central
+
+
+https://indd.adobe.com/view/b2ba41cf-8bbe-47ce-a3c6-5ca7102d3ce7
+
+### 2026-10-16 · Marcelle Goins (id 13504092)
+
+It's Homecoming tonight at Conway. We would love to see you in attendance. If you can't make it, please use to link below to support our students!!! 
+
+🔗 https://youtube.com/live/OhJIKOWFd8w?feature=share
+
+### 2026-10-16 · Beth Fluesmeier (id 13500021)
+
+Thank you Living Stone for being tonight's game sponsor.
+
+### 2026-10-16 · Conway High School (id 13506851)
+
+🌴🎉 What an incredible day to be a Wampus Cat! Our 2026 Homecoming Assembly, A Night In Rio, brought energy, excitement, and plenty of Wampus Cat spirit to the floor!
+
+From the presentation of the 2026 Homecoming Court and the parade of school clubs to performances by Step Team, Cheer, Dance, Student Council, Crunk Crew, Band, Orchestra, and Choir, the assembly was packed with entertainment! The senior football players and their moms brought their own special flair, while games and Student Council's Take Me To Rio skit kept the excitement going. Six Leg Media kicked things off with a fantastic video celebrating our athletes and helped bring the assembly to our community through a live stream.
+
+A huge THANK YOU to Student Council sponsors Ms. Kordsmeier and Mr. Spiridigliozzi for their hard work in making this event happen, as well as all the teachers and staff who helped bring it all together. Special thanks to Six Leg Media for sharing their lighting and camera expertise to make the live stream possible for our community!
+
+💙🤍 Now that's Wampus Cat spirit! 🐾
+
+#WampusCats #Homecoming2026 #ANightInRio
+
+### 2026-10-16 · Conway Athletics (id 13507199)
+
+Conway Baseball 9th -12th Grade Tryouts Tryout dates for students new to Conway High School and Conway Junior High School wanting to participate in baseball for the 2026-2027 school year will be November 2-5. A current physical must be entered into DragonFly Max in order to participate. Email hardinl@conwayschools.info to sign up and for additional information
+
+### 2026-10-17 · Conway Athletics (id 13507766)
+
+Conway Baseball Big Brother Program. Scan the QR Code to sign up
+
+### 2026-10-19 · Conway High School (id 13367167)
+
+🎓 Reminder for Senior Parents & Students!
+
+Our FAFSA Parent Night is coming up Wednesday, October 21, from 4–6 p.m. in the CHS Lecture Hall, held in conjunction with Parent/Teacher Conferences.
+
+Financial aid representatives from local colleges will be on hand to help families complete the FAFSA and SAMS application for the Arkansas Academic Challenge Scholarship.
+
+Before attending, families are encouraged to:
+✔️ Create a FAFSA ID at studentaid.gov
+✔️ Bring parents' 2025 tax returns
+✔️ Reach out to your counselor with any questions
+
+We look forward to helping our senior families navigate the financial aid process! 💙
+
+### 2026-10-19 · Conway Athletics (id 13506070)
+
+Although it's Fall Break, we still would love to see you out supporting our student athletes!
+
+### 2026-10-19 · Conway High School (id 13520056)
+
+🍽️💙 Support CHS FBLA and Save at Local Restaurants! 💙
+
+Looking for a great deal? CHS FBLA is selling discount cards for just $10! These cards are packed with great deals at local restaurants and are valid through April 30, 2027. 🥳
+
+Ready to save while supporting our FBLA students? Fill out the Google Form at the link below and pay through GoFan. Once your purchase is complete, we'll get your discount card to you!
+
+Thank you for supporting CHS FBLA! 🐾💙
+
+🔗 Purchase your discount card: https://forms.gle/DpEgZLRSDwqEoPSJ9
+
+### 2026-10-19 · Conway Athletics (id 13521998)
+
+If you are planning on attending the JV Football game tonight at Cabot, please use the link below to purchase your tickets.
+
+Link: https://www.vancoevents.com/us/events/landing/67124?
+
+### 2026-10-19 · Conway High School (id 13522562)
+
+👕 Cozy Gear, Amazing Support! 💙
+
+Shoutout to Conway Corp and Conway Area Apprenticeship for helping make our sweatshirts possible! Thank you for being amazing supporters of Conway High School! 💙👏
+
+#WampusCatPride #CommunityPartners #GoWampusCats
+
+### 2026-10-19 · Conway High School (id 13520570)
+
+❤️🫀 Learning skills that can save lives!
+
+Last week, our Foundations of Healthcare students put their learning into action as they practiced the skills needed to earn their CPR certification! 🩺
+
+Students learned adult, child, and infant CPR, how to respond to choking emergencies, and other vital lifesaving skills.
+
+These future healthcare professionals are building the knowledge, confidence, and hands on skills to step up when it matters most! ❤️👏
+
+#FoundationsOfHealthcare #CPRTraining #FutureHealthcareProfessionals #HandsOnLearning #LifeSavingSkills #6legsstrong #CACC #ConwayPublicSchools
+
+### 2026-10-19 · Conway High School (id 13524096)
+
+🎉 Homecoming Week: We Understood the Assignment! 🎉
+
+Our Wampus Cats brought the creativity, the school spirit, and the fun all week long! 💙🤍 From themed outfits to coordinated group looks, our teachers and staff joined in the Homecoming spirit right alongside our students. 🐾
+
+Homecoming Week was one for the books, culminating in an awesome assembly led by Student Council, a big win over Little Rock Central, and a fantastic night at the Homecoming Dance! 🎉
+
+Thanks to everyone who helped make the week one to remember. That’s Wampus Cat spirit! 💙🤍
+
+#WampusCatPride #CHSHomecoming #Homecoming2026
+
+### 2026-10-20 · Canaan Groesbeck (id 13511787)
+
+Senior night and our last conference match! Make sure you come out and watch this fun group at Buzz Bolding Arena for their last home game! Going to be a great night of volleyball! 
+
+Ticket Link: https://gofan.co/event/6687093?schoolId=AR4663
+
+Live Stream: https://youtube.com/live/vD8TPBIDCIY?feature=share
+
+### 2026-10-20 · Canaan Groesbeck (id 13484260)
+
+There is still time to help support Emmersyn in her fight!! Click the link below to donate. 
+
+The link will close on October 30th! 
+Donation Link: https://gofan.co/event/6934068?schoolId=AR4663
+
+### 2026-10-20 · Conway High School (id 13521089)
+
+🔎 What makes a good research question? Mrs. Pierce’s AP Seminar students tackled that question through a collaborative, hands-on workshop!
+
+Thanks to the Science Department for sharing the third-floor hallway whiteboards! Students worked in groups to draft research questions, then used a checklist to provide constructive feedback to their classmates. With everyone up and moving, students shared insightful comments and helped one another refine their questions.
+
+This collaborative activity strengthened students’ understanding of one of the most important first steps in the research process: developing a strong research question! 💡📚
+
+#WampusCats #APSeminar #LearningInAction
+
+### 2026-10-20 · Conway High School (id 13540874)
+
+📣 Parent-Teacher Conferences at CHS
+
+Conway High School will host Parent-Teacher Conferences on Wednesday, October 21, from 10 a.m. to 7 p.m.
+
+Most teachers will be taking lunch from 1pm - 2pm.
+
+This is a great opportunity to connect with your student’s teachers, discuss progress, and ask questions about the school year. We look forward to seeing our Wampus Cat families! 💙🤍
+
+#ConwayHighSchool #WampusCats #ParentTeacherConferences
+
+### 2026-10-21 · Conway High School (id 13521171)
+
+CHS Asian Club: A Taste of Japan Through Onigiri
+
+CHS Asian Club students enjoyed a special cultural experience during their 2nd meeting! We were honored to welcome Dr. Reed, a Japanese professor at UCA who was born and raised in Japan. Dr. Reed introduced students to onigiri, traditional Japanese rice balls, while sharing the fascinating history and cultural significance behind this beloved Japanese food. Students then rolled up their sleeves and had fun making their own onigiri! 🍙 
+
+Often featured in Japanese anime and YouTube videos, onigiri is a simple, affordable, and delicious Japanese snack or light meal. Students were excited to bring something they had seen on screen to life through this fun, hands-on experience! 
+
+🌏 Sponsored by Mrs. Chen, CHS Mandarin Chinese teacher, the Asian Club provides students with exciting opportunities to explore and celebrate the rich diversity of Asian cultures through food and interactive activities. 
+
+#CHSAsianClub #ConwayHighSchool #Onigiri #JapaneseCulture #LearningBeyondTheClassroom
+
+### 2026-10-21 · Conway High School (id 13553296)
+
+🎃 Welcome to the Caring Cats Pumpkin Patch! 💙
+
+Each month, our Caring Cats Club brings buddy leaders and their buddies together for fun, friendship, and inclusive activities that allow students of all abilities to participate.
+
+This month was all about pumpkins! Students chose to carve, paint, or decorate their pumpkins based on their interests and abilities. We enjoyed some fresh air, creativity, and lots of laughs!
+
+Their creations turned out too good not to share, so we turned an area of CHS into our very own Caring Cats Pumpkin Patch! 🎃💙
+
+A little creativity, a lot of friendship, and a reminder that inclusion is about creating opportunities for everyone to shine!
+
+### 2026-10-21 · Conway Athletics (id 13549163)
+
+If you plan on traveling to PA to support the Wampus Cats Friday, please purchase your tickets using the link below. Tickets are sold on a first come first serve basis. No tickets will be sold at the gate. 
+
+Ticket link: https://gofan.co/event/6805272?schoolId=AR4735
+
+### 2026-10-21 · Conway Athletics (id 13558403)
+
+LADY CATS | BIG MILLER MEDIA DAY 
+
+The Conway Lady Cats enjoyed being part of Big Miller Media Day! A great opportunity for our players to represent our program and build excitement for the upcoming season.
+
+Thank you to Big Miller for having us and continuing to shine a spotlight on high school basketball across Arkansas!
+
+Ready for the 2026–2027 season! 🚾 🏀
+
+### 2026-10-21 · Katy Gorden (id 13558201)
+
+Conway Cheer is selling sweatshirts and T-shirts to help our team get to Nationals! There are different colors, sizes, and designs to choose from.
+
+If you’d like to support our girls, you can place your order at the link below!
+
+https://conwaycheer.itemorder.com/shop/home/
+
+Thank you for supporting Conway Cheer!
+
+### 2026-10-22 · Canaan Groesbeck (id 13536240)
+
+Last regular season game for your Lady Cat volleyball team! They are heading to Benton tonight! Good luck, girls! 
+
+Ticket Link: https://gofan.co/event/6715965?schoolId=AR4663
+
+### 2026-10-22 · Conway Athletics (id 13549913)
+
+Big shout-out to Conway Corp for all the support. Tonight, they will be live streaming the Jr. High Football Game vs. Pine Bluff. Please use the link below to view!
+
+Link: https://youtube.com/live/jGaVxcqsXuY?feature=share
+
+### 2026-10-22 · Conway High School (id 13521549)
+
+Last week, our CHS Spanish Club wrapped up Hispanic Heritage Month with a fun-filled meeting celebrating Mexican culture, creativity, and the Spanish language! ❤️💚🤍
+
+🌟 Electing Our New Officers!
+Students elected their new Spanish Club officers, who will help lead our club and plan exciting activities throughout the year. Congratulations to our newly elected officers!  President: Hazly Garcia Flores, Vicepresident: Max Yoder, Secretary: Sidney Hinojosa, Treasure/Photographer: Briana Mendez. We look forward to seeing all the wonderful things you will accomplish!
+
+🎨🍪 Creative Mexican Sombreros!
+Students put their creativity to work by making adorable Mexican sombreros using cookies, chocolate, gummies, and icing. The results were colorful, delicious, and full of personality! Our newly elected officers had the important job of choosing the three best sombreros. Congratulations to our winners! 🏆👒
+
+ A Spanish Number Guessing Challenge!
+We also played a fun guessing game in which students had to guess a number and write it out correctly in Spanish words. Congratulations to Caden Harris, who came closest to guessing the number and won the prize! 🎁 ¡Muy bien, Caden!
+
+It was a wonderful way to conclude Hispanic Heritage Month while celebrating friendship, teamwork, cultural appreciation, and learning Spanish beyond the classroom.
+
+A big thank-you to all our students for participating and making our Spanish Club meeting such a success! We can't wait for our next adventure! 🌎✨
+
+¡Viva la cultura! ¡Viva el español! ❤️💛💚
+

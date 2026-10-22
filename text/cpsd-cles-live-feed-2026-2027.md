@@ -1657,3 +1657,122 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-15 · Carolyn Lewis Elementary (id 13486286)
+
+🐾 Final Push! Our Fundraiser Ends at Midnight Tonight! 💙
+
+Thank you to all our families for supporting our school fundraiser! Your donations help provide fun events and activities for our students and teachers.
+
+There’s still time to contribute before collections close at midnight tonight! Every donation makes a difference. 💙
+
+Thank you for helping our school community thrive!
+
+#WeAreCLE
+
+### 2026-10-15 · Carolyn Lewis Elementary (id 13457448)
+
+📸 Yearbook Picture Reminder! 💙
+
+Tomorrow, Friday, October 16, is yearbook picture day for our 1st, 2nd, and 3rd grade students! 📷 Get those smiles ready, Little Cats! 🐾
+
+#WeAreCLE
+
+### 2026-10-16 · Conway Public Schools (id 13377396)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Carolyn Lewis Elementary (id 13444494)
+
+🚔😄 Sgt. Worley is always ready to share a little fun with our Little Cats! Whether it’s playing a game with students or sharing one of his famous dad jokes, he always finds a way to bring smiles and laughter to CLE. We’re thankful to have an SRO who builds such positive connections with our students! 💙🐾
+
+#WeAreCLE
+
+### 2026-10-16 · Carolyn Lewis Elementary (id 13502297)
+
+🐾 Volunteers Needed for Our Little Cat-A-Thon Color Run! 🎨
+
+We need volunteers on Monday, October 19, to help at assigned stations during our Little Cat-A-Thon Color Run Fundraiser!
+
+📲 Sign up to volunteer here:
+https://www.signupgenius.com/go/70A0F4FA4A72AA1FA7-66779477-volunteer
+
+Please note: This volunteer opportunity is intended to support the event and is not an opportunity to travel with your child’s class.
+
+Thank you for supporting CLE and helping make this event a success! 💙
+
+#WeAreCLE
+
+### 2026-10-16 · Carolyn Lewis Elementary (id 13502878)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-10-18 · Carolyn Lewis Elementary (id 13451932)
+
+📣 Reminder, CLE Families! 💙🐾
+CLE school sweatshirt orders are due THIS MONDAY, October 19th! 💙
+#WeAreCLE
+
+### 2026-10-19 · Carolyn Lewis Elementary (id 13444592)
+
+Kindergarten looked great wearing their purple on purple day! #WeAreCLE
+
+### 2026-10-19 · Carolyn Lewis Elementary (id 13444681)
+
+Mrs. Tufu’s class loved welcoming special guests into our classroom to make reading even more magical! ✨ #WeAreCLE
+
+### 2026-10-20 · Joshua Smith (id 13527573)
+
+💙🐾 Staff of the Month – Pam Acklin! 🐾💙
+
+We are excited to recognize our cafeteria manager, Mrs. Pam Acklin, as our Staff Member of the Month!
+
+Since becoming our manager, Mrs. Pam has kept our cafeteria running smoothly and efficiently while making sure our Little Cats are well-fed each day!
+
+And the food? Delicious! 😋 Chicken Thursdays are definitely a staff favorite! 🍗
+
+Thank you, Mrs. Pam, for your hard work, leadership, and all you do for Team CLE! We appreciate you! 💙🐾
+
+#WeAreCLE
+
+### 2026-10-20 · Carolyn Lewis Elementary (id 13486454)
+
+📣 REMINDER: Parent Teacher Conferences are TOMORROW! 🐾
+
+We look forward to seeing our CLE families on Wednesday, October 21, from 10:00 AM to 7:00 PM! 💙
+
+We can’t wait to connect with you about your child’s progress!
+
+#WeAreCLE
+
+### 2026-10-20 · Joshua Smith (id 13540127)
+
+🍕💙 Pizza Night for Team CLE! 🐾
+
+Skip cooking tonight and support Carolyn Lewis Elementary!
+
+Order Marco’s Pizza TODAY, Tuesday, October 20, from 11 AM–11 PM!
+
+🍕 10% of proceeds will be donated to Carolyn Lewis Elementary!
+
+📍 Marco’s Pizza – 2501 Dave Ward Drive, Conway
+
+📱 Ordering online? Use code Blue at checkout. You can also show or mention the flyer when ordering!
+
+Grab some pizza, enjoy an easy dinner, and help support our Little Cats! 💙🐾
+
+#WeAreCLE
+
+### 2026-10-21 · Carolyn Lewis Elementary (id 13486546)
+
+🌱🌿 TODAY IS THE CLE PLANT SALE! 🌿🌱
+
+Stop by CLE during Parent Teacher Conferences today, Wednesday, October 21, from 10:00 AM–7:00 PM! We’ll be set up in front of the school with cool-season vegetables and assorted houseplants for sale. 🪴🌼
+
+We hope to see you there! 💙💛
+
+#WeAreCLE
+

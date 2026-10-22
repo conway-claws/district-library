@@ -1582,3 +1582,87 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-15 · Audrey Cooper (id 13489686)
+
+🐾 First Grade is Kicking Off Module 2: Creature Features! 🐘🦉
+
+Our first graders are diving into their new Arts & Letters module, Creature Features, as they explore the essential question: "What do people learn by studying animals?”*🐾
+
+Today, students enjoyed reading Seven Blind Mice and practiced their observation and writing skills by sharing what they noticed in the story. 🐭✏️
+
+We can't wait to see their curiosity grow as they discover more about animals and the lessons they can teach us! 📚💙
+
+#WeAreMVE
+
+### 2026-10-16 · Conway Public Schools (id 13377401)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Audrey Cooper (id 13506036)
+
+💙🤍 Celebrating Our September Stars at Marguerite Vann!*🐾🌟
+
+Please join us in congratulating our  September Teacher of the Month, Ms. Etter, and our September Employee of the Month, Ms. Schneider!🎉👏
+
+These two amazing ladies go above and beyond to make Marguerite Vann a special place for our students and staff. Their dedication, hard work, and caring hearts make a difference every single day!
+
+💙 A special THANK YOU to Misty Givens for your generous support and for helping us celebrate our outstanding staff! We appreciate you!
+
+Congratulations, Ms. Etter and Ms. Schneider! We are so lucky to have you as part of our Little Cat Viking family! 💙🤍🐾
+
+#WeAreMVe#LevelUp
+
+### 2026-10-16 · Audrey Cooper (id 13506216)
+
+🍫🔥 S’more Fun with Our Sunshine Crew!☀️💙
+
+Our Sunshine Crew had a SWEET Fun Friday making delicious s’mores! 🍫🍪 From creating their tasty treats to enjoying every bite, it was a day filled with smiles, laughter, and sweet memories!
+
+There’s nothing s’more special than learning, laughing, and making memories together! 💙🤍
+
+#WeAreMVE
+
+### 2026-10-18 · Audrey Cooper (id 13513705)
+
+📚 A Spooktacular Reading Adventure! 🧵🎃
+
+Mrs. Brown’s and Mrs. Cardin’s classes enjoyed reading The Little Ghost Who Was a Quilt! After reading, students got creative and designed their very own "quilt” ghosts to decorate the hallway!
+
+We love seeing literacy and creativity come together at Marguerite Vann! Our hallways are looking BOO-tiful!💙🤍
+
+#WeAreMVE#LevelUp
+
+### 2026-10-18 · Audrey Cooper (id 13513819)
+
+📚💙🤍 Parent-Teacher Conferences are THIS Wednesday! 🤍💙📚
+
+📅 Wednesday, October 21
+⏰ 10:00 AM – 7:00 PM
+
+We look forward to connecting with our Little Cat Viking families to celebrate student growth and discuss goals for continued success! 🐾
+
+📱 Ready to schedule your conference?
+1. Download the CPSD App.
+2. Click Rooms.
+3. Find the SignUpGenius link shared by your child's teacher to select your conference time.
+
+💙 Thank you for partnering with us to help our Little Cat Vikings learn, grow, and succeed!
+
+#WeAreMVE#LevelUp
+
+### 2026-10-19 · Audrey Cooper (id 13522828)
+
+🧲✨ Magnetic Masterpieces in the Making!🎨🔬
+
+Our students put their knowledge of forces and magnets to the test as they designed and created their very own magnetic sculptures!
+
+Through creativity, problem-solving, and hands-on exploration, students discovered how magnetic forces can make their sculptures move or balance. 🧲💡
+
+We love seeing science, creativity, and critical thinking come together as our Little Cat Vikings learn through discovery! 💙🤍
+
+#WeAreMVE#LevelUp
+

@@ -539,3 +539,23 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-16 · Conway Public Schools (id 13377399)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-19 · Matthew Coatney (id 13515460)
+
+🐝🥷🦅🐉 Who will come out on top this round?!
+
+Today we find out which team has earned the most points over the past month! Will it be the Bees, Ninjas, Eagles, or Dragons? 🏆
+
+Our students have been earning points through hard work, kindness, and teamwork. Now it’s time to see who takes the top spot!
+
+### 2026-10-21 · Ellen Smith Elementary (id 13551112)
+
+Having trouble getting Ellen Smith Announcements?  Make sure you OPT in to our notifications.  Text START to the appropriate numbers.
+

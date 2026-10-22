@@ -1170,3 +1170,124 @@ LET’S HAVE SOME FALL FESTIVAL FUN! 🎃
 
 #WeAreCarlStuart #WeAreConway #ChampionsforKids
 
+### 2026-10-15 · Carl Stuart Middle School (id 13494318)
+
+REMINDERS for Friday, October 16: 
+
+1. Friday, October 16, is hat day! Students need to bring $1 to participate. 
+2.If students purchased a Las Delicias Treat, they will receive it at lunch time tomorrow.
+
+### 2026-10-16 · Conway Public Schools (id 13377405)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Carl Stuart Middle School (id 13399481)
+
+During WIN Time, our students participate in D3 (Discipline, Determination, and Dreams) and G3 (Goals, Gratitude, and Generosity) mentor meetings. Each week brings a new topic to help students build character and develop positive habits.
+
+This week’s focus? INTEGRITY! 💙 Before each lesson, students share their “Wins of the Week!” and then dive into what integrity looks like in their everyday choices.
+
+Past topics have included Respect and TNT (Takes No Talent), focusing on simple actions that make a big difference, like turning in work, being on time, and picking up after ourselves.
+
+We are so thankful for mentors like Ms. King, Mrs. Williams, Mrs. Crawford, and Mrs. Downey who invest in our students and help them grow! 🌟
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-16 · Carl Stuart Middle School (id 13507794)
+
+Good afternoon,
+
+Monday, October 19 will be an Incentive Day at Carl Stuart for students who met expectations while taking the ATLAS tests a few weeks ago! We are excited to celebrate our students and recognize their hard work and positive choices.
+
+Students have signed up for fun activity stations to participate in throughout the morning. We will return to our regular schedule after lunch.
+
+Concessions will also be available for students to purchase on Monday.
+
+Thank you for helping us celebrate our students and their accomplishments!
+
+Have a great weekend!
+
+### 2026-10-19 · Carl Stuart Middle School (id 13449091)
+
+🏃‍♀️💗 Our Girls on the Run girls are having SO much fun! Mrs. Downey and Mrs. Franklin are alongside our girls every step of the way, with help from our amazing community partners at Baptist Health! 💙 #WeAreCarlStuart #WeAreConway
+
+### 2026-10-19 · Carl Stuart Middle School (id 13399878)
+
+📖💪 Strong storytelling is a muscle, and Mrs. Irvin’s students are putting theirs to work!
+
+Using strategies from Writing on Command, students studied David Yoo’s short story “Heartbeat” to identify the characteristics that make a story memorable and meaningful.
+
+Next, they’ll put those strategies into practice as they craft captivating moments in their own narratives! 📝✨
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-19 · Carl Stuart Middle School (id 13522098)
+
+📣 Parent-Teacher Conferences – Wednesday, October 21
+
+Join us at Carl Stuart Middle School from 10:00 AM to 7:00 PM to connect with your student’s teachers! 
+
+Teachers will step away from their classrooms at the following times: 
+
+Lunch Breaks:
+🍎 Math, Science, Auxiliary – 11:00 AM to 11:30 AM
+📚 ELA, Reading, Social Studies – 11:30 AM to 12:00 PM
+
+Dinner Breaks:
+🍎 Math, Science, Auxiliary – 4:30 PM to 5:00 PM
+📚 ELA, Reading, Social Studies – 5:00 PM to 5:30 PM
+
+📚 It’s also the FINAL day of the Book Fair! Be sure to stop by and shop while you’re here!
+
+Thank you for helping us make the most of our conference time! 💙🐾
+
+### 2026-10-20 · Carl Stuart Middle School (id 13524190)
+
+📸 Picture Day is Coming! 💙🐾
+
+Mark your calendars! Picture Day at Carl Stuart Middle School is October 27–28!
+
+📅 Tuesday, October 27: 6th & 7th Grade
+📅 Wednesday, October 28: 5th Grade
+
+📝 Students brought home order forms on October 12. Pictures can also be purchased online here:
+https://v2.myproimages.com/strain-photography-schools/61707/search?code=CSMS26
+
+❤️ Don’t forget! Picture Day falls during Red Ribbon Week,.
+
+🤠 October 27: Country Fit vs. Country Club Fab
+🏈 October 28: Name of the Game Is Drug Free – Sports Day
+
+We can’t wait to see those smiles! 
+
+📸💙 #WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-20 · Carl Stuart Middle School (id 13540430)
+
+Picture Day Date Correction!
+
+We apologize for the mix-up in our previous message! Here are the correct Picture Day dates:
+
+📅 October 27: 5th Grade
+📅 October 28: 6th & 7th Grade
+
+Thank you for your understanding!
+
+### 2026-10-21 · Carl Stuart Middle School (id 13523277)
+
+❤️❤️ RED RIBBON WEEK ❤️❤️
+
+Red Ribbon Week is October 26–30, and we’re ready to celebrate living drug-free! Check out the themed dress-up days and join the fun!
+
+❤️ Monday, October 26: Red from Head to Toe
+🤠 Tuesday, October 27: Country Fit vs. Country Club Fab
+🏈 Wednesday, October 28: Name of the Game Is Drug Free – Sports Day
+😴 Thursday, October 29: Take a Nap Rather Than Drugs – Pajama Day
+🎃 Friday, October 30: Halloween Costume Contest
+
+Reminder: All outfits must follow the school’s regular dress code guidelines.
+

@@ -1023,3 +1023,56 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-16 · Julia Lee Moore Elementary (id 13452739)
+
+Fall Festival 2026 was one for the books! 🍂 Beyond thankful to our amazing families, volunteers, and donors who poured so much heart into making this day unforgettable for our school! ❤️ 
+#JuliaLeeMoore #WeAreJLM #FallFestival #JLMCommunity
+
+### 2026-10-16 · Conway Public Schools (id 13377398)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-19 · Julia Lee Moore Elementary (id 13461129)
+
+Piece by piece, making memories together! 🧩🐠
+
+#JuliaLeeMoore #WeAreJLM #Kindergarten
+
+### 2026-10-20 · Julia Lee Moore Elementary (id 13544067)
+
+JLM Grandparent Night is coming up Monday, November 9th, 5-7 pm. Please help us out by filling out the reservation form in the following link to give us a head count for the evening. Details about the evening can be found on the form. Reservations are preferred and due no later than Friday, October 30th, please. JLM Grandparent Night Reservation Form
+
+Any questions, please email Mrs. Epps, eppsj@conwayschools.info
+
+### 2026-10-20 · Julia Lee Moore Elementary (id 13544467)
+
+JLM Grandparent Night is coming up Monday, November 9th, 5-7 pm. Please help us out by filling out the reservation form in the following link to give us a head count for the evening. Details about the evening can be found on the form.
+
+Reservations are preferred and due no later than Friday, October 30th, please.
+
+https://docs.google.com/forms/d/e/1FAIpQLScoRRZVcwgS3gZfo3wd1qJlbNjO6kIoUZsnbm9oH5jkMOZiDQ/viewform
+
+Any questions, please email Mrs. Epps, eppsj@conwayschools.info
+
+### 2026-10-21 · Julia Lee Moore Elementary (id 13551402)
+
+A huge THANK YOU to Pleasant Grove Baptist Church for generously providing snacks for our staff lounge during Teacher Work Day and Parent-Teacher Conferences!
+
+#JuliaLeeMoore #WeAreJLM #ThankYou #Community
+
+### 2026-10-21 · Julia Lee Moore Elementary (id 13543887)
+
+Red Ribbon Week is happening October 26th–30th! This year's theme is "Make a Difference. Be a Hero. Stay Drug Free." 🦸‍♂️ 
+
+Here is our dress-up schedule for the week: (NOTE: Masks cannot be worn at school.) 
+
+• Monday, Oct 26 – Everyday Heroes Wear Red: Wear red from head to toe or wear a red superhero cape 🔴
+• Tuesday, Oct 27 – Hats Off to Everyday Heroes: Wear your favorite hat (firefighter hats, police caps, community hero hats, or favorite baseball caps) 🧢
+• Wednesday, Oct 28 – Unmask Your Potential: Superhero Dress-Up Day! Wear superhero shirts, costumes, or superhero colors ⚡
+• Thursday, Oct 29 – Future Heroes Have Bright Futures: Dress like what you want to be when you grow up (doctor, teacher, astronaut, athlete, veterinarian, etc.) 🩺
+• Friday, Oct 30 – Heroes Team Up Together: Wear school spirit wear or favorite sports team gear 🏈
+

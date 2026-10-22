@@ -1496,3 +1496,132 @@ Congratulations to the CJHS volleyball players of the week! We’re so proud of 
 
 Please remember that El Fuego, in coordination with Ms Morales, has a fajita lunch provided in room 118 to help celebrate Hispanic Heritage Month!! Enjoy!
 
+### 2026-10-16 · Conway Public Schools (id 13377406)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Conway Junior High (id 13500169)
+
+🌮 Let’s Treat Our CJHS Teachers During Parent-Teacher Conferences! 💙🐾
+
+P.A.W.S. will be providing a delicious taco bar lunch for our amazing teachers during parent-teacher conferences, and we need your help! We are collecting monetary donations, drinks, and desserts to make this meal extra special.
+
+If you would like to contribute, please check out our SignUp Genius below for ways to help!
+
+🔗 SignUp Genius: https://www.signupgenius.com/go/20F0D45A4AA2DABFFC52-66564733-parent?useFullSite=true#/
+
+💸 Ways to Donate:
+
+Venmo: @ConwayJrHighPAWS
+
+Cash App: $ConwayJrHighPAWS
+
+Thank you for helping P.A.W.S. take care of our CJHS teachers and show them some love! 💙
+
+### 2026-10-16 · Marquis Rogers (id 13500855)
+
+It's popcorn Friday!  Stop by the front office during your lunch.
+
+### 2026-10-16 · Conway Junior High (id 13502947)
+
+🍽️ Just a friendly reminder for everyone participating in our potluck on Monday, October 19th! Please remember to bring the item you signed up for
+
+### 2026-10-19 · Conway Junior High (id 13165706)
+
+Dear Parents and Students,
+We hope you have a great week! Here are the important updates and announcements for the upcoming week.
+
+Link to Announcements: 
+
+https://docs.google.com/document/d/1Od7p7r2ZqXVPTas6D62umJI99XyOCKWtUDlOlNcyL1Q/edit?usp=sharing
+
+### 2026-10-19 · Conway Junior High (id 13517961)
+
+The holidays will be here before you know it! We’d love for you to grab one of these sweatshirts and help support PAWS and our students!
+
+Choose royal blue or black in youth or adult sizes. Orders run October 19–November 2—scan the QR code on the flyer or order here.
+
+Every order and every share helps. Thank you for showing up for our kids and our school!
+
+### 2026-10-19 · Cheyenne Kuhn (id 13518231)
+
+Congratulations to the CJHS volleyball players of the week! We’re so proud of their hard work and leadership! 💙🏐🏆 Good job girls!
+
+### 2026-10-19 · Conway Junior High (id 13518614)
+
+Week at a Glance | October 19–23
+
+Check out this week’s schedule and come out to support our Wampus Cats as they compete. 💙
+
+### 2026-10-19 · Conway Junior High (id 13524432)
+
+Friendly reminder! If you brought something for the potluck, please don't forget to pick up your food and dishes. Thank you! 😊
+
+### 2026-10-19 · Conway Junior High (id 13522787)
+
+📣 CJHS Parent-Teacher Conferences
+
+Conway Junior High School will host Parent-Teacher Conferences on Wednesday, October 21, from 10:00 AM to 7:00 PM.
+
+We encourage parents and guardians to take this opportunity to connect with teachers, discuss student progress, and ask any questions.
+
+🥞 Stoby's Pancake Breakfast tickets are also available for $8 each! Tickets can be purchased in the front office.
+
+We look forward to seeing our Wampus Cat families! 💙
+
+### 2026-10-19 · Conway Junior High (id 13368663)
+
+🥞 REMINDER: Our Annual Pancake Breakfast is Coming Up! 🥞
+
+Mark your calendars for Saturday, October 25, from 8:00 a.m. to 1:00 p.m. at Stoby’s Restaurant!
+
+For just $8, enjoy all-you-can-eat pancakes, available for dine-in or drive-thru!
+
+🎟️ Tickets are available in advance at Conway Junior High. Parents can send money with their child, and students can stop by Ms. Taylor’s office to purchase a ticket. Exact change is very much appreciated!
+
+Most importantly, all proceeds benefit the students and staff at Conway Junior High School. Come enjoy some pancakes and support our Wampus Cats! 💙🐾
+
+We hope to see you there! 🥞💙
+
+### 2026-10-21 · Marquis Rogers (id 13550555)
+
+📢 Parent-Teacher Conferences Are Underway!
+
+Conway Junior High families, parent-teacher conferences are officially underway and will continue until 7:00 p.m. tonight! We encourage you to stop by, visit with your child's teachers, and discuss their progress. We look forward to seeing you!
+
+🥞 While you're here, don't forget to stop by the front office to purchase your tickets for our Annual Pancake Breakfast at Stoby's!
+
+Tickets are just $8 for all-you-can-eat pancakes on Sunday, October 25, from 8:00 a.m. to 1:00 p.m. Dine-in and drive-thru options are available!
+
+💙 All proceeds benefit the students and staff at Conway Junior High School!
+
+Thank you for your continued support of CJHS! Go Wampus Cats! 🐾💙
+
+### 2026-10-21 · Marquis Rogers (id 13551196)
+
+Leftover goodies from the potluck are available in Coach McGee's classroom, Kitchen 1.  Feel free to stop by today to grab a snack or two.
+
+### 2026-10-21 · Jennifer Dozler (id 13553272)
+
+Lunch is here in case you missed it. Taco Bar🌮
+Dinner will be Pasta grill and left over taco bar. 
+Dinner will start at 3. 
+Please make sure you take 30 mins for lunch and 30 mins for dinner. Also put a sign on your door that you will be returning. 
+Have a great PTC day!
+
+### 2026-10-21 · Jennifer Dozler (id 13556709)
+
+We will send out an email when dinner is ready. We have run into a delay. Thanks for your patience.
+
+### 2026-10-21 · Jennifer Dozler (id 13557076)
+
+Dinner will be from 3:40-4:40pm. Thank you for all you do!
+
+### 2026-10-21 · Marquis Rogers (id 13559191)
+
+We have plenty of food left over!  Please stop by the front office and make a to-go plate or two.
+

@@ -925,3 +925,58 @@ It takes serious experience to run a championship food service program! Did you 
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-16 · Conway Public Schools (id 13377404)
+
+✨ National School Lunch Week: Thank You!
+
+To wrap up National School Lunch Week, we want to send a massive THANK YOU to our hardworking Food Service team! From early morning prep to afternoon cleanup, you show up every day with big smiles to fuel our students for success. We are so lucky to have you on Team Conway! Leave a thank-you note in the comments for our nutrition crew! 🥪💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-10-16 · Karon Branch (id 13506520)
+
+Please report to your classrooms at this time. Thanks.
+
+### 2026-10-17 · Angel Moix (id 13460649)
+
+🌟 Staff Member of the Month: Chase Wilson! 🌟
+
+Congratulations to Chase Wilson, our building substitute, on being named Misty Givens Agency’s Staff Member of the Month! 👏✨
+
+Chase is the perfect example of what it means to Raise the Standard and go the extra mile. Whether he’s supporting students in the classroom, helping clean the cafeteria, assisting at the front desk, or stepping in wherever needed, Chase brings a positive attitude and a servant’s heart to work every single day.
+
+Thank you for your dedication to Simon Middle School, Chase—we are so grateful for all you do! 💙
+
+#SimonStrong #WeAreSimon
+
+### 2026-10-18 · Angel Moix (id 13503522)
+
+📢 Attention all parents! 
+
+Our Parent-Teacher Conferences are coming up. 
+Mark your calendars for Wednesday, October 21st, 10 AM - 7 PM! 
+We are excited to partner with you for student success. Conferences will be on a drop-in basis.
+
+Please note staff lunch breaks:
+     11:15 AM - 11:45 AM - SPED, Art, Math, Music, LMS, Coaches
+     11:45 AM - 12:15 PM - Science, ELA
+     12:15 PM - 12:45 PM - Reading, Social Studies
+
+### 2026-10-20 · Angel Moix (id 13503651)
+
+Quick Reminder:
+
+Parent/Teacher Conferences are tomorrow from 10-7.
+
+SMS
+
+### 2026-10-21 · Angel Moix (id 13504431)
+
+🎭 Learning from the pros! 🎭
+
+Our Theater Club students had an incredible opportunity to watch a live, in-school performance by the amazing team from TheatreSquared! Seeing professional actors bring stories to life right here on campus was an unforgettable masterclass in performance, stage presence, and storytelling.
+
+A huge thank you to TheatreSquared for inspiring our young performers and showing them what's possible on stage! 🌟✨
+
+#SimonStrong #WeAreSimon
+
