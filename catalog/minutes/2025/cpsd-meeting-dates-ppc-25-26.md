@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-meeting-dates-ppc-25-26.md
 retrieved: 2026-08-09
-verified: 2026-10-19
+verified: 2026-10-26
 status: current
 tags: [ppc, personnel-policy-committee, minutes, 2025-2026]
 sha256: 4ebc0c355afc5c70dbbcee3c032f9c5f181c6d975c3e55e6fd6e2010bcc4eea2
-last_check: 2026-10-19
+last_check: 2026-10-26
 fail_since:
 fail_reason:
 extractor: anydoc@0.2.4

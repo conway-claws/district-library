@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-student-handbook-2025-2026.md
 retrieved: 2026-10-01
-verified: 2026-10-19
+verified: 2026-10-26
 status: current
 tags: [student-handbook, 2025-2026]
 sha256: e7e55e5b79ea113793abb14fa3d9baced05c869642df483654bad0d7f64322c5
-last_check: 2026-10-19
+last_check: 2026-10-26
 fail_since:
 fail_reason:
 extractor: anydoc@0.2.4+tesseract@5.5.3

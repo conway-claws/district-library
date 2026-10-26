@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-4-4-student-transfers.md
 retrieved: 2026-09-30
-verified: 2026-10-19
+verified: 2026-10-26
 date: 2024-06-11
 sha256: 4fef16fe70f2af45bf9ae615630d824016d897d3c27bfc1808fa6c1ed2095827
 extractor: anydoc@0.2.4
 status: current
 tags: [school-board, policy, students]
-last_check: 2026-10-19
+last_check: 2026-10-26
 fail_since:
 fail_reason:
 ---

@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text:
 retrieved:
-verified: 2026-10-19
+verified: 2026-10-26
 status: superseded
 tags: [school-board, policy, classified-personnel]
 superseded_by: cpsd-8-29-classified-personnel-video-surveillance-and-other-monitoring
-last_check: 2026-10-19
+last_check: 2026-10-26
 fail_since:
 fail_reason:
 ---

@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-strategic-plan.md
 retrieved: 2026-10-01
-verified: 2026-10-19
+verified: 2026-10-26
 status: current
 tags: [school-board, strategic-plan]
 sha256: 45883f6f5abc0b24dfd9edf1a504ad8f60b865cc92176efa323b2fb55b8ae922
-last_check: 2026-10-19
+last_check: 2026-10-26
 fail_since:
 fail_reason:
 extractor: anydoc@0.2.4+tesseract@5.5.3

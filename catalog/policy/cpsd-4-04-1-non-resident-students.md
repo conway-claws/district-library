@@ -11,13 +11,13 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-4-04-1-non-resident-students.md
 retrieved: 2026-09-30
-verified: 2026-10-19
+verified: 2026-10-26
 date: 2003-08-05
 sha256: 84448d8b844ed2a8eb3b4ff569af0383a6266775b0bca7dcde59ed587f0e25b0
 extractor: anydoc@0.2.4
 status: current
 tags: [school-board, policy, students]
-last_check: 2026-10-19
+last_check: 2026-10-26
 fail_since:
 fail_reason:
 ---

@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-16-dress-of-classified-employees-excluding-maintenance-and-custodial-see-8-16a.md
 retrieved: 2026-10-01
-verified: 2026-10-19
+verified: 2026-10-26
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2010-04-15
 sha256: f194aa753059b3cf97ad906c796290df799f5f03ea7a4afed49dbc0f4cf92235
-last_check: 2026-10-19
+last_check: 2026-10-26
 fail_since:
 fail_reason:
 extractor: tesseract@5.5.3+pdftoppm

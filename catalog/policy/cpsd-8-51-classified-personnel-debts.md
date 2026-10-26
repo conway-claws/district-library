@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-51-classified-personnel-debts.md
 retrieved: 2026-10-01
-verified: 2026-10-19
+verified: 2026-10-26
 status: current
 tags: [school-board, policy, classified-personnel]
 sha256: 8d8fd79d198cb6ba945809888948fadf1e0f8fb3a16d06a9683cd832fe80446f
 extractor: anydoc@0.2.4
-last_check: 2026-10-19
+last_check: 2026-10-26
 fail_since:
 fail_reason:
 ---

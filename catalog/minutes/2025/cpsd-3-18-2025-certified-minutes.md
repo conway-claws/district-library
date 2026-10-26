@@ -11,11 +11,11 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-3-18-2025-certified-minutes.md
 retrieved: 2026-08-09
-verified: 2026-10-19
+verified: 2026-10-26
 status: current
 tags: [ppc, personnel-policy-committee, minutes, 2024-2025]
 date: 2025-03-18
-last_check: 2026-10-19
+last_check: 2026-10-26
 fail_since:
 fail_reason:
 extractor: anydoc@0.2.4

@@ -11,12 +11,12 @@ drive_kind: file
 rights: public-record
 text: text/cpsd-8-34-classified-personnel-staff-retirement-fringe-benefits.md
 retrieved: 2026-08-09
-verified: 2026-10-19
+verified: 2026-10-26
 status: current
 tags: [school-board, policy, classified-personnel]
 date: 2018-07-10
 sha256: 735d01488ac9a053e1c55499fd2d3c89d6b69750852d30c5ec542138a13a65ad
-last_check: 2026-10-19
+last_check: 2026-10-26
 fail_since:
 fail_reason:
 extractor: anydoc@0.2.4

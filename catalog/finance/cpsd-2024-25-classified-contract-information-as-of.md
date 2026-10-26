@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text: text/cpsd-2024-25-classified-contract-information-as-of.md
 retrieved: 2026-10-01
-verified: 2026-10-19
+verified: 2026-10-26
 status: current
 tags: [finance, employee-contracts, state-required, 2024-2025]
 sha256: 0b9c4491a117286fae7a1ea0cc9fe35702e913e0dcbbb4b17a74b5fe2f015059
-last_check: 2026-10-19
+last_check: 2026-10-26
 fail_since:
 fail_reason:
 extractor: pdftotext@26.08.0+finance-table
