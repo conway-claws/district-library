@@ -677,3 +677,26 @@ Mrs. Havens’ and Mrs. Armstrong’s classes had an ELA Cafe Day! 🍂📚 Stud
 
 #WeAreCourtway #TeamConway #WeAreWampusCats
 
+### 2026-10-23 · Courtway Middle School (id 13559606)
+
+CMS students got the chance to talk all things space science with Conway graduate and aerospace engineering PhD candidate Jeffrey McNabb during WIN Time! 🚀🌌 What a great opportunity for our students to learn from someone who got his start right here in Conway!
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-10-26 · Courtway Middle School (id 13609004)
+
+Parents and Caregivers -We are already in the second quarter of the school year - it is flying by! We've had a great start with students working hard and seeing results in the classroom and on the court, field, choir riser, and band chair. Now that we've settled into a routine, we've tweaked a few procedures based on student needs and parent feedback. Hall PassesWe have revised the hall pass procedure for students without a documented medical accommodation or no-roam status starting this week. Students will have up to 2 hall passes per day. These are in addition to restroom privileges before school, during breakfast, between classes (as time permits), during lunch, and after school. The hall pass procedure exists to reduce work avoidance and excessive, unsupervised time in hallways/restrooms - let's work together to keep kids in class and learning as much as possible.WIN Time Homework Study Hall GuidanceStarting in 2025-2026, we created a homework intervention during WIN for students who were not pulled for a direct subject intervention. Students with work marked "missing" in Schoology were assigned the study hall for 3 days during the following week to complete their missing work. For parents and caregivers who struggle to get their students to do or turn in work, it has been helpful. Starting November 2, in order to remain eligible for a monthly behavior incentive, a student may only be assigned homework WIN time once in a month. Two or more weeks with missing assignments means they will be given the allotted incentive time to complete work. Rewarding great behavior also recognizes rewarding academic behavior - encourage your student to complete their work within their timelines and turn it in. Halloween CostumesNothing says middle school like Halloween costumes. We encourage our students to dress up for Red Ribbon Week and on Friday, October 30 with this specific guidance: we cannot allow masks, face paint, fake blood, or fake weapons.  Dress code applies all week and admins reserve the right to have a student change clothes. Many of our faculty will dress up, too! (A hint for mine on Friday - these are not the droids you're looking for...) We look forward to celebrating Red Ribbon Week with your students and making positive choices.Please continue to communicate with our teachers, counselors, and admins about needs and concerns and give a shout out to staff who have gone above and beyond for your student. We have 4 weeks until Thanksgiving Break - let's encourage great behaviors and perseverance to get the work done!Mr. Etters, PrincipalBob and Betty Courtway Middle School501-450-4832ettersb@conwayschools.info
+
+### 2026-10-28 · Conway Public Schools (id 13620673)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+

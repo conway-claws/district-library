@@ -1776,3 +1776,140 @@ We hope to see you there! 💙💛
 
 #WeAreCLE
 
+### 2026-10-23 · Carolyn Lewis Elementary (id 13385545)
+
+❤️ Reminder: Red Ribbon Week is next week! ❤️
+
+Red Ribbon Week will be celebrated at CLE October 26–30, 2026! Our Little Cats will have a fun week of activities as we celebrate making healthy choices and being drug free! 
+
+
+
+#WeAreCLE
+
+### 2026-10-23 · Carolyn Lewis Elementary (id 13392508)
+
+📚 K–2 Interim Testing begins next week!
+
+Our K–2 students will begin Interim Testing on Wednesday, October 28. Please see the testing schedule in the graphic for specific grade levels and subjects. We encourage our Little Cats to get plenty of rest, eat a good breakfast, and do their best! 💙🐾
+
+#WeAreCLE
+
+### 2026-10-23 · Carolyn Lewis Elementary (id 13556880)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-10-25 · Carolyn Lewis Elementary (id 13399702)
+
+❤️ Reminder, Little Cats! ❤️
+
+Tomorrow is Wear Red Day at CLE as we begin Red Ribbon Week! 🔴
+#WeAreCLE
+
+### 2026-10-26 · Carolyn Lewis Elementary (id 13427876)
+
+A lot of fun and memories were made at the CLE Tailgate Breakfast after Bike-to-School last Friday!
+#WeAreCLE
+
+### 2026-10-26 · Carolyn Lewis Elementary (id 13324547)
+
+Ella and Ms. Stories were caught "twinning" at CLE!  #WeAreCLE
+
+### 2026-10-26 · Carolyn Lewis Elementary (id 13399734)
+
+🎩🧢 Tomorrow is Hat Day! 🧢🎩
+
+Grab your favorite hat and wear it to school tomorrow as we continue celebrating Red Ribbon Week at CLE! ❤️
+
+We can't wait to see all the fun hats around school! 🎉
+#WeAreCLE
+
+### 2026-10-27 · Carolyn Lewis Elementary (id 13509061)
+
+💙🐾 Staff of the Month – Pam Acklin! 🐾💙
+
+We are excited to recognize our cafeteria manager, Mrs. Pam Acklin, as our Staff Member of the Month at Carolyn Lewis!
+
+Since stepping into her role as manager, Mrs. Pam has done an amazing job keeping our cafeteria running smoothly and efficiently. Her hard work and leadership have made such a difference for our students and staff!
+
+And we can’t forget about the food! 😋 Our meals have been delicious, and we think the staff would all agree that Chicken Thursdays are a favorite! 🍗
+
+Thank you, Mrs. Pam, for everything you do to take care of our Little Cats and staff each day! We appreciate you and are lucky to have you on Team CLE!
+
+💙🐾 #TeamCLE #StaffOfTheMonth #LittleCats
+
+### 2026-10-27 · Carolyn Lewis Elementary (id 13392555)
+
+📚 Reminder, Little Cat Families! 🐾
+
+Our K-2 Interim Testing begins tomorrow, Wednesday, October 28! Please help our students get a good night’s rest, eat a healthy breakfast, and arrive ready to do their best! 💙
+
+We’re cheering you on, Little Cats! 🐾
+#WeAreCLE
+
+### 2026-10-27 · Carolyn Lewis Elementary (id 13399778)
+
+💙🐾 Reminder, Little Cats! 🐾💙
+
+Tomorrow is Team CLE Day! Show your Carolyn Lewis Elementary spirit by wearing your CLE gear and school colors as we continue celebrating Red Ribbon Week! 🎉🐾
+
+ #WeAreCLE
+
+### 2026-10-28 · Carolyn Lewis Elementary (id 13525457)
+
+🎉 Congratulations to our CLE Respect Award winners! We are so proud of our Little Cats for showing respect and being kind to others. Keep up the great work! 💙🐾
+
+#WeAreCLE
+
+### 2026-10-28 · Conway Public Schools (id 13620666)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-28 · Carolyn Lewis Elementary (id 13525706)
+
+🎃🍂 Our kindergarten Little Cats had a PUMPKIN-tastic time on their field trip to the pumpkin patch! From making memories to enjoying all the fall fun, it was a day full of smiles and excitement! 💙🐾
+
+#WeAreCLE
+
+### 2026-10-28 · Conway Public Schools (id 13639609)
+
+CLE Families, Today, a student brought toy guns to school. Staff responded promptly after students reported the incident, and the items were confirmed to be toys. We appreciate the students who spoke up and the quick response of the teacher and administrators in addressing the situation and helping ensure student safety. Please remind your child never to bring toy weapons to school and to report safety concerns to a trusted adult. Thank you for your partnership.
+
+### 2026-10-28 · Carolyn Lewis Elementary (id 13399842)
+
+🦸‍♀️🏈 Reminder, Little Cats! 🐾
+
+Tomorrow is Superhero T-Shirt or Favorite College Sports Team Day as we continue celebrating Red Ribbon Week! ❤️
+
+Students may wear a superhero T-shirt or show their favorite college team spirit. Please remember: No costumes for Superhero Day.
+
+We can't wait to see everyone's spirit tomorrow! 🎉
+
+#WeAreCLE
+
+### 2026-10-29 · Carolyn Lewis Elementary (id 13551062)
+
+📅 Save the Date! 🌿🐾
+
+Our 1st and 3rd graders will be taking the stage for Take a Walk! 🎶 Join us for this special grade-level musical on Tuesday, November 17th, at 6:00 PM in the James H. Clark Auditorium at Conway High School. We can’t wait to see our Little Cats shine! 💙
+
+#WeAreCLE
+
+### 2026-10-29 · Carolyn Lewis Elementary (id 13559462)
+
+🐾 Show your Little Cat pride! 💙🤍
+
+CLE Little Cats yard signs and stickers are available to order! Get a sticker for your car or water bottle for $5, a yard sign for $20, or bundle both for just $22!
+
+💵 Cash or check only. Send payment in an envelope labeled “Sign and Sticker Order” to your child’s teacher. Checks should be made payable to Carolyn Lewis Elementary.
+
+Let’s show off our Little Cat pride! 🐱💙 #WeAreCLE
+

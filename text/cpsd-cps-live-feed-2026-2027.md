@@ -759,3 +759,35 @@ Normal hours for all shifts on Tuesday and Wednesday. Please use this extra time
 Thanks
 T-Mac
 
+### 2026-10-28 · Conway Public Schools (id 13628541)
+
+CPSD families, a bus accident occurred this morning. We are thankful that all students and staff are safe, and all families directly affected have been notified. We appreciate your patience and understanding as this incident may cause delays.
+
+### 2026-10-28 · Conway Public Schools (id 13620661)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-29 · Conway Public Schools (id 13377876)
+
+🚀 INSIDE THE PLAYBOOK: Did You Know? ✏️
+
+Did you know Conway Public Schools is expanding honors courses so students can accelerate their learning earlier than ever before?
+
+Students now have access to Honors coursework in:
+🔹 Math: Grades 5, 6, and 7
+🔹 Science: Grades 5, 6, and 7
+🔹 English: Grades 6, 7, 8, and 9
+
+By building strong academic foundations in middle school, we are preparing our Wampus Cats to tackle AP courses, concurrent college credit, and advanced learning opportunities down the road! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

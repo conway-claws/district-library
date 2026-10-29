@@ -1625,3 +1625,118 @@ Dinner will be from 3:40-4:40pm. Thank you for all you do!
 
 We have plenty of food left over!  Please stop by the front office and make a to-go plate or two.
 
+### 2026-10-23 · Conway Athletics (id 13580624)
+
+Congratulations to our 9th grade volleyball team for winning the season Conference Championship! They went 11-1 and are battling for the tournament championship tomorrow! We're so proud of you girls!!! 🏐💙😊
+
+### 2026-10-23 · Conway Athletics (id 13583984)
+
+Congratulations to the CJHS volleyball player of the week! We’re so proud of their hard work and leadership! 💙🏐🏆 Good job!
+
+### 2026-10-24 · Conway Junior High (id 13589868)
+
+🥞 REMINDER: Our Annual Pancake Breakfast is Tomorrow! 🥞
+
+Mark your calendars for Sunday, October 25, from 8:00 a.m. to 1:00 p.m. at Stoby’s Restaurant!
+
+For just $8, enjoy all-you-can-eat pancakes, available for dine-in or drive-thru!
+
+🎟️ Tickets are available to purchase at the door. Cash or check only. 
+
+Most importantly, all proceeds benefit the students and staff at Conway Junior High School. Come enjoy some pancakes and support our Wampus Cats! 💙🐾
+
+We hope to see you there! 🥞💙
+
+### 2026-10-24 · Conway Junior High (id 13558690)
+
+Hey everyone! Just a quick reminder for those working the Stoby's Pancake Breakfast! If possible, please plan to arrive 15–20 minutes before your scheduled shift starts so we can get everyone situated and ready to go. Thank you all for helping out! 😊
+
+### 2026-10-25 · Jennifer Dozler (id 13591748)
+
+Good Morning and Happy Sunday!!! Don't worry about cooking breakfast, Come out and enjoy all you can eat pancakes at Stoby’s this morning from 8am-1pm for $8!! Bring cash or check and support CJHS. All proceeds go to the school, students, teachers, and staff💙🐾
+
+### 2026-10-26 · Conway Junior High (id 13165729)
+
+Dear Parents and Students,
+We hope you have a great week! Here are the important updates and announcements for the upcoming week.
+
+Link to Announcements: 
+
+https://docs.google.com/document/d/1Od7p7r2ZqXVPTas6D62umJI99XyOCKWtUDlOlNcyL1Q/edit?usp=sharing
+
+### 2026-10-26 · Conway Junior High (id 13558663)
+
+Conway Public Schools is coming together to support our school families! The CATS in Community Food Drive is collecting non-perishable food items to help provide food and resources to those in need this Thanksgiving season. 🦃
+
+🥫 Collection Dates: Now through November 17
+📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway Middle Schools
+
+🍽️ Items Needed: Peanut butter, canned tuna, soups, mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits, canned vegetables and fruit, applesauce, crackers, cereal, granola bars, and breakfast bars.
+
+Please ensure all donations are sealed and within their expiration dates!
+
+📅 Distribution Day: November 20, 2026
+⏰ Time: 10:00 a.m.–12:00 p.m.
+📍 Location: Conway High School Roundabout
+
+Every donation makes a difference! Thank you for helping us care for our school families and make this Thanksgiving season a little brighter for those in need. 💙
+
+### 2026-10-27 · Conway Junior High (id 13618263)
+
+🏀 BASKETBALL MADNESS IS HERE! 🏀
+
+Join us Monday, November 2, at the Buzz Bolding Arena for an exciting evening of basketball, cheer, and dance! Come out to support our Wampus Cats as our 7th, 8th, and 9th grade teams take the court, along with performances from our cheer and dance teams. 💙
+
+Check out the schedule below so you don’t miss your favorite teams and performances!
+
+📍 Location: Buzz Bolding Arena
+📅 Date: Monday, November 2, 2026
+⏰ First event: 4:30 PM
+
+We can’t wait to see our Wampus Cat family in the stands! Go Wampus Cats! 🏀
+
+### 2026-10-27 · Conway Junior High (id 13618319)
+
+The holidays will be here before you know it! We’d love for you to grab one of these sweatshirts and help support PAWS and our students!
+
+Choose royal blue or black in youth or adult sizes. Orders run October 19–November 2—scan the QR code on the flyer or order with the link below: https://docs.google.com/forms/d/e/1FAIpQLSdGbv9PqBrzL6j38PaCSHu-5jsW2BJNKk0C_t2RkKRid2M3tQ/viewform
+
+Every order and every share helps. Thank you for showing up for our kids and our school!
+
+### 2026-10-28 · Marquis Rogers (id 13628504)
+
+Staff, 
+
+Bus #30 was involved in a minor accident caused by another vehicle this morning. Students on that bus will be late to first period. Please excuse their tardiness. Thank you.
+
+### 2026-10-28 · Conway Public Schools (id 13620677)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-28 · Conway Junior High (id 13635059)
+
+Get ready to dance the night away, Wampus Cats! 🎉 Our Fall Dance is coming up on Friday, November 6, from 6:00–8:00 p.m. in the Conway Junior High North Gym!
+
+🎟️ Tickets are $5 and will be sold during all four lunches Monday, November 2, through Friday, November 6. Please remember that tickets will NOT be sold at the door!
+
+Students are eligible to purchase tickets if they have not received a major disciplinary referral resulting in ISS or OSS since our last incentive on September 25.
+
+🍿 Concessions will also be available for purchase at the dance!
+
+We can't wait to see our Wampus Cats there for a fun night of music, friends, and dancing!
+

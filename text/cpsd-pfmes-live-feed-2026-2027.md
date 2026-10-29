@@ -435,3 +435,25 @@ To wrap up National School Lunch Week, we want to send a massive THANK YOU to ou
 
 Good afternoon, Mattison Families!Parent-Teacher Conferences are TOMORROW, Wednesday, October 21, from 10:00 a.m. to 7:00 p.m.! 💙If you haven't signed up yet, it's not too late! We would love the opportunity to connect with every family to celebrate your child's progress and discuss ways we can continue working together to support their success. Our goal is 100% participation!📅 Date: Wednesday, October 21⏰ Time: 10:00 a.m. – 7:00 p.m.🔗 Sign Up Here: https://docs.google.com/document/d/1dr6OgKV2wCqL-3F2vA7NqHVYIpSCLgF_ald0IxgVgRc/edit?usp=sharing🌎 Families Who Requested Interpreter Services: Your conference has already been scheduled! Please refer to the note sent home with your assigned conference time. You do not need to sign up online.We look forward to seeing you tomorrow and partnering together to help our Little Cats shine! 💙🐾
 
+### 2026-10-25 · Melissa Spence (id 13593800)
+
+Hello, Mattison Families! 
+Just a friendly reminder that Spooky Snack Attack orders and money are due tomorrow, Monday, October 26!
+For just $2.00, your Little Cat will receive a bag of Cheetos and a package of Fruit Snacks! 🎃
+Please return your child’s completed order form and exact cash payment to their teacher tomorrow. There is a limit of two snack bags per student.
+Snacks will be delivered on Friday, October 30, during our Birthday/Snack Day celebration!
+Participation is completely optional. Thank you for supporting our Little Cats! 🧡
+
+### 2026-10-28 · Conway Public Schools (id 13620667)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+

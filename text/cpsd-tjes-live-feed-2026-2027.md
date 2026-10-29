@@ -716,3 +716,34 @@ See you there!
 
 Monday, our Stream Team hit the creek to collect baseline water quality data right here in our little creek behind the school. From waders to nets, everyone jumped into help gather samples and learn what it takes to monitor and protect our local waterways. GO TJ Little Cats!
 
+### 2026-10-25 · Theodore Jones Elementary (id 13593951)
+
+Join in on the fun if you can.
+
+### 2026-10-26 · Theodore Jones Elementary (id 13607699)
+
+Kindergarten, 1st grade and 2nd grade... it's testing time!
+
+### 2026-10-26 · Theodore Jones Elementary (id 13608031)
+
+This is a friendly reminder that Jones Joggers begins tomorrow after school for students who signed up and returned their permission slip.
+
+Please ensure you are in line to pick your student up no later than 4:00 PM.  Pick up will be off Andrews Drive by the safe room. Please have your car tag for pickup. If you need a car tag you can email the office at tjoffice@conwayschools.info 
+
+Jones Joggers will meet every Tuesday, rain or shine. We are excited to get started and look forward to seeing our runners!
+
+Thank you for your support!
+
+### 2026-10-28 · Conway Public Schools (id 13620665)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+

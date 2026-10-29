@@ -1395,3 +1395,100 @@ Check out our Little Cat Chronicle!
 
 Don't miss out on your last chance to get a warm, cozy blanket to snuggle up with as the weather gets colder! Go to https://mydesigns.teamthrows.com/f/wce-blanket-fundraiser/ to enter your order! Order window closes Oct. 22!
 
+### 2026-10-25 · Jenna Havlik (id 13591805)
+
+Dear Woodrow Families,
+
+Red Ribbon Week is here! ❤️ This week, October 26–30, our Little Cats will celebrate making healthy choices and staying drug-free with fun dress-up days.
+
+Here’s the schedule for the week:
+
+* Monday, Oct. 26: Follow Your Dreams, Not Drugs! — Wear PJs!
+* Tuesday, Oct. 27: We’re RED-Y to Say No to Drugs! — Wear RED!
+* Wednesday, Oct. 28: Be Wild, Be Wacky, Be Drug-Free! — Wear something wacky (hair, socks, or mismatched clothes)!
+* Thursday, Oct. 29: Team Up Against Drugs! — Wear your favorite team shirt or jersey.
+* Friday, Oct. 30: Adventure Through Books, Not Drugs! — Dress as your favorite book character.
+
+Thank you for helping us make Red Ribbon Week fun and meaningful for our Little Cats! We look forward to a great week of celebrating healthy choices and drug-free living.
+
+Go, Little Cats! ❤️
+
+Woodrow Cummins Elementary
+
+### 2026-10-25 · Jenna Havlik (id 13591808)
+
+Red Ribbon Week is here! ❤️ This week, October 26–30, our Little Cats will celebrate making healthy choices and staying drug-free with fun dress-up days.
+
+Here’s the schedule for the week:
+
+* Monday, Oct. 26: Follow Your Dreams, Not Drugs! — Wear PJs!
+* Tuesday, Oct. 27: We’re RED-Y to Say No to Drugs! — Wear RED!
+* Wednesday, Oct. 28: Be Wild, Be Wacky, Be Drug-Free! — Wear something wacky (hair, socks, or mismatched clothes)!
+* Thursday, Oct. 29: Team Up Against Drugs! — Wear your favorite team shirt or jersey.
+* Friday, Oct. 30: Adventure Through Books, Not Drugs! — Dress as your favorite book character.
+
+Thank you for helping us make Red Ribbon Week fun and meaningful for our Little Cats! We look forward to a great week of celebrating healthy choices and drug-free living.
+
+### 2026-10-26 · Woodrow Cummins Elementary (id 13598899)
+
+Dear Woodrow Families,Our WCE PTO fundraiser incentive prizes are coming up! Here are the important dates for students who qualified based on their donation levels.Wednesday, October 29Hat Day: Students who raised $50 or more in donations may wear a hat to school!Movie Party: Students who raised $150 or more in donations will enjoy a movie party!Thursday, October 30VIP Lunch with the Principals: Qualifying students will enjoy a special lunch with our principals.Tuesday, November 4Urban Air Field Trip: Qualifying students will enjoy a field trip to Urban Air. Please watch for consent forms coming home this week!Squishy toys and fidget bracelets will also be distributed this week.Thank you for your generosity and support of our WCE PTO fundraiser! We appreciate our wonderful Woodrow families and love celebrating our Little Cats!
+
+### 2026-10-26 · Woodrow Cummins Elementary (id 13600437)
+
+Oops!  We made a mistake and apologize for any confusion with the previous email.  Please see the corrected information below. Our WCE PTO fundraiser incentive prizes are coming up! Here are the important dates for students who qualified based on their donation levels.Thursday, October 29Hat Day: Students who raised $50 or more in donations may wear a hat to school!Movie Party: Students who raised $150 or more in donations will enjoy a movie party!Friday, October 30VIP Lunch with the Principals: Qualifying students will enjoy a special lunch with our principals.Wednesday, November 4Urban Air Field Trip: Qualifying students will enjoy a field trip to Urban Air. Please watch for consent forms coming home this week!Squishy toys and fidget bracelets will also be distributed this week.Thank you for your generosity and support of our WCE PTO fundraiser! We appreciate our wonderful Woodrow families and love celebrating our Little Cats!
+
+### 2026-10-26 · Jenna Havlik (id 13600502)
+
+3…2…1… New Module Launch!  Mrs. Hill and Mrs. Kingsbury are over the moon to begin their new unit on Outer Space!🪐
+
+### 2026-10-27 · Woodrow Cummins Elementary (id 13618150)
+
+Join us for our WCE Breakfast Bash on Friday, October 30, at 7:00 AM! We're inviting families to join us for a fun, Halloween-themed tailgate in the parking lot in front of the school.  Students attending the tailgate breakfast may walk in through the front doors at 7:45 AM and go to class. 
+Here are the details:
+When: Friday, October 30, at 7:00 AM
+Where: In front of Woodrow Cummins Elementary
+What to Bring: Your own breakfast items to enjoy with family and friends
+Drinks: We'll have drinks available for purchase for just $5 each! We will only be able to accept CASH as payment for drinks. Look for the drink station in the parking lot for easy pickup.
+
+### 2026-10-27 · Woodrow Cummins Elementary (id 13618555)
+
+Grab your favorite reading buddy and join us for “You've Got a Friend in Reading” Literacy Night on November 3rd from 5:30–7:00 PM at Woodrow Cummins Elementary!
+We're bringing the magic of Toy Story to life with an evening full of books, creativity, games, and literacy adventures for the whole family! Whether your child is ready to blast off with Buzz, round up words with Woody, or create a silly story with the Aliens, there will be something for everyone to enjoy.
+
+Here's a sneak peek at the fun waiting for you:
+⭐ Andy's Reading Room – Find a cozy spot and enjoy a book together as a family.
+🤠 Woody's Word Roundup – Build words, explore vocabulary, and go on a word scavenger hunt.
+🚀 Buzz Lightyear's “To Literacy & Beyond!” – Take on reading challenges in an exciting literacy space mission.
+🐴 Bullseye's Book Hunt – Search around the school for hidden clues and book-related surprises.
+👽 Alien Story Builders – Work together to create a silly story using characters, settings, and problems.
+🧸 Bonnie's Story Station – Create your own mini-book or draw a story featuring your favorite toy.
+🐷 Hamm's Reading Bank – Earn Toy Story dollars by completing literacy activities and trade them for small prizes or bookmarks.
+🌟 Forky's “Trash to Treasure” Writing – Turn an ordinary object into an extraordinary story character!
+💻You've Got a Friend in Safety: Protecting Kids Online- Marna Strickland from the Morgan Nick Foundation will be presenting information on how to keep our elementary students safe online. 
+
+And don't forget to pick up your Toy Story Literacy Passport! Visit the activity stations, collect stamps or stickers, and complete your passport to earn a special prize or certificate.
+Plus, get your picture with Buzz and Woody! 📸
+
+This is a wonderful opportunity to spend time together as a family, celebrate reading, and make special memories with our WCE community. We hope you'll join us for an evening of imagination, adventure, and fun!
+
+Mark your calendars for November 3rd, 5:30–7:00 PM, and get ready for a night of reading fun!
+
+We can't wait to see our Little Cats and their families!
+
+### 2026-10-28 · Conway Public Schools (id 13620664)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-28 · Woodrow Cummins Elementary (id 13630058)
+
+No tricks, just phonics!  Our little pumpkins are practicing their letter sounds with a little Halloween fun!
+

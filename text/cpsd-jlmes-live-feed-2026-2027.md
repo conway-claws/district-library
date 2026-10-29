@@ -1076,3 +1076,72 @@ Here is our dress-up schedule for the week: (NOTE: Masks cannot be worn at schoo
 • Thursday, Oct 29 – Future Heroes Have Bright Futures: Dress like what you want to be when you grow up (doctor, teacher, astronaut, athlete, veterinarian, etc.) 🩺
 • Friday, Oct 30 – Heroes Team Up Together: Wear school spirit wear or favorite sports team gear 🏈
 
+### 2026-10-25 · Julia Lee Moore Elementary (id 13592011)
+
+Red Ribbon Week is happening THIS WEEK, October 26th–30th! This year's theme is "Make a Difference. Be a Hero. Stay Drug Free." 🦸‍♂️
+
+Here is our dress-up schedule for the week: (NOTE: Masks cannot be worn at school.)
+
+Monday, Oct 26 – Everyday Heroes Wear Red: Wear red from head to toe or wear a red superhero cape 🔴
+
+Tuesday, Oct 27 – Hats Off to Everyday Heroes: Wear your favorite hat (firefighter hats, police caps, community hero hats, or favorite baseball caps) 🧢
+
+Wednesday, Oct 28 – Unmask Your Potential: Superhero Dress-Up Day! Wear superhero shirts, costumes, or superhero colors ⚡
+
+Thursday, Oct 29 – Future Heroes Have Bright Futures: Dress like what you want to be when you grow up (doctor, teacher, astronaut, athlete, veterinarian, etc.) 🩺
+
+### 2026-10-26 · Julia Lee Moore Elementary (id 13461360)
+
+Double the smiles, double the fun in kindergarten! ✨💚
+
+#JuliaLeeMoore #WeAreJLM #Kindergarten
+
+### 2026-10-26 · Julia Lee Moore Elementary (id 13605405)
+
+A huge thank you to the UCA Football team for stopping by to make our 2nd grade extra recess so special! 🏈🐻
+
+Our 2nd graders earned this fun reward for bringing in the most candy donations for JLM's Fall Festival, and having the Bears join in made it unforgettable.
+
+We loved the high-fives and play time—thanks for being such awesome role models in our community! 💜🖤
+
+#JuliaLeeMoore #WeAreJLM #SecondGrade #UCAFootball
+
+### 2026-10-26 · Julia Lee Moore Elementary (id 13607387)
+
+JLM Grandparent Night is coming up Monday, November 9th, 5-7 pm. Please help us out by filling out the reservation form in the following link to give us a head count for the evening. Details about the evening can be found on the form.
+
+Reservations are preferred and due no later than Friday, October 30th, please.
+
+JLM Grandparent Night Sign Up Link
+
+### 2026-10-27 · Julia Lee Moore Elementary (id 13605662)
+
+Yesterday was all about showing our drug-free strength for Red Ribbon Week! Here’s a look at how everyone showed up in their red to celebrate "Everyday Heroes Wear Red" day. Everyday heroes make healthy choices—way to lead by example! ❤️🦸‍♂️
+
+#JuliaLeeMoore #WeAreJLM #RedRibbonWeek
+
+### 2026-10-28 · Julia Lee Moore Elementary (id 13621133)
+
+Hats off to our everyday heroes! 🧢✨ Yesterday, we celebrated Red Ribbon Week by tipping our hats to everyone choosing to live drug-free and make positive choices in our community.
+
+#JuliaLeeMoore #WeAreJLM #RedRibbonWeek
+
+### 2026-10-28 · Conway Public Schools (id 13620668)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-29 · Julia Lee Moore Elementary (id 13637240)
+
+Not all heroes wear capes, but today we sure did. 🦸‍♂️✨ Taking on Red Ribbon Week in full hero mode!
+
+#JuliaLeeMoore #WeAreJLM #RedRibbonWeek #UnmaskYourPotential
+

@@ -1291,3 +1291,95 @@ Red Ribbon Week is October 26–30, and we’re ready to celebrate living drug-f
 
 Reminder: All outfits must follow the school’s regular dress code guidelines.
 
+### 2026-10-23 · Carl Stuart Middle School (id 13525283)
+
+🎭✨ It’s time to fall down the rabbit hole! 🐇💙
+
+The CSMS Theater Club is excited to announce the cast of Alice in Wonderland JR.! 🎩🌹 Congratulations to all of the students who will bring this magical story to life!
+
+The cast is ready to get to work as they prepare for performances on February 4–5, 2027. We can’t wait to see the magic unfold on stage! 🌟
+
+Stay tuned for more updates! 🐾💙 
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-25 · Carl Stuart Middle School (id 13594475)
+
+CSMS Newsletter October 26-30: https://conwaypublicschools.edurooms.com/newsletters/carl-stuart-middle-school/newsletters/2026-2027-csms-newsletter-october-26-30
+
+### 2026-10-26 · Carl Stuart Middle School (id 13530793)
+
+💙 October is Principal Appreciation Month, and we are so thankful for Mrs. Francis! 🐾 She leads Carl Stuart Middle School with dedication, kindness, and a genuine passion for helping our students and staff succeed. From supporting our teachers to cheering on our students, she works hard every day to make CSMS a wonderful place to learn and grow. We are so blessed to have her leading our Wampus Cat family and are grateful for the positive impact she makes on our school community. Thank you for all you do, Mrs. Francis! 💙#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-26 · Carl Stuart Middle School (id 13607931)
+
+🥧🍎 Our PTO fundraiser CONTINUES! 💙🩷
+
+If you weren’t able to participate at Fall Festival, you still have a chance to vote for which principal gets pied in the face! 😂 Students can stop by the library to cast their vote for just $1 per vote!
+
+👀 The results will be revealed during our pep assembly on Friday! Who will take the pie? Let the voting begin! 🥧🐾
+
+#WeAreCarlStuart #WeAreConway
+
+### 2026-10-26 · Carl Stuart Middle School (id 13594541)
+
+PICTURE DAY REMINDER! 
+
+Tuesday, October 27 is Picture Day for 5th grade and FBLA students attending Fall Conference. 
+Wednesday, October 28 is Picture Day for 6th and 7th graders. 
+
+ Students brought home order forms on October 12. Pictures can also be purchased online here:
+https://v2.myproimages.com/strain-photography-schools/61707/search?code=CSMS26
+
+### 2026-10-27 · Carl Stuart Middle School (id 13621271)
+
+🎄🦃 Holiday Assistance for Families ❤️
+
+As we approach the holiday season, we want to make sure our school families are aware of available resources. If your family is in need of assistance for Thanksgiving or Christmas, please reach out to one of our school counselors.
+
+📧 Sarah Franklin: franklinsa@conwayschools.info
+📧 Melody Newport: newportm@conwayschools.info
+
+📅 Please contact a counselor by November 6th.
+
+Please keep in mind that resources are limited, so we encourage families who need assistance to reach out as soon as possible.
+
+We are thankful for our school community and want to support our families during this special time of year. ❤️✨
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-28 · Carl Stuart Middle School (id 13524967)
+
+Learning Math Through Leadership!
+
+Eliana W. stepped into the role of teacher’s assistant in Ms. Miller’s 8th-period math class as learners explored comparing and ordering rational numbers. After her mini-lesson, students worked collaboratively to complete their activity.
+
+The experience gave Eliana a new appreciation for teaching and reinforced her goal of becoming a pediatrician. She shared, “Students do not listen the first time, so you have to just keep repeating yourself, and they do not practice and study at home.”
+
+Levi B. reflected, “Ms. Miller, I just realized how much patience you have with all of us and all of our different needs.”
+
+This activity was a reminder that learning goes beyond math skills. It also builds leadership, empathy, patience, and appreciation for the people who help us grow!
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-10-28 · Conway Public Schools (id 13620676)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-28 · Carl Stuart Middle School (id 13449674)
+
+Carl Stuart 🤝 Vann Elementary 
+
+Carl Stuart students are continuing their work with Kindergarten students at Vann Elementary! 
+
+#WeAreCarlStuart  #WeAreConway #ChampionsforKids
+

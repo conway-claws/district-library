@@ -3140,3 +3140,171 @@ A big thank-you to all our students for participating and making our Spanish Clu
 
 ¡Viva la cultura! ¡Viva el español! ❤️💛💚
 
+### 2026-10-23 · Conway Athletics (id 13539063)
+
+Wampus Cats will be traveling to PA tonight. If you can't make it, please tune in using the link below!
+
+Link: https://youtube.com/live/ocaqK0RZKYo?feature=share
+
+### 2026-10-23 · Conway Athletics (id 13552275)
+
+Please use the ticket link below to purchase tickets for tomorrow's Jr. High Conference Volleyball Tournament being held at Little Rock Southwest High School. 
+
+Ticket Link: https://gofan.co/event/6978115?schoolId=AR86984
+
+### 2026-10-25 · Conway Athletics (id 13595386)
+
+What a weekend for Conway Wrestling! They traveled to Springdale HarBer for Boo Bash and Dexter Francis went to North Carolina to compete at Super 32 (Invite only).
+
+### 2026-10-26 · Conway Athletics (id 13554439)
+
+Conway Athletics happenings this week!
+
+### 2026-10-26 · Conway High School (id 13557128)
+
+🎓 Seniors: Get a Head Start on Your Future with ACT WorkKeys!
+
+Conway High School will offer the ACT WorkKeys assessment on November 3 to any senior who wishes to participate!
+
+ACT WorkKeys helps students demonstrate the skills employers value in the workplace, including applied math, graphic literacy, and workplace documents. Students who complete the three core assessments may qualify for the ACT WorkKeys National Career Readiness Certificate (NCRC), a nationally recognized credential they can add to their résumé and share with potential employers.
+
+🏅 Why take WorkKeys?
+
+Showcase your skills: Earn a credential that demonstrates your workplace readiness.
+
+Strengthen your résumé: The NCRC can help you stand out when applying for jobs.
+
+Explore college credit opportunities: Students may qualify for college credit based on recommendations from the American Council on Education.
+
+Support your career growth: WorkKeys research shows that students who earn higher scores may benefit from increased earning potential over time.
+
+The NCRC is awarded at four levels—Bronze, Silver, Gold, and Platinum—based on your lowest score across the three core assessments. To earn a certificate, you must score at least a 3 on each assessment, with higher scores qualifying you for higher certificate levels.
+
+📅 Assessment Date: November 3
+
+📧 Interested seniors should contact Ms. Kerry Smith at Smithka@conwayschools.info for more information about participating.
+
+Take the opportunity to showcase your skills and prepare for what comes next!
+
+#ConwayHighSchool #WampusCats #CareerReadiness
+
+### 2026-10-26 · Conway High School (id 13602391)
+
+🌎 Celebrating Hispanic Heritage Month at CHS! 🌎
+
+Our advanced Spanish students celebrated Hispanic Heritage Month with special guest speakers who shared their cultures, experiences, and passion for the Spanish language!
+
+✨ October 1: Mrs. Judith Mendez, an educator from Argentina, visited Spanish IV and AP Spanish Language and Culture classes. Through personal stories and authentic artifacts, she explored cultural differences, Argentine traditions, and the value of embracing diverse perspectives.
+
+✨ October 15: Emily Armstrong, a UCA student majoring in Education and minoring in Spanish, visited AP Spanish to share her study-abroad experience in León, Spain. Students learned about UCA's Spanish programs and the academic, professional, and cultural opportunities that come with continuing their language studies.
+
+❤️ Thank you to Mrs. Mendez and Emily Armstrong for inspiring our students and showing how learning a language builds connections, opens doors, and expands our understanding of the world!
+
+#HispanicHeritageMonth #ConwayHighSchool #CHSSpanish #CulturalAwareness #WorldLanguages
+
+### 2026-10-26 · Conway Athletics (id 13607795)
+
+Basketball is that you?! We are a week away form the season. Please come out to meet your 26'-27' Lady Wampus Cats/Wampus Cats basketball teams! Cheer and dance will also be performing! This is a fundraising event, so no passes will be accepted. Please the link below to purchase your tickets!
+
+Link: https://gofan.co/event/6961273?schoolId=AR4663
+
+### 2026-10-27 · Canaan Groesbeck (id 13611939)
+
+State Volleyball Tournament has arrived!! Our Lady Cats are taking on Bentonville West today at 6pm 6A State Volleyball Tournament! Let's go, Ladies!!
+
+### 2026-10-27 · Marcelle Goins (id 13614309)
+
+Big shout out to Dereon Holt on being named Arkansas Democrat Gazette Player of the Week presented by The Little Rock Touchdown Club yesterday!
+
+### 2026-10-27 · Marcelle Goins (id 13617878)
+
+If you can't make it to the volleyball game tonight, please use the link below to support the volleyball team!! 
+
+🔗: http://Gobentonvillewestwolverines.com/broadcast
+
+### 2026-10-27 · Marcelle Goins (id 13626789)
+
+Lady Cats volleyball wins in 5 sets. They advance to play in the semi-finals tomorrow vs. Fayetteville at 4:00
+
+### 2026-10-28 · Conway Public Schools (id 13620678)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-28 · Joseph Moon (id 13631050)
+
+We're proud of the academic work our guys did in the first 9 weeks!  Championship effort in the classroom!
+
+### 2026-10-28 · Canaan Groesbeck (id 13631535)
+
+SEMI FINALS MATCH TODAY!! Our Lady Cats are taking on the Fayetteville Lady Bulldogs at 4:00pm in the semi finals of the 6A State Volleyball Tournament! Keep going, Lady Cats!!!!Live Stream Link: https://fan.hudl.com/usa/ar/fort-smith/organization/6215/northside-high-school/team/243127/girls-varsity-volleyball?shared=true
+
+### 2026-10-28 · Conway Athletics (id 13635176)
+
+Can't make to Ft. Smith? Please use the link below to watch the Lady Cats take on Fayetteville in the semi-finals match of the 6A State Volleyball Tournament. 
+
+Live Stream Link: https://fan.hudl.com/usa/ar/fort-smith/organization/6215/northside-high-school/team/243127/girls-varsity-volleyball?shared=true
+
+### 2026-10-28 · Conway High School (id 13638131)
+
+📸 CHS Seniors: Your Photos Are Ready!
+
+Senior portraits are ready to view! Check the graphic below for instructions on how to find your photos using Strain Photography’s FaceFind feature.
+
+Questions? Contact Strain Photography at 501-358-6150 or info@strainphotography.info.
+
+#WampusCats #CHSClassOf2027
+
+### 2026-10-28 · Conway High School (id 13638149)
+
+📸 CHS Juniors & Sophomores: Forgot to Order Your School Pictures?
+
+It's not too late! Visit strainschoolpics.com, select “Late Orders,” and use the student's ID number as the access code. See the graphic below for step-by-step instructions.
+
+Questions? Contact Strain Photography at 501-358-6150 or info@strainphotography.info.
+
+#WampusCats #ConwayHighSchool
+
+### 2026-10-28 · Conway Athletics (id 13641436)
+
+🐾 6A CENTRAL CONFERENCE CHAMPIONS! 🐾
+
+What a day for the Conway Wampus Cats! 🏆💙
+
+Our boys brought home the 6A Central Conference Championship, while our girls earned a 2nd-place finish!
+
+A special congratulations to our 5 All-Conference runners: Raven Fuller, Nate Atwell, Thea Schwab, Ellie ONeal, and Ava ONeal.
+
+We are so proud of these athletes and all the hard work, dedication, and heart they have put into this season! But we're not done yet! 💪
+
+NEXT STOP: STATE! 🏁 Both teams are headed to the state meet next week, and we can't wait to see our Wampus Cats compete! Let's finish strong! 🔥🐾
+
+### 2026-10-29 · Marcelle Goins (id 13643824)
+
+Today's 8th grade football game at LR Southwest vs. NLR has been canceled. There will only be a 9th grade game vs. LR Southwest starting at 6:00. 
+
+🔗: https://gofan.co/event/6785198
+
+### 2026-10-29 · Joseph Moon (id 13645835)
+
+🏀 SUPPORT CONWAY BOYS BASKETBALL! 🏀 Grab one of these Conway Basketball shirts and help support our boys basketball program this season! 🔵 Cotton shirt available in adult and youth sizes 🔵 Also available as a crewneck sweatshirt 🔵 Proceeds benefit Conway Boys Basketball We appreciate our community’s continued support of our student-athletes and our program! Order yours using the link below! ⬇️ https://conwaybball26.itemorder.com/shop/sale/
+
+### 2026-10-29 · Canaan Groesbeck (id 13648061)
+
+There is still time to donate to Emmersyn Caldwell! The GoFan Donation link closes tomorrow! 
+
+Link: 
+https://gofan.co/event/6934068
+
+### 2026-10-29 · Conway Athletics (id 13649983)
+
+Conway Baseball Big Brother Program starts next week
+

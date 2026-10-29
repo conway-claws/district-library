@@ -980,3 +980,41 @@ A huge thank you to TheatreSquared for inspiring our young performers and showin
 
 #SimonStrong #WeAreSimon
 
+### 2026-10-24 · Angel Moix (id 13504936)
+
+🌟 Congratulations to our 5th Grade Students of the Month! 🌟
+
+Join us in celebrating these outstanding Wampus Cats for going above and beyond! 🐾✨
+
+🔹 Ramses M. – A responsible, kind, and considerate role model who takes ownership of his actions, respects everyone around him, and tackles challenges with a great attitude!
+🔹 Iris M. – A hardworking and dependable student who always gives her best effort and makes great choices. Iris loves helping her classmates succeed every single day!
+
+We are so proud of your hard work, leadership, and positive example. Keep shining, Iris and Ramses! 💙👏
+
+### 2026-10-26 · Angel Moix (id 13504883)
+
+📚 Shoutout to our Wampus Cat Top Readers & Classes! 🐾✨
+We are so proud of our students and staff for hitting the books and turning those pages! Huge congratulations to our grade-level leaders, staff top readers, and the leading classes.
+
+5th Grade - Iris M, Ky’Ndell B, Monica C
+6th Grade - Jackson B, Timothy W, Clayton G
+7th Grade - Joseph K, Corey G, Kaden M
+Staff - Mrs. Taylor, Mrs. Walburn, Mrs. Henderson
+Classes - Walburn 6th, Henderson 2nd, Walburn 2nd
+
+Parents, keep that momentum going at home! Encourage your students to log their reading minutes in Beanstack today so they can be recognized in our next roundup.
+Keep reading and roaring, Wampus Cats! 📖💙
+
+### 2026-10-28 · Conway Public Schools (id 13620675)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+

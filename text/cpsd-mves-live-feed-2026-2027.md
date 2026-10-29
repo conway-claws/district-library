@@ -1666,3 +1666,160 @@ We love seeing science, creativity, and critical thinking come together as our L
 
 #WeAreMVE#LevelUp
 
+### 2026-10-25 · Audrey Cooper (id 13559519)
+
+📚✏️ ATLAS Interim Testing Reminder!✏️📚
+
+Attention, Marguerite Vann Families! 💙🤍
+
+Our Kindergarten–2nd Grade students will participate in ATLAS Interim Testing  between October 27–November 6! Please check with your child's teacher about the specific date for each grade level.
+
+We want our Little Cat Vikings to feel confident, prepared, and ready to do their BEST! 🌟
+
+Here are a few ways you can help:
+
+🏫 Attendance Matters! Please make sure your child is at school on their scheduled testing days and arrives on time.
+
+🥞 Fuel Their Brains! Start each day with a nutritious breakfast.
+
+😴 Rest Up! Make sure your child gets plenty of sleep the night before testing.
+
+💙 Encourage Them!  Remind your child to take their time, try their best, and believe in themselves!
+
+Thank you, families, for helping set our Little Cat Vikings up for success! We are so proud of how hard they work each day! 🐾
+
+#LevelUp#WeAreMVE
+
+### 2026-10-25 · Audrey Cooper (id 13593855)
+
+🏃‍♀️🏀 PE is Better Together! 💙🤍
+
+We had a BLAST welcoming our family and friends to join us for physical education! 🎉
+
+There was plenty of laughter, movement, teamwork, and FUN as we played, learned, and made special memories together!
+
+A BIG thank you to all of our amazing VIPs who took time out of their day to join the fun! We love sharing these special moments with our Marguerite Vann families! 💙
+
+#BetterTogether#WeAreMVE
+
+### 2026-10-25 · Audrey Cooper (id 13559315)
+
+4th grade running club is cancelled for Monday, October 26. Thank you.
+
+### 2026-10-25 · Audrey Cooper (id 13594659)
+
+❤️🎮 RED RIBBON WEEK 2026! 🎮❤️
+
+It's time to LEVEL UP YOUR LIFE!*🌟
+
+Join us at Marguerite Vann Elementary as we celebrate Red Ribbon Week, October 26–30! This year's theme reminds our Little Cat Vikings that healthy choices are our SUPERPOWER! 💪❤️
+
+Get ready for a fun-filled week of dress-up days!
+
+🦸 Monday – Superhero/Hero Day: Dress as a hero or wear your favorite superhero shirt!
+
+🏈 Tuesday – Team Up Day:*Wear your favorite team gear, team colors, or MVE spirit wear!
+
+😎 Wednesday – Bright Future Day: Shine bright in neon colors and sunglasses!
+
+💤 Thursday – Comfy Being Me Day: Wear school-appropriate pajamas or comfy clothes!
+
+❤️ Friday – RED OUT! Wear as much RED as you can!
+
+Let's show our school spirit while making healthy choices and building a bright future! 🌟
+
+Reminder: School dress code applies. No masks or weapon-like props.
+
+❤️💙 Little Cat Vikings make healthy choices!
+
+#RedRibbonWeek2026 #LevelUpYourLife #HealthyChoices
+
+### 2026-10-26 · Audrey Cooper (id 13601891)
+
+Monster Mash THIS Friday, October 30, from 5:30-7:00. $5.00 per family. Please  check the flyer for more details.
+
+### 2026-10-27 · Audrey Cooper (id 13626444)
+
+🍂📚 Fall Stories & Special Visitors! 🍁❤️
+
+Our Kindergarten and First Grade students were so excited to welcome back a familiar face—our former first grade teacher, Mrs. Young! 🥰
+
+Thank you, Mrs. Young, for taking the time to visit, share some of our favorite fall books, and make reading even more special for our little learners! 📖🍎
+
+Once a part of the MVE family, always a part of the MVE family! 💙🤍 We loved having you back! 🍁💕
+
+#WeAreMVE#LevelUp
+
+### 2026-10-27 · Audrey Cooper (id 13626526)
+
+💙🤍 A Sweet Start to Our Day at MVE!🍂🥐
+
+Our staff started the morning feeling extra loved and appreciated! 🥰
+
+A HUGE thank you to Smith Family Pharmacy for generously providing breakfast for our MVE staff this morning! We are so grateful for your kindness and continued support of our school! ❤️
+
+We also want to give a special shoutout to Mrs. Darrallyn Webb, Mrs. Clark’s mom, for treating us to some delicious homemade cinnamon rolls! 😋💕
+
+We are so thankful to have such thoughtful families and community partners who go above and beyond to make our staff feel special!
+
+Thank you for making our morning a little sweeter! 🍁💙🤍
+
+### 2026-10-28 · Conway Public Schools (id 13620672)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-28 · Audrey Cooper (id 13633687)
+
+🧥🧤 LOST & FOUND ALERT!🎒👕
+
+Is your child missing a jacket, hoodie, lunchbox, or water bottle? 👀
+
+Our Lost & Found at Marguerite Vann  Elementary is filling up! We have several items just waiting to be reunited with their owners! 💙🤍
+
+Please encourage your child to check the Lost & Found for any missing belongings.
+
+🏷️ Friendly Reminder: Labeling your child's belongings with their name helps us return lost items quickly!
+
+Let's get these items back home where they belong! 🏠💙
+
+#MargueriteVannElementary #LostAndFound #MVEFamily
+
+### 2026-10-28 · Audrey Cooper (id 13641266)
+
+🎃🧪 Spooky Science Fun in Enrichment!🔬
+
+Science is getting a little SPOOKY at Marguerite Vann this week! 👻
+
+Our students are exploring chemical and physical changes through exciting themed science experiments!
+
+🎃 Foaming Pumpkins– Watching a chemical reaction come to life!
+
+🧙‍♀️ Melting Witches– Discovering physical changes as our witches melt away!
+
+These hands-on experiments are bringing science concepts to life while encouraging curiosity, exploration, and lots of excitement! 🧡💚
+
+A HUGE thank you to Mrs. Clark for making science so engaging, memorable, and FUN for our students! 🧪✨
+
+#WeAreMVE#HandsOnLearning
+
+### 2026-10-28 · Audrey Cooper (id 13641320)
+
+🌟😎 Our Future is SO Bright at Marguerite Vann! 🌈✨
+
+Another GREAT day celebrating Red Ribbon Week at MVE! Our students were shining bright in their neon colors and shades as we reminded everyone that the healthy choices we make today help us build a BRIGHT future!💚💛🩷
+
+🛏️💤 Tomorrow is Comfy Day/Pajama Day! Come dressed in your favorite comfy clothes or pajamas as we continue celebrating healthy choices!
+
+We can't wait to see everyone cozy and ready to learn! ❤️💙
+
+#MVEProud #RedRibbonWeek #BrightFutures #HealthyChoices
+

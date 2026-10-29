@@ -872,3 +872,74 @@ Principal, Ida Burns Elementary
 
 Home of the Wampus Cats!
 
+### 2026-10-24 · Caroline Baker (id 13590324)
+
+Red Ribbon Week is this week! October 26-30th! We hope to have your participate with us! 
+Monday is Be a Super Hero! You can have your child wear a super hero shirt, eye mask, or cape! 
+Tuesday is Heroes Make a Difference! Students can dress up as a real life hero; such as a doctor, lawyer, teacher, police officer, nurse, firefighter, etc. 
+Wednesday is Heroes are Everywhere! Wear sun glasses, hats, ties, or secret agent attire. 
+Thursday is Use Your Powers to Make a Difference. Wear red, pink, or hearts. We will challenge our kiddos to do a kind act. 
+Friday is Wampus Cats are Drug Free! Wear your Wampus Cats or Little Cats gear!
+
+### 2026-10-25 · Ida Burns Elementary (id 13594311)
+
+Parent newsletter for the week of Oct. 26. 
+
+https://app.smore.com/n/27x4u
+
+### 2026-10-28 · Conway Public Schools (id 13620663)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-29 · Caroline Baker (id 13645156)
+
+Dear Second Grade Families,All second grade students in Conway Public Schools will participate in a district-wide ability assessment as part of our Gifted and Talented identification process.Students will complete a brief practice section at the end of October. The assessment has three parts and will be given over a 2–4 week period during the month of November.Because testing will take place during your child’s Enrichment class, please make a special effort for your child to be at school on the day they attend Enrichment.The assessment measures reasoning abilities in verbal, quantitative, and nonverbal areas.Results will be used as one source of information during the Gifted and Talented referral and identification process in the spring.No special preparation is needed.
+
+### 2026-10-29 · Caroline Baker (id 13645172)
+
+Dear Second Grade Families,All second grade students in Conway Public Schools will participate in a district-wide ability assessment as part of our Gifted and Talented identification process.Students will complete a brief practice section at the end of October. The assessment has three parts and will be given over a 2–4 week period during the month of November.Because testing will take place during your child’s Enrichment class, please make a special effort for your child to be at school on the day they attend Enrichment.The assessment measures reasoning abilities in verbal, quantitative, and nonverbal areas.Results will be used as one source of information during the Gifted and Talented referral and identification process in the spring.No special preparation is needed.
+
+### 2026-10-29 · Caroline Baker (id 13646406)
+
+Dear Ida Burns Families,
+
+This Veterans Day, we want to take a special opportunity to honor the brave men and women who have served our country!
+
+At Ida Burns Elementary, we know that many of our students and families have loved ones who have proudly served in the United States Armed Forces. This year, we would love to recognize these special individuals by creating a Veterans Day slideshow featuring photographs of our very own Ida Burns family heroes!
+
+We invite you to submit a photograph of a veteran in your family, along with the following information:
+
+- Veteran's Name
+- Branch of Military
+- Military Rank
+- Relationship to an Ida Burns Student or Staff Member (Example: Grandfather of Emma, 2nd Grade)
+- Photograph of the Veteran
+
+Please note: To protect the privacy of our students, only their first names will be included in the slideshow.
+
+Please email your photograph and information to bakerca@conwayschools.info.
+
+We kindly ask that all photographs be submitted digitally through email rather than sending original photographs to school. We know how precious these family photographs can be, and we would hate for a treasured photo to be accidentally lost or damaged.
+
+Whether your loved one is currently serving, has previously served, or is no longer with us, we would be honored to recognize their service and sacrifice.
+
+We are grateful for the courage, dedication, and sacrifices of our veterans, and we look forward to sharing these special individuals with our Ida Burns school family.
+
+Thank you for helping us teach our students the importance of honoring those who have served our country!  If you have already sent this information into me, thank you! 
+
+With gratitude,
+
+Mrs. Baker  
+Principal, Ida Burns Elementary
+
+Home of the Wampus Cats!
+

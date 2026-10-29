@@ -1095,3 +1095,38 @@ We may be busy with conferences, but just look at these kiddos being busy with t
 
 #WeAreJSE
 
+### 2026-10-26 · Barbara Clardy (id 13597554)
+
+✨ Get ready to shine, Jim Stone Elementary School families! Tomorrow, Tuesday, October 27, is Neon Day during Spirit Week. Students are encouraged to wear bright neon colors and help us celebrate—our future is bright! 🌟💛
+
+#WeAreJSE
+
+### 2026-10-27 · Barbara Clardy (id 13597673)
+
+😎 Get ready to look cool, Jim Stone Elementary School families! 
+
+Wednesday, October 28 is Sunglasses Day during Spirit Week. Students are encouraged to wear sunglasses and help us celebrate—cool kids make cool choices! 🕶️✨
+
+#WeAreJSE
+
+### 2026-10-28 · Conway Public Schools (id 13620670)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-28 · Barbara Clardy (id 13603528)
+
+🎉 Get ready to show your school spirit, Jim Stone Elementary School families! 
+
+Thursday, October 29 is Spirit Day during Spirit Week. Let’s celebrate together—JSE is the dream team! 🐾💙
+
+#WeAreJSE
+

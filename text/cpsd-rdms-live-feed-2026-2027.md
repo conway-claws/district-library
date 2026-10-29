@@ -1224,3 +1224,86 @@ Guidelines: School-appropriate costumes only. No full-face masks/makeup, no dang
 
 #WeAreRDMS #TeamConway #RedRibbonWeek #StayDrugFree
 
+### 2026-10-25 · Rachel Fowler (id 13593063)
+
+Let’s start celebrating Red Ribbon Week — Oct 26–30! Theme: “Make A Difference. Be A Hero. Stay Drug Free.™”
+
+Monday, October 26: “Listen to UNC Day”—dress like an old person and show you’re listening to others’ experiences and guidance.
+#WeAreRDMS #RedRibbonWeek #DrugFree #TeamConway
+
+### 2026-10-26 · Rachel Fowler (id 13609128)
+
+🎃 BOO‑GRAMS FUNDRAISER — Support Ruth Doyle students going to Washington D.C.! 👻
+
+💲Boo‑grams are $0.50 - $2.00 each 
+
+📅Tuesday through Thursday during Activity time. 
+
+📨They will be delivered during 8th period each day.
+
+TUESDAY IS KINDNESS DAY — buy one for yourself and one for someone else. Be kind to your mind and others! 💜✨
+
+### 2026-10-26 · Rachel Fowler (id 13597161)
+
+Ready to be a hero for a cause? 🦸‍♀️🦸‍♂️Let’s continue celebrating Red Ribbon Week: Make a Difference. Be A Hero. Stay Drug Free.
+
+🌟 Tuesday, October 27 is Student/Teacher Clone Day — dress like each other — or simply wear RED to show your support! ❤️ 
+#WeAreRDMS #TeamConway #StayDrugFree #BeAHero
+
+### 2026-10-27 · Conway Athletics (id 13623557)
+
+Ruth Doyle volleyball girls are excited about earning a school banner for their 14- 1 regular season.  Way to go ladies.  Keep shining!
+
+### 2026-10-27 · Rachel Fowler (id 13623044)
+
+🎈 Red Ribbon Week Reminder — Wednesday, October 28: ANYTHING BUT A CAP! 🎈
+
+We’re celebrating uniqueness and putting a lid on bullying. Wear anything but a hat — try headbands, big bows, sunglasses on your head, or wild hair! 🌈✨
+
+Be yourself. Show creativity. Make a difference. ❤️
+#WeAreRDMS #TeamConway #RedRibbonWeek #StayDrugFree
+
+### 2026-10-28 · Erika Easley (id 13626413)
+
+🍏 An APPLE-solutely Sweet Treat! 🍏 
+
+Our RDMS staff enjoyed a delicious Apple Bar filled with fall flavors and sweet treats! ❤️ Just a little something to show appreciation for the amazing people who make RDMS such a special place!
+
+We love our Wampus Cat family!
+
+### 2026-10-28 · Conway Public Schools (id 13620674)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-28 · Rachel Fowler (id 13634368)
+
+🎃 Ready for a frightfully fun night? RDMS PTO invites students to the Halloween Dance on Friday, October 30 from 6–8 PM! 👻🕺
+
+📍 Get your ticket during lunch — $5 early bird price or $7 at the door. Food and drinks will be available for purchase. 
+
+📵Please note: Students will not be allowed to have cell phones in the gym or cafeteria—not because we don’t trust them, but so they can be fully present. A middle school dance should be a place to dance badly, laugh loudly, make memories, and be kids—not worry about who is filming or what’s happening online. For one evening, we’re asking them to put the phones away and enjoy the people standing right beside them.
+
+📸Photos can be taken outside or in the lobby!
+
+### 2026-10-28 · Rachel Fowler (id 13631524)
+
+Want to stand out by blending in? 😉
+
+🎮NPC Day — Thursday, October 29🎮
+
+✨Dress like a non-player character: think simple, practical, and low-key — gray or neutral hoodie, basic tee and jeans/sweatpants, classic sneakers, and small accessories like a lanyard, cap, or coffee cup.
+Remember: dress code still applies. 
+
+Make your own choices, stay true to you, and be a positive influence.
+
+#WeAreRDMS #TeamConway #RedRibbonWeek #StayDrugFree
+

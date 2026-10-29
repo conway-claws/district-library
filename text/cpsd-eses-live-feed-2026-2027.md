@@ -559,3 +559,44 @@ Our students have been earning points through hard work, kindness, and teamwork.
 
 Having trouble getting Ellen Smith Announcements?  Make sure you OPT in to our notifications.  Text START to the appropriate numbers.
 
+### 2026-10-23 · Ellen Smith Elementary (id 13551153)
+
+Picture day is coming on Thursday, October 29.
+
+### 2026-10-25 · Matthew Coatney (id 13594808)
+
+Good evening, Ellen Smith families!We look forward to seeing all of our students back at school tomorrow! Here are a few reminders for the week ahead.Report CardsIf you missed parent/teacher conferences, your child’s first-quarter report card will be sent home this week.Jackets and Cooler WeatherWith cooler weather comes more jackets at school! Please write your child’s name on the jacket tag so we can return it if it gets left on the playground or around campus.Red Ribbon Week: October 26–30Join us as we celebrate making healthy choices and living drug-free!Monday — 🎀 RED DAY: Wear red to show your support for a healthy, drug-free life!Tuesday — 🧦 SOCK IT TO DRUGS: Wear silly, crazy, or mismatched socks. Don’t get mixed up—make healthy choices!Wednesday — 🖤 BLACK OUT DRUGS: Wear black, your favorite sunglasses, a hat—or all three!Thursday — 📸 DRESS YOUR BEST: Dress your best and celebrate making healthy choices!Friday — 🎃 COSTUME DAY: Wear your favorite school-appropriate costume. No masks or props, please.Picture Day — Monday, October 26If you would like to order pictures and have not received an order form, please contact your child’s teacher or call the front office.Adventure Run FundraiserWe have surpassed $6,000 raised, including online and in-person donations! Thank you for supporting our school. Our fundraising window closes Friday, October 30, and our Adventure Run will take place Tuesday, November 3.Grandparents Day — Friday, November 6Mark your calendars! We look forward to welcoming our grandparents to Ellen Smith.Thank you for partnering with us to help every student feel known, loved, and challenged each day!Matt CoatneyPrincipal, Ellen Smith Elementary
+
+### 2026-10-27 · Matthew Coatney (id 13624515)
+
+Good afternoon,I wanted to let you all know that we will be moving the classroom spelling bees  for 2nd-4th grade up to November 6th.  We will share out the winners at the end of that day. Thanks!
+
+### 2026-10-28 · Conway Public Schools (id 13620669)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-28 · Ellen Smith Elementary (id 13638318)
+
+🍁📚 Our Grand Event is Almost Here! 📚🍁
+
+Our Grand Event is coming up on Friday, November 6th! This is a special day when students can invite a grandparent or special guest to school to enjoy a snack, make a fun craft, and shop the Book Fair together!
+
+🚨 REMINDER: All RSVP forms must be returned by THIS FRIDAY, October 31st! 🚨
+
+We need all forms returned by the deadline so we can prepare for this special event. If you need another RSVP form, please let your child's teacher know.
+
+We can't wait to welcome our special guests and make some GRAND memories together! ❤️📚🍂
+
+### 2026-10-28 · Matthew Coatney (id 13641779)
+
+Picture Day tomorrow at ESE.
+

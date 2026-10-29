@@ -493,3 +493,47 @@ Come enjoy a little fall fun with your Littlest Cat! 💙🐾
 Open during Parent-Teacher Conferences
 Closes at 6:30 PM to allow time for clean-up.
 
+### 2026-10-26 · Sallie Cone Preschool (id 13594431)
+
+🍂💙 A heartfelt thank you to all the families who joined us for parent-teacher conferences! 
+We appreciate you taking the time to connect with your child’s teacher and enjoy special moments learning and playing together. 
+Your support and involvement mean so much to us and help make our Sallie Cone Preschool family so special! 🐾🧡
+
+### 2026-10-28 · Conway Public Schools (id 13620662)
+
+💙🐾 LET’S MAKE A DIFFERENCE, WAMPUS CAT NATION! 🐾💙Our CATS in Community Food Drive is underway, and we need your help! 🥫 Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.📅 Collection Dates: Now through November 17📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-10-28 · Sallie Cone Preschool (id 13634493)
+
+🐛🪱 Learning in Our Arkansas Room! 🌿
+
+Our Right Brain learners are exploring the world of bugs while building early math skills! 🔢 
+Children draw a number card, identify the numeral, and count out the matching number of worms. This hands-on activity supports number recognition, counting, and one-to-one correspondence as children connect numbers with quantities. 💙🐾
+
+#SallieConePreschool #LearningThroughPlay
+
+### 2026-10-28 · Sallie Cone Preschool (id 13641143)
+
+October 30, 2026 we will celebrating our October birthdays and although it falls on day before Halloween, there are NO COSTUMES ALLOWED. Thank You
+
+### 2026-10-29 · Sallie Cone Preschool (id 13635065)
+
+🎃🍂 Our little learners are exploring fall through hands-on pumpkin discovery!
+
+As the children observed, touched, and cleaned out a pumpkin, they used their senses to investigate and describe what they noticed. Some described the outside as “bumpy” and the inside as “slimy” and “gooey!” While some children enjoyed the textures, others discovered that they weren’t quite for them—and that’s okay! 🧡
+
+Through this experience, children practiced scientific observation, descriptive language, sensory exploration, and fine motor skills, all while building curiosity and confidence as they explore the world around them. 🍁🎃
+
+### 2026-10-29 · Sallie Cone Preschool (id 13649341)
+
+Today Teachers will pass out the order forms and let you know which day your child will be taking their Fall photos!
+
