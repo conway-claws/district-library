@@ -747,3 +747,84 @@ Thank you for your support!
 🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
 🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
 
+### 2026-10-30 · Theodore Jones Elementary (id 13633894)
+
+🐾💙 “PAWS”ITIVE FAMILY CONNECTION! 💙🐾
+
+Happy Friday, families! 🎉 Each Friday, we share a skill being taught at school, and we invite you to join in on the fun by using our discussion starters and family challenges at home! 🏡❤️
+
+🎃 This Week’s Focus: Trick-or-Treating & Safety!🍬👻
+
+Trick-or-treating is a great opportunity to practice responsibility! Here are some important safety tips to review with your family:
+
+🍭 Practice Responsible Trick-or-Treating:
+✅ Stay visible. ✅ Walk on sidewalks. ✅ Inspect all candy with an adult before eating.
+
+🔦 Stay Safe While Trick-or-Treating:
+ ✨ Wear bright clothing. ✨ Carry a light. ✨ Avoid long, trailing clothing that could cause you to trip and fall. ✨ Walk on sidewalks. ✨ Face traffic. ✨ Look both ways before crossing the street.
+
+💬 Family Challenge: Use these discussion starters to talk with your children about responsibility and staying safe while trick-or-treating. Make it a fun learning experience for the whole family!
+
+📸 Don't forget to post pictures of your kids and their costumes in the comments! We can't wait to see all the Halloween fun! 🧡🖤🎃
+
+#PawsitiveFamilyConnection #FamilyEngagement #TrickOrTreatSafety #HalloweenSafety #FamilyChallenge #SchoolCommunity
+
+### 2026-11-01 · Theodore Jones Elementary (id 13677956)
+
+Grades 3 & 4 will be presenting the musical “Children of the World” on Tuesday, November 3, 2026, at 6:30 p.m. at Conway High School.
+
+Students may dress like one of the countries we are learning about or wear regular school clothes.
+
+Countries: Mexico, South Africa, Japan, Nicaragua, and France.
+
+We will practice the morning of our show at the high school.
+
+### 2026-11-02 · Theodore Jones Elementary (id 13686468)
+
+Make-up picture day will be Friday, November 6th!
+
+Need a retake? Your original picture package must be returned on picture day. Please include a note explaining what you would like done differently.
+
+📷 Strain Photography
+
+Website: www.strainschoolpics.com
+
+Questions? Email info@strainphotography.info
+
+### 2026-11-02 · Theodore Jones Elementary (id 13688882)
+
+Hello November- Click here for our newsletter- https://conwaypublicschools.edurooms.com/newsletters/theodore-jones-elementary/newsletters/november
+
+### 2026-11-03 · Theodore Jones Elementary (id 13701172)
+
+Dear Parents,
+
+Kona Ice is coming this Friday, November 6th! 
+
+Follow the link below to order.
+https://customer.kona-ice.com/#/K308X8982723
+
+The ordering deadline for this event is Thursday Nov 5th at 9PM. This is a cashless event.
+
+
+Please make sure to send their cups in their backpacks the day of the event to avoid dropping them off in the office the day of.  Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic).  Please make sure the cups are clean and not cracked. We do not replace broken cups. 
+
+Please consider buying a Pay it Forward Kiddie cup for a less fortunate student for $3
+
+Pick your size from $3 up to $7, then add a candy  spoon for $2  extra! All cups are on the prepay site!
+Note: Please remember to add your student's name when you select their teacher from the drop down list, otherwise it will be blank!
+
+Kona Ice donates a portion of all sales from this event to your student's school.
+
+### 2026-11-04 · Theodore Jones Elementary (id 13714333)
+
+🇺🇸 Calling All TJE Military Families! 🇺🇸
+
+In honor of Veterans Day, we would love to recognize and celebrate the military parents in our TJE family!
+
+If you are a parent or grandparent of a TJE student who is currently serving in the military or is a retired veteran, we would love to hear from you. We are hoping to include you in a special Veterans Day celebration at our school as a way to show our appreciation for your service and sacrifice.
+
+If you are interested in participating, please reach out to Mrs. Fisher at **fisherj@conwayschools.info** by the end of the day tomorrow.
+
+Thank you for your service, your sacrifice, and for being part of our TJE family! ❤️🤍💙
+

@@ -943,3 +943,152 @@ Principal, Ida Burns Elementary
 
 Home of the Wampus Cats!
 
+### 2026-10-29 · Caroline Baker (id 13652697)
+
+We would love to help collect food to benefit our families and students in Conway. Please send any requested items to Ida Burns and we will get the food to the food drive.  Thank you for your support!
+
+### 2026-10-30 · Caroline Baker (id 13670042)
+
+Kona Ice is coming!
+
+
+
+Use the attached QR code to place your student’s order, or follow the link below.
+
+https://customer.kona-ice.com/#/K308X8042869
+
+Pick your size from $3 up to $7, then add a candy spoon, a sour packet, or a color changing spoon for a little extra! All items are on the prepay site!
+
+Please consider buying a Pay it Forward Kiddie cup for a less fortunate student for $3
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic).  Please make sure the cups are clean and not cracked. We do not replace broken cups
+
+The ordering deadline for this event is Thursday Nov 5 at 9pm sharp.
+
+Note: Please remember to add your student’s name when you select their teacher from the drop down list, otherwise it will be blank!
+
+Kona Ice donates a portion of all sales from this event to your student’s school
+
+### 2026-10-31 · Ida Burns Elementary (id 13674861)
+
+Kona Ice is coming!
+
+Use the attached QR code to place your student’s order, or follow the link below.
+
+https://customer.kona-ice.com/#/K308X8042869
+
+Pick your size from $3 up to $7, then add a candy spoon, a sour packet, or a color changing spoon for a little extra! All items are on the prepay site!
+
+Please consider buying a Pay it Forward Kiddie cup for a less fortunate student for $3
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic).  Please make sure the cups are clean and not cracked. We do not replace broken cups
+
+The ordering deadline for this event is Thursday Nov 5 at 9pm sharp.
+
+Note: Please remember to add your student’s name when you select their teacher from the drop down list, otherwise it will be blank!
+
+Kona Ice donates a portion of all sales from this event to your student’s school
+
+### 2026-11-01 · Ida Burns Elementary (id 13680317)
+
+Parent Newsletter for November 2
+https://app.smore.com/n/zspdg
+
+### 2026-11-02 · Ida Burns Elementary (id 13674863)
+
+Kona Ice is coming!
+
+Use the attached QR code to place your student’s order, or follow the link below.
+
+https://customer.kona-ice.com/#/K308X8042869
+
+Pick your size from $3 up to $7, then add a candy spoon, a sour packet, or a color changing spoon for a little extra! All items are on the prepay site!
+
+Please consider buying a Pay it Forward Kiddie cup for a less fortunate student for $3
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic).  Please make sure the cups are clean and not cracked. We do not replace broken cups
+
+The ordering deadline for this event is Thursday Nov 5 at 9pm sharp.
+
+Note: Please remember to add your student’s name when you select their teacher from the drop down list, otherwise it will be blank!
+
+Kona Ice donates a portion of all sales from this event to your student’s school
+
+### 2026-11-02 · Caroline Baker (id 13697534)
+
+Good evening, Ida Burns Families!
+
+We want to send an important reminder regarding our morning drop-off procedures.
+
+All students arriving by vehicle MUST be dropped off through our designated car rider line. We are continuing to see families parking on surrounding side streets or in the parking lot and walking their children to the building. This is not permitted during morning arrival.
+
+These expectations also apply to families dropping off middle school students. Middle school families should not use the surrounding side streets or the Ida Burns parking lot as an alternative drop-off location. All families must follow the designated arrival procedures for their student's school.
+
+These procedures are in place for the safety of ALL students, families, and staff. When families bypass designated drop-off procedures, it creates additional traffic concerns and makes it more difficult for our staff to maintain a safe and orderly arrival process.
+
+Please remember:
+
+- All Ida Burns vehicle drop-offs must use the designated car rider line.
+- Parents should not park on surrounding side streets to walk students to school.
+- Parents should not park in the school parking lot and walk students to the building.
+- Middle school families must also utilize our designated drop-off procedures and may NOT park in the cafeteria parking lot.
+- Please follow the directions of staff members assisting with morning arrival.
+
+We understand that mornings can be busy, and we appreciate your patience as we work to get every student into the building safely and efficiently.
+
+These expectations apply to all families, and we need everyone's cooperation in following them consistently.
+
+Thank you for doing your part to keep our students safe each and every morning!
+
+Mrs. Baker 
+Principal, Ida Burns Elementary
+
+### 2026-11-03 · Caroline Baker (id 13708050)
+
+Dear Families,We wanted to let you know that our upcoming 1st grade Zoo field trip, originally scheduled for Thursday, November 12th, will need to be rescheduled due to a scheduling conflict.We are working to secure a new date and will share that information with you as soon as it is confirmed.We apologize for any inconvenience this change may cause and appreciate your understanding and flexibility. We are looking forward to a fun and exciting day at the zoo with our Little Cats!Thank you for your continued support!Mrs. BakerPrincipal, Ida Burns Elementary
+
+### 2026-11-04 · Caroline Baker (id 13719643)
+
+We will have photo makeups and retakes on Thursday, November 19th. Bring your original package and a note stating what you would like done differently. Bring your best smiles!
+
+### 2026-11-04 · Ida Burns Elementary (id 13674864)
+
+One More Day To Order!!!
+Kona Ice is coming!
+
+Use the attached QR code to place your student’s order, or follow the link below.
+
+https://customer.kona-ice.com/#/K308X8042869
+
+Pick your size from $3 up to $7, then add a candy spoon, a sour packet, or a color changing spoon for a little extra! All items are on the prepay site!
+
+Please consider buying a Pay it Forward Kiddie cup for a less fortunate student for $3
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic).  Please make sure the cups are clean and not cracked. We do not replace broken cups
+
+The ordering deadline for this event is Thursday Nov 5 at 9pm sharp.
+
+Note: Please remember to add your student’s name when you select their teacher from the drop down list, otherwise it will be blank!
+
+Kona Ice donates a portion of all sales from this event to your student’s school
+
+### 2026-11-05 · Ida Burns Elementary (id 13674867)
+
+Last Day to Order!! Deadline is 9 pm tonight! Kona Ice is coming!
+
+Use the attached QR code to place your student’s order, or follow the link below.
+
+https://customer.kona-ice.com/#/K308X8042869
+
+Pick your size from $3 up to $7, then add a candy spoon, a sour packet, or a color changing spoon for a little extra! All items are on the prepay site!
+
+Please consider buying a Pay it Forward Kiddie cup for a less fortunate student for $3
+
+Kona Ice refillable plastic cups may be refilled for $4  (if you pay and forget to send it they will receive a $4 Classic).  Please make sure the cups are clean and not cracked. We do not replace broken cups
+
+The ordering deadline for this event is Thursday Nov 5 at 9pm sharp.
+
+Note: Please remember to add your student’s name when you select their teacher from the drop down list, otherwise it will be blank!
+
+Kona Ice donates a portion of all sales from this event to your student’s school
+

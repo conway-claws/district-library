@@ -3308,3 +3308,194 @@ https://gofan.co/event/6934068
 
 Conway Baseball Big Brother Program starts next week
 
+### 2026-10-30 · Conway High School (id 13665672)
+
+Throughout Red Ribbon Week, our Wampus Cats came together to show their commitment to living drug-free! ❤️ Faculty, staff, administrators, and students signed our pledge banner, making a promise to support healthy choices and a drug-free future.
+
+We were also proud to have Superintendent Jason Black and Deputy Superintendent of Human Resources Dr. Karen Lasker join us in signing the pledge!
+
+Thank you to everyone who participated and helped reinforce the importance of making positive choices. Together, we stand united for a drug-free community!
+
+#RedRibbonWeek #DrugFreeLooksLikeMe #WampusCats
+
+### 2026-10-30 · Canaan Groesbeck (id 13667302)
+
+Congratulations to Braylin Merritt for being named 6A Central Conference Volleyball All State Player!
+For her senior season, she had 552 digs, which places her at 2nd on the All Time Record board. 
+Throughout her Varsity years, she accumulated 875 digs, which places her at 5th on the All Time Record board. Way to go, Braylin! We are so proud of you! 
+
+We also want to give a big congratulations to Paisley Porter and Braylin Merritt for being named 6A All State Tournament Team! This is a huge accomplishment and we are so proud! Great season ladies!
+
+### 2026-10-30 · Canaan Groesbeck (id 13667509)
+
+Congratulations to the following Lady Cat Volleyball players on their All Conference Awards. 
+
+1st Team: 
+Addison Connell 
+Addy Swindle
+Paisley Porter
+Braylin Merritt 
+
+2nd Team: 
+Whitney Yarbrough 
+Emmy Booy
+Avery Roussel
+
+### 2026-10-30 · Conway High School (id 13670036)
+
+The Red Ribbon Week spirit didn't stop with our first round of photos! ❤️ We're sharing a few more snapshots of our Wampus Cats participating in Red Ribbon Week and making their personal pledges to live drug-free.
+
+It's great to see so many students taking a moment to commit to healthy choices and a drug-free future. Thank you to everyone who participated and helped make this year's Red Ribbon Week meaningful!
+
+#RedRibbonWeek #DrugFreeLooksLikeMe #WampusCats
+
+### 2026-10-30 · Marcelle Goins (id 13670287)
+
+Wampus Cats take on the Little Rock Christian Warriors tonight. For the ones that can not make it, please use the link below to support. 
+
+🔗: https://youtube.com/live/_eRqwtyPvM4?feature=share
+
+### 2026-10-30 · Canaan Groesbeck (id 13666924)
+
+Congratulations to these two Lady Cat Volleyball seniors! They were both named AVCA Best and Brightest 1st team awards. These girls work so hard on and off the court! We are so proud of you, Ella and Addison!
+
+### 2026-10-30 · Canaan Groesbeck (id 13670994)
+
+Congratulations to Ella Orahood for being voted the 2026 John Bailey Lady Cat Legacy award winner! This award is voted on by the team and coaching staff.  It is a huge honor, represents the ultimate teammate and is the definition of what it means to be a Lady Cat. Way to go, Ella!! 
+
+The Legacy award honors players whose individual qualities have represented Conway High School, their team, and themselves on and off the court. This player should be selfless (putting the team's needs, interests, and goals before their own), passion (having an intense desire for the team's success), encouraging (promoting courage, pride, and confidence in others), dedicated (committing themselves to the program), and a leader that inspires the conduct and direction of fellow teammates.
+
+### 2026-10-31 · Joseph Moon (id 13676522)
+
+Wampus Cat Basketball Team Retreat 2026 is in the books!
+
+We appreciate Colby Crow and Blake Walter for giving their time to lead our guys in some fun team building activities!
+
+Huge thanks to Brandon Perry and Camp Haven for letting us use their facility and Chris Sullivan and Haywood for keeping us well fed!
+
+### 2026-10-31 · Marcelle Goins (id 13676575)
+
+Congratulations to the Wampus Cat football team!
+
+### 2026-11-02 · Conway Athletics (id 13651108)
+
+Conway Athletics happenings this week!
+
+### 2026-11-02 · Conway High School (id 13670368)
+
+⏱️ Ready, set, ANNOTATE! ✍️
+
+Mrs. Vinson’s seniors are speed annotating Hamlet’s soliloquy in Act I, racing against the clock to uncover Shakespeare’s deeper meaning, one line at a time! 📖🖋️
+
+#SeniorEnglish #Hamlet #SpeedAnnotating #Shakespeare
+
+### 2026-11-02 · Beth Fluesmeier (id 13685037)
+
+Today is Basketball Madness! Come out and support our basketball teams. 
+No employee badges or passes are accepted for admission. Admission is $8.00 
+
+Here is the link for tickets: https://gofan.co/event/6961273?schoolId=AR4663
+
+### 2026-11-02 · Conway High School (id 13692837)
+
+💀🌼 CHS Spanish Club Celebrates Día de los Muertos! 🌼💀
+
+Last week, the CHS Spanish Club came together to celebrate and learn about Día de los Muertos (Day of the Dead), an important Hispanic tradition that honors and remembers loved ones who have passed away. 🕯️❤️
+
+Students explored the meaning behind this beautiful celebration while enjoying some traditional treats! 🍞☕ They tasted pan de muerto (Bread of the Dead), an important symbol of the celebration, and enjoyed a warm cup of traditional Mexican hot chocolate, Chocolate Abuelita. 🍫
+
+Students also got creative by decorating sugar skulls (calaveras de azúcar), another meaningful element often placed on Día de los Muertos altars (ofrendas). 🎨💀 The meeting ended with an exciting contest to recognize the top three best-decorated sugar skulls! 🏆
+
+It was a wonderful opportunity for our students to experience Hispanic culture, learn the significance of its traditions, and celebrate through food, art, and community. 🌺✨
+
+¡Viva la cultura! ¡Viva el español! ❤️💛
+
+### 2026-11-02 · Conway High School (id 13693543)
+
+💀🎨 A little creativity in honor of Día de los Muertos!  Senior Lauren Berkemeyer put her artistic talents to work, painting beautiful calaveras on Señora Tedford and Señora Caplan! What a fun way to bring a little culture and creativity into the classroom! 🌼
+
+#DíaDeLosMuertos #StudentTalent #WampusCats
+
+### 2026-11-02 · Conway High School (id 13695454)
+
+🎓 UAPB Brings the Golden Lion Spirit to CHS! 🦁💛
+
+Last week, the University of Arkansas at Pine Bluff (UAPB) brought a little Golden Lion pride to the CHS campus during its recruitment tour!
+
+Students enjoyed an exciting performance by the UAPB Marching Band and Cheer Squad, heard inspiring remarks from the chancellor and current students, and welcomed a special guest alumna—our very own Ms. Handley! Students also had the opportunity to connect with UAPB faculty and explore future opportunities at an information fair inside the arena.
+
+Thank you to UAPB for bringing the excitement, sharing your story, and giving our students a closer look at the opportunities waiting for them at the next level! 💛🖤
+
+#WampusCats #UAPB #CollegeAndCareerReadiness
+
+### 2026-11-03 · Conway Athletics (id 13698152)
+
+🏀💙 BASKETBALL MADNESS RECAP! 💙
+
+What a great night of basketball! 
+
+🏆 3-Point Contest Overall Champion: 
+Rai Wilson 🎯🔥
+
+🏆 Skills Competition Champions: 
+Sister/Brother duo Kylie & KJ Johnson! 🔥
+
+Congratulations to our winners and all of our competitors for putting on a great show!
+
+A HUGE thank you to everyone who came out to support ALL of our basketball programs!
+
+💙🐾 GO CATS! 🐾💙
+
+### 2026-11-04 · Joseph Moon (id 13722377)
+
+The remodel of Wampus Cat Basketball's locker room is complete!
+
+Huge thanks to the people and organizations who made it happen:
+
+- Derek Walter and WaltCo Construction
+- Chris Sullivan and Central Arkansas Pest Services
+- Grant Gordy and First Community Bank
+- Brett Berry and Crain Hyundai
+- Tony Wilson and Tony Wilson Constructors
+- Haley Garner and Double R Sign & Graphics
+- Jack Sullivan and Cadillac Chassis
+
+### 2026-11-05 · Canaan Groesbeck (id 13718379)
+
+Wampus Cat Swim and Dive season is here! First meet of the season today at Hendrix College. Swim fast!
+
+### 2026-11-05 · Conway Athletics (id 13728232)
+
+🏀 ONE WEEK AWAY! 🔥
+
+The countdown is ON! We are officially ONE WEEK away from the Lady Cat Invitational, presented by Dyermark! 🚾🏀
+
+We’re excited to welcome some great teams from across Arkansas for three days of competitive basketball! Come out, pack the stands, and support your Lady Cats!
+
+🎟️ PURCHASE YOUR TICKETS BELOW:
+
+🏀 Thursday: https://gofan.co/event/6970039?schoolId=AR4663
+
+🏀 Friday: https://gofan.co/event/6970040?schoolId=AR4663
+
+🏀 Saturday: https://gofan.co/event/6970052?schoolId=AR4663
+
+💙 Three days. Great competition. Let’s pack the gym!
+
+### 2026-11-05 · Conway Athletics (id 13729958)
+
+🏀 THANK YOU TO OUR SPONSORS! 🏀
+
+The 2026 Lady Cat Invitational wouldn’t be possible without the incredible support of our sponsors!
+
+A special thank you to Dyermark, our presenting sponsor, and to every business, family, and individual who helped make this event possible! 🚾🏀
+
+Your generosity is more than a sponsorship , it’s an investment in female athletes, providing opportunities for young women to compete, grow, and succeed!
+
+We are so grateful for a community that believes in and supports girls’ athletics!
+
+### 2026-11-05 · Canaan Groesbeck (id 13729129)
+
+Congratulations to Braylin Merritt on being selected to play in the 2026 ARVCA All Star game!! 
+The All Star game will take place on November 21st at 4:00pm at Greenbrier High School. Way to go, Braylin!
+

@@ -1145,3 +1145,63 @@ Not all heroes wear capes, but today we sure did. 🦸‍♂️✨ Taking on Red
 
 #JuliaLeeMoore #WeAreJLM #RedRibbonWeek #UnmaskYourPotential
 
+### 2026-10-30 · Julia Lee Moore Elementary (id 13649659)
+
+For Red Ribbon Week, we brought "Future Heroes Have Bright Futures" to life by dressing up as our dream jobs!
+
+#JuliaLeeMoore #WeAreJLM #RedRibbonWeek
+
+### 2026-10-30 · Julia Lee Moore Elementary (id 13660489)
+
+Huge thank you to the UCA Football team for opening car doors this morning! 🐻🏈✨
+
+#JuliaLeeMoore #WeAreJLM #GoBears #UCAFootball
+
+### 2026-10-30 · Julia Lee Moore Elementary (id 13660679)
+
+📢 JLM Families – Stay Connected! 💙
+
+We want to make sure we can always reach you!
+
+Please take a moment to ensure your phone number, email address, and emergency contact information are current with our school.
+
+📞 Has something changed? Contact the JLM office to update your information.
+
+Keeping your contact information current helps us share important school updates and reach you quickly when needed.
+
+Thank you for helping us stay connected and keep our Little Cats safe! 🐾
+
+### 2026-10-30 · Julia Lee Moore Elementary (id 13669370)
+
+Heroes team up for a cause!  Pinked out, geared up, and standing strong for Red Ribbon Week & Breast Cancer Awareness. Drug-free and fighting for a cure! 💕✨
+
+#JuliaLeeMoore #WeAreJLM #RedRibbonWeek
+
+### 2026-11-02 · Julia Lee Moore Elementary (id 13607571)
+
+Our 4th graders have been learning life-saving CPR skills! A big shout-out to Tracy Starks from the Arkansas Department of Health for coming to teach our kiddos!
+
+#JuliaLeeMoore #WeAreJLM #FourthGrade #LifeSkills
+
+### 2026-11-03 · Julia Lee Moore Elementary (id 13662276)
+
+Last week, kindergarten visited Arrowhead Pumpkin Patch for a day full of autumn fun! Our kindergarteners loved picking pumpkins, riding the hay wagon, and learning all about the farm. 🍂🐐🎃
+
+#JuliaLeeMoore #WeAreJLM #KindergartenFieldTrip #PumpkinPatch
+
+### 2026-11-04 · Julia Lee Moore Elementary (id 13700537)
+
+A look back at last week's pumpkin activities! 🎃 Hands-on learning is always our favorite way to spend the day!
+
+#JuliaLeeMoore #WeAreJLM #FallFun
+
+### 2026-11-05 · Julia Lee Moore Elementary (id 13621343)
+
+Our JLM Jam Glow Party was packed with so many glowing smiles! 💫✨ We loved seeing everyone light up the room with their awesome glow gear and energy.
+
+#JuliaLeeMoore #WeAreJLM #GlowParty
+
+### 2026-11-05 · Julia Lee Moore Elementary (id 13731446)
+
+JLM Fitness Club is CANCELED for TODAY, November 5th. Please make arrangements for regular student dismissal. Thank you!
+

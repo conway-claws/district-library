@@ -600,3 +600,43 @@ We can't wait to welcome our special guests and make some GRAND memories togethe
 
 Picture Day tomorrow at ESE.
 
+### 2026-10-29 · Matthew Coatney (id 13656765)
+
+Students can wear costumes tomorrow! Please no masks or props.
+
+### 2026-10-30 · Matthew Coatney (id 13658148)
+
+School store is canceled for today. We will share out the next date soon.
+
+### 2026-10-31 · Matthew Coatney (id 13675098)
+
+🎉 We’re less than $50 away from passing $10,000 in online and in-person donations for our Adventure Run fundraiser!
+
+We’ve extended the deadline to TOMORROW! Every donation helps—can you help us cross that $10,000 mark? 🐾
+
+Thank you to everyone who has supported our Ellen Smith students and school! ❤️
+
+Donate here: https://megadoughshop.com/adventure-run-1829.html
+
+More details to come tomorrow on the event for Tuesday.
+
+### 2026-11-01 · Matthew Coatney (id 13678979)
+
+Good evening ESE families, I hope everyone had a great weekend! We have several exciting events coming up this week.Adventure Run — Tuesday, November 3All students will participate in the obstacle course. Our schedule is:Kindergarten–1st grade: 9:00–10:00 a.m.2nd–4th grade: 10:00–11:00 a.m.Students who raised $25 or more will continue to additional portions of the course, while other students will enjoy additional fun activities we have planned. Students participating in the chalk battle at the $25 fundraising level or above should bring an extra change of clothes. Families are welcome to come throw chalk on their child if their child is participating in that portion of the Adventure Run!With rain in the forecast for Tuesday, we will decide Monday morning whether the Adventure Run needs to be rescheduled and share an update with families.We have surpassed $10,000 raised through online and in-person donations! Thank you for your generosity and support. The online donation portal closes tonight, but cash and check donations may still be sent to school tomorrow, Monday, November 2.Grand Event and Book Fair — Friday, November 6We cannot wait to welcome our guests for Grandparents Day! Friday will also mark the opening of our school book fair. Class schedule is here Grand Event ScheduleClassroom Spelling BeesStudents in grades 2–4 will participate in their classroom spelling bees this week.Cooler Weather ReminderPlease send a jacket with your child as temperatures get cooler. Writing your child’s name inside the jacket helps us return it if it is misplaced at school.Morning Arrival ReminderThe front doors close at 8:00 a.m., when the tardy bell rings. If you arrive at or after 8:00 a.m., please come inside to sign your child in.Matt CoatneyPrincipal, Ellen Smith Elementary
+
+### 2026-11-02 · Ellen Smith Elementary (id 13685120)
+
+Happy Monday Ellen Smith family!  Tonight is our PTO meeting at 6pm in the cafeteria. We hope to see you there.
+
+### 2026-11-02 · Ellen Smith Elementary (id 13689204)
+
+Due to weather, K-2 Running club is cancelled for today.
+
+### 2026-11-02 · Matthew Coatney (id 13695991)
+
+Due to the weather, our fundraiser adventure run tomorrow is being rescheduled for November 30th.
+
+### 2026-11-03 · Matthew Coatney (id 13700761)
+
+Our fundraiser run has been cancelled for today. It is rescheduled for Nov. 30th.
+

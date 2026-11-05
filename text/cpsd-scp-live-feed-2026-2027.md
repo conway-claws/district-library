@@ -537,3 +537,50 @@ Through this experience, children practiced scientific observation, descriptive 
 
 Today Teachers will pass out the order forms and let you know which day your child will be taking their Fall photos!
 
+### 2026-11-03 · Sallie Cone Preschool (id 13698811)
+
+This week is Fall Pictures! November 4 & 5. Your child's teacher can remind you what day your child will be taking their photo. Bring your order envelope with you on your child's scheduled picture day. 
+Looking forward to seeing all the smiling faces :)
+
+### 2026-11-03 · Marci Martin (id 13707719)
+
+🐾📸 Sallie Cone Preschool – Picture Day Reminder! 📸🐾
+
+Picture Day is coming up! Please review the schedule below to see which day your child's class will take pictures.
+
+📸 IMPORTANT REMINDERS:
+
+Only students who return their picture envelope with $5 will have their picture taken.
+
+Pictures will be taken between 8:15–11:00 a.m. each morning.
+
+📅 Wednesday, November 4, 2026
+
+Carter/Heath
+
+Pickard/Brown
+
+Holstead/Jemison
+
+📅 Thursday, November 5, 2026
+
+Heath/Young
+
+Johnson/Cox
+
+Hickman/Sayers
+
+Grantham
+
+💙🐾 Thank you for helping us make Picture Day a success!
+
+### 2026-11-04 · Sallie Cone Preschool (id 13717318)
+
+💨🧣 Zoom & Vroom in the Left Brain Room! 🏎️🏗️
+
+Our little learners are having fun exploring how things move! In the wind tunnel, children are watching scarves move through the air and discovering what happens when the wind blows. 🌪️ In the construction area, they are building ramps and tunnels, testing their ideas, and seeing how things travel!
+
+These fun, hands-on activities help children build problem-solving skills, creativity, and early science and math skills. They are learning to make predictions, try new ideas, work through challenges, and discover what works! 🧠
+
+So much learning happens when little hands get busy and curious minds get to explore! 💙🐾
+

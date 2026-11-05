@@ -1383,3 +1383,66 @@ Carl Stuart students are continuing their work with Kindergarten students at Van
 
 #WeAreCarlStuart  #WeAreConway #ChampionsforKids
 
+### 2026-11-01 · Carl Stuart Middle School (id 13680307)
+
+CSMS November 2-6 Newsletter: https://conwaypublicschools.edurooms.com/newsletters/carl-stuart-middle-school/newsletters/2026-2027-newsletter-november-2-6
+
+### 2026-11-02 · Carl Stuart Middle School (id 13494334)
+
+Through our continued partnership with Vann, two students are working with 1st graders, helping them with math pairs and flash cards!
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-11-02 · Carl Stuart Middle School (id 13685220)
+
+CSMS Families, 
+
+If you are a veteran or have a veteran in your family, we would love for you to join your student as we honor the veterans on Wednesday, November 11. We invite you to attend a special reception beginning at 9:00 AM, followed by our Veterans Day assembly at approximately 9:40 AM.
+
+In addition, we would love to recognize the veterans in your family in a special presentation that will be displayed in the cafeteria throughout the week of Veterans Day. If you would like to have the veteran in your family included and honored, please complete the following form by Friday, November 6th.
+
+https://docs.google.com/forms/d/e/1FAIpQLSd5ai_Cl9zycwexIrwAsxHHtck4KhJGdCHDXOB2U3C-JD0p8Q/viewform?usp=header
+
+Thank you for allowing CSMS the opportunity to celebrate and honor the heroes you call loved ones. We look forward to recognizing and thanking them for their service!
+
+### 2026-11-02 · Carl Stuart Middle School (id 13695182)
+
+Reading Intervention progress reports were sent home with students over the past two weeks. If you did not receive a report or have any questions about your child's progress, please reach out to their reading intervention teacher.
+
+### 2026-11-03 · Carl Stuart Middle School (id 13684947)
+
+🎃👻 Service, Collaboration, and Community! 🎃👻 
+
+Our G3 and D3 students teamed up for a special service project! Mrs. Irvin and Mrs. Miller’s 7th Grade G3 group, Mrs. King’s 6th Grade G3 group, and Mr. Ashley’s 5th/6th Grade D3 group worked collaboratively to create Boo Grams for one of our feeder schools, Marguerite Vann Elementary!
+
+Through teamwork, generosity, and a spirit of service, our students helped spread a little BOO-tiful kindness throughout our school community! We are proud of these students for working together to make a positive impact!
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-11-03 · Carl Stuart Middle School (id 13706365)
+
+🐾 CATS in Community Food Drive is officially underway! ❤️💙 Carl Stuart is excited to come together and make a difference in our community!
+
+From November 4–17, we are collecting nonperishable food items to help support local families. Every donation makes a difference, and we would love to see our CATS show up in a BIG way!
+
+🥫 ITEMS WE'RE COLLECTING:
+
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast bars
+
+Please make sure all food items are sealed and within their expiration dates!
+
+🍩 A little friendly competition! The homeroom class with the MOST donations will win a donut and juice party hosted by our Student Council!
+
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-11-05 · Carl Stuart Middle School (id 13704626)
+
+💻🎮 Mrs Sellers’ WIN Enrichment students are becoming game developers! Students are using Scratch on Raspberry Pi computers to learn coding without needing internet access. With coding books as their guides, they are writing their own code, problem-solving, and creating original games. So fun to see their creativity in action! 🚀
+
+#WINEnrichment #ScratchCoding #RaspberryPi #CSMS
+

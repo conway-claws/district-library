@@ -700,3 +700,15 @@ Parents and Caregivers -We are already in the second quarter of the school year 
 🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
 🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
 
+### 2026-11-02 · Courtway Middle School (id 13693269)
+
+💙🐾 The Courtway School Store is OPEN! It's the perfect time to grab some Wampus Cat gear for yourself or check a few gifts off your Christmas list! 🎄
+
+🛍️ Store opens: November 2
+📅 Store closes: December 3
+🎁 Orders will arrive the last week before Christmas break!
+
+Shop here: https://courtwaymerchandiseonlinestore.itemorder.com/shop/home/
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+

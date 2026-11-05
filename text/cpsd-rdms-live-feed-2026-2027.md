@@ -1307,3 +1307,61 @@ Make your own choices, stay true to you, and be a positive influence.
 
 #WeAreRDMS #TeamConway #RedRibbonWeek #StayDrugFree
 
+### 2026-10-29 · Rachel Fowler (id 13653891)
+
+🎭Who’s ready to show their character? 🎭
+
+💪Let’s finish celebrating Red Ribbon Week strong!!
+
+Friday, October 30, dress as a favorite character or wear blue and white to show Wampus Cat pride! 💙🤍
+
+Please choose a school-appropriate outfit. No full-face makeup, masks, or dangerous props. Blow-up costumes may not be inflated during class.
+
+❤️Be kind, show character, stand together, and stay drug free! 
+
+#WeAreRDMS #TeamConway #RedRibbonWeek #StayDrugFree
+
+### 2026-10-30 · Rachel Fowler (id 13668064)
+
+🎃👻 Halloween Yoga with Mrs. Hart! 🧘‍♀️🕸️
+
+From pumpkins to ghosts, our Caring Cats had a SPOOKTACULAR time practicing movement, stretching, and breathing exercises today! 🍂👻 We loved getting our bodies moving, finding our balance, and taking time to relax while celebrating the Halloween season.
+
+A little movement, a little mindfulness, and LOTS of Halloween fun! 🎃🧡
+
+A big thank-you to Mrs. Hart for leading us through such a fun and festive yoga session! 💜
+
+#CaringCats #HalloweenYoga #MovementAndMindfulness #RDMS #SpookySeason
+
+### 2026-10-30 · Rachel Fowler (id 13665145)
+
+To ease congestion and speed up the process at the end of the evening:
+
+5th and 6th grade students will be picked up in the bus loop. Turn right off of Padgett Rd into the bus loop.
+7th grade students will be picked up in the south car rider line. Turn right into the car rider line off of College Ave.
+
+You can refer to the map that is attached for more information.
+
+Please note: If a student is picked up more than 30 minutes after a dance concludes, the school reserves the right not to allow that student to attend the next school dance.
+
+### 2026-11-04 · Rachel Fowler (id 13714423)
+
+You’re Invited: Board Meeting Celebrating Mr. Jason Campbell’s Induction Into the Statewide Excellence in Teaching Fellowship Program!
+
+Dear Ruth Doyle Middle School Students and Families,
+
+You are cordially invited to join us for a special celebration honoring Mr. Jason Campbell for his selection to the prestigious Arkansas’ Excellence in Teaching Fellowship Program.
+
+We will gather together to celebrate this achievement as Mr. Campbell shares his journey at the upcoming Conway Public Schools Board Meeting. 
+
+Event Details
+📅Date: Tuesday, November 10th
+⌚Time: 6:00 PM
+🎉Event: Mr. Campbell’s Board Presentation - Arkansas Excellence in Teaching Fellowship 
+📍Location: Conway High School - Lecture Hall - 2300 Prince Street, Conway, Ar 72034
+🙋Who: Past and present colleagues, students, parents, and families
+❓Why: Celebrating one of our own. Is this overboard? Yes. Do we realize this has never been done before? Yes. But…that’s what RDMS does. We have amazing students, teachers, parents, and community members that do amazing things that have never been done before.
+
+
+About the Arkansas Excellence in Teaching FellowshipStatewide Recognition: Awarded by the Arkansas Department of Education, selecting only 30 teachers across the entire state. Mr. Campbell is the only teacher in Faulkner County to be selected.Honoring Student Growth: Recognizes educators who have demonstrated strong student growth in their subject areas.Elevating Teacher Leadership: Fellows meet bimonthly to share effective instructional practices, shape state-level education conversations, and collaborate with educational leaders across Arkansas.A Quarter-Century of Excellence: Highlights Mr. Campbell’s 25 years of dedicated service and leadership within Conway Public Schools.Please join us on November 10th at 6:00 PM in the Conway High School Lecture Hall to honor Mr. Campbell and celebrate this outstanding statewide achievement together!
+

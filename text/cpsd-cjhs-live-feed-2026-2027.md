@@ -1740,3 +1740,108 @@ Students are eligible to purchase tickets if they have not received a major disc
 
 We can't wait to see our Wampus Cats there for a fun night of music, friends, and dancing!
 
+### 2026-10-29 · Marquis Rogers (id 13656555)
+
+Good evening, CJHS families!
+
+As you help your student prepare for tomorrow, please keep in mind that CJHS will follow our regular dress expectations, and Halloween costumes will not be permitted. We know some other schools in the district are allowing costumes, so we wanted to clarify our plans to avoid any confusion.
+
+We have enjoyed seeing our students’ creativity and school spirit during our recent Homecoming and Hispanic Heritage spirit weeks, which provided 10 fun dress-up opportunities!
+
+Thank you for your understanding and for helping your student come ready for a great day at CJHS!
+
+### 2026-10-30 · Marquis Rogers (id 13663459)
+
+Happy Friday, Team! Today we’re switching things up—you can choose popcorn OR a snack, along with a drink of your choice! Stop by the front office during your lunch to grab your Friday treat. Thank you for all you do! 💙
+
+### 2026-10-30 · Conway Junior High (id 13521927)
+
+📸 Make-Up Picture Day is coming up at CJHS! If you missed our original picture day, be sure to take advantage of this opportunity to get your school picture taken on Tuesday, November 3rd!
+
+### 2026-11-02 · Conway Junior High (id 13521970)
+
+📸 REMINDER: CJHS Make-Up Picture Day is Tomorrow!
+
+Make-up picture day is coming up on Tuesday, November 3rd! If you missed our original picture day, be sure to take advantage of this opportunity to get your school picture taken.
+
+### 2026-11-02 · Conway Junior High (id 13685454)
+
+It's a new week at Conway Junior High! Check out what's happening around CJHS this week.
+
+🏀 Monday: Basketball Madness
+🏊 Thursday: Swim & Dive @ Hendrix
+🏃 Friday: Cross Country State @ Oaklawn
+🎻 Friday: All-Region Orchestra Clinic @ CHS
+
+Wishing all of our Wampus Cats a wonderful week! Let's make it a great one!
+
+### 2026-11-02 · Conway Junior High (id 13685755)
+
+Last week, Mrs. Braden visited Mrs. Grant’s Keystone class to share about her career as a Prevention Specialist! Our students had the opportunity to learn about her role, what she does in her career, and how she helps make a difference in the community.
+
+We are excited to welcome guest speakers to Keystone to help students explore different career paths and learn about the many opportunities available to them after graduation!
+
+A big thank you to Mrs. Braden for taking the time to visit our class and share her knowledge with our students! 💙
+
+### 2026-11-02 · Marquis Rogers (id 13687149)
+
+Make-up picture day is tomorrow!
+
+Need a retake? Your original picture package must be returned on picture day. Please include a note explaining what you would like done differently. 
+📷Strain Photography 
+
+Website: www.strainschoolpics.com 
+
+Questions? Email info@strainphotography.info
+
+### 2026-11-02 · Conway Junior High (id 13686334)
+
+The Conway Junior High Cat Nation Christmas Tree is officially up in our cafeteria!
+
+The CJHS Cat Nation Christmas Crew works to provide clothing and hygiene items to CJHS students in need during the Christmas season. We invite our Cat Nation families and community to help make the holidays a little brighter for our students!
+
+Here's how you can help:
+
+1. Students can select a paw print ornament from the Cat Nation Christmas Tree and take it home.
+
+2. Parents can scan the QR code on the back of the ornament to view the wish lists or access them here: 
+
+https://docs.google.com/document/d/1_o3RSMRKb0qcazuLYUMUDo57S6fb6p-YY6enWagmbc4/edit?usp=sharing
+
+3. Choose one or more items from the list to purchase.
+
+4. Return all items UNWRAPPED to the front office or Room 2032 by December 2nd.
+
+🎁 Want to help in another way? If you or a local business would like to donate money or items for our student hygiene boxes, please contact Jennifer Barnett at barnettj@conwayschools.info.
+
+Every donation makes a difference, and we are so grateful for a community that continues to show up for our students. Thank you for helping make Christmas a little brighter at CJHS! ❤️💚
+
+### 2026-11-03 · Conway Junior High (id 13706333)
+
+🍂 Yearbooks Are Now on Sale! 📚
+
+Be thankful for the memories and make sure to save yours! Yearbooks are officially on sale at Conway Junior High School. Don't miss out on capturing all the memories from this school year!
+
+Ready to order?
+📸 Scan the QR code on the flyer or visit http://jostensyearbooks.com?ref=A00319110 to place your order.
+
+💳 Payment can be made in three monthly installments at no additional cost!
+
+Not sure if you've already ordered? You can check your order status by scanning the second QR code or visiting https://www.jostens.com/customer-service/yearbook-order-tracking.
+
+### 2026-11-05 · Conway Junior High (id 13726597)
+
+🎉 TOMORROW IS THE NIGHT, WAMPUS CATS! 🎉
+
+Our Fall Dance is happening Friday, November 6, from 6:00–8:00 p.m. in the Conway Junior High North Gym!
+
+A few reminders before the big night:
+
+🎟️ Tickets are $5 and will be sold during all four lunches TODAY (November 5) and tomorrow (November 6). Tickets will NOT be sold at the door!
+
+📋 Students must not have received a major disciplinary referral resulting in ISS or OSS since our last incentive on September 25 to be eligible to attend.
+
+🍿 Concessions will be available for purchase!
+
+Grab your friends, get ready to dance, and join us for a fun night! We can't wait to see you there! 💃🕺
+

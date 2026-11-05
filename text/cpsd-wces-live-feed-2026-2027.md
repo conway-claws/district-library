@@ -1492,3 +1492,138 @@ We can't wait to see our Little Cats and their families!
 
 No tricks, just phonics!  Our little pumpkins are practicing their letter sounds with a little Halloween fun!
 
+### 2026-10-29 · Woodrow Cummins Elementary (id 13653370)
+
+Mr. Smith's class carved a pumpkin together in class!  The discussed ordinal words to help keep our steps organized. (First, next, then, last). The Lionhearts voted to name our Jack-o-lantern “Gary”. 🤷🏼‍♂️
+
+### 2026-10-29 · Woodrow Cummins Elementary (id 13653844)
+
+Dear WCE Families,
+
+📚✨ Book Character Day is TOMORROW! ✨📚
+
+We can’t wait to see our halls filled with some of our favorite storybook characters! Students are invited to choose a character from a book and dress up as that character for a fun day of celebrating our love of reading.
+
+A few important reminders:
+
+🦸‍♀️ Choose a character from a book and dress up as them.
+
+📖 Please bring the corresponding book that features your character.
+
+🎉 Have fun and get creative!
+
+Please make sure characters /costumes are school appropriate.  No scary masks.  Feel free to send a change of clothes for after the Character Parade. 
+
+We look forward to seeing all the wonderful characters that come to life at Woodrow Cummins Elementary!
+
+### 2026-10-29 · Woodrow Cummins Elementary (id 13652859)
+
+Check out our Little Cat Chronicle!
+
+### 2026-10-29 · Woodrow Cummins Elementary (id 13618253)
+
+Join us for our WCE Breakfast Bash on Friday, October 30, at 7:00 AM! We're inviting families to join us for a fun, Halloween-themed tailgate in the parking lot in front of the school.  Students attending the tailgate breakfast may walk in through the front doors at 7:45 AM and go to class. 
+
+Here are the details:
+When: Friday, October 30, at 7:00 AM
+Where: In front of Woodrow Cummins Elementary
+What to Bring: Your own breakfast items to enjoy with family and friends
+Drinks: We'll have drinks available for purchase for just $5 each! We will only be able to accept CASH as payment for drinks. Look for the drink station in the parking lot for easy pickup.
+
+### 2026-10-29 · Woodrow Cummins Elementary (id 13645466)
+
+Our Story Book Pumpkin Patch looks AMAZING!!! Thank you to all who participated! 
+Reminder: All storybook pumpkins from the library must go home tomorrow, Friday Oct. 30.  Please make arrangements if needed.
+
+### 2026-10-30 · Woodrow Cummins Elementary (id 13653684)
+
+Third grade started their Module “Outer Space” with a book tasting!  The students enjoyed previewing the books they will be reading in this module.
+
+### 2026-11-01 · Woodrow Cummins Elementary (id 13645123)
+
+Dear WCE Families,
+
+You've got a friend in reading! 🤠🚀
+
+Get ready for a night of books, fun, and adventure at Woodrow Cummins Elementary's Family Literacy Night! Grab your favorite reading buddy and join us for an evening of Toy Story-inspired fun as we celebrate the joy of reading together.
+
+📅 Tuesday, November 3rd
+⏰ 5:30–7:00 PM
+📍 Woodrow Cummins Elementary
+
+We've got a rootin'-tootin' updated lineup of activities planned for the whole family, including:
+
+📸 Photo Booth
+🔎 Scavenger Hunt 
+🎨 DIY Bookmarks 
+🤠 Woody's Word Round-Up 
+🎭 Face Painting
+
+Bonus:
+💻 Marna Strickland from the Morgan Nick Foundation will be here to discuss privacy settings for kids on devices and ways to keep your students safe online! 
+
+Don't miss your chance to get your picture with Buzz and Woody! 🚀
+
+We can't wait to see our Little Cats and their families come together for an evening celebrating books, imagination, and the magic of reading. So, bring your reading buddy, bring your family, and get ready for a night that's out of this world!
+
+To infinity and beyond… let's make reading an adventure!
+
+We hope to see you there!
+
+### 2026-11-02 · Woodrow Cummins Elementary (id 13688413)
+
+Congratulations to these students who got to enjoy a fun VIP lunch with Mrs. Jones for raising at least $375 for the PTO fundraiser!
+
+### 2026-11-02 · Woodrow Cummins Elementary (id 13688940)
+
+Mark your calendars! Join us for Taziki’s Spirit Night on Thursday, November 12, from 4:00–8:30 PM!
+
+Enjoy a delicious meal at Taziki’s while supporting Woodrow Cummins Elementary. It's a great opportunity to enjoy dinner with family and friends while giving back to our school!
+
+Be sure to mention WCE when checking out so our school receives credit for your participation!
+
+We hope to see lots of Little Cat families there. Thank you for supporting Woodrow!
+
+### 2026-11-02 · Jenna Havlik (id 13695608)
+
+Our top sellers for our Megathon Fundraiser are:
+1st place: Helen 
+2nd place: Stone
+3rd place: Kinleigh
+
+Great job guys! Thank you so much for your support!
+
+### 2026-11-02 · Jenna Havlik (id 13695750)
+
+Other fundraiser rewards consisted of silly stringing the principals and throwing pies in the principals faces!
+
+Silly string was for those students that raised at least $250. 
+
+Pie the principals was for those top earners in each grade level! 
+
+Thank you for supporting our school!
+
+### 2026-11-02 · Woodrow Cummins Elementary (id 13695320)
+
+Hello Parents,        Today, your child is bringing home a Book Buddy Lanyard letting you know about a safe and easy way for our school to raise funds for essential tools our students and teachers need to succeed.        The SchoolStore Program is 100% online so there is NO face-to-face selling, handling money, or delivering products.  Your participation will take less than 12 minutes, and there are exciting prizes to make it fun for the students.        Here is all you need to do to participate:        1.  Go to https://www.schoolstore.net/sid.t?0000363727 to sign up.        2.  Send form emails inviting family, friends and co-workers to support your child.        3.  Return the Book Buddy Lanyard with the Student Prize Code to school for your child to get their fun participation prize.        Be sure to ask your child for the Book Buddy Lanyard tonight.  Your participation will make a difference for our school and teachers!        Thanks,        Woodrow Cummins Elementary School
+
+### 2026-11-03 · Woodrow Cummins Elementary (id 13704399)
+
+Families,We are excited to see everyone at Family Literacy Night tonight!We have a little something extra planned! Little Italy Italian food will be available for purchase during the event.Come enjoy a fun evening of reading, family activities, and delicious food!We can't wait to see our Little Cats and their families tonight. Come hungry!
+
+### 2026-11-03 · Jenna Havlik (id 13709060)
+
+Reminder: We hope to see everyone at Family Night tonight from 5:30-7:00PM at WCE! Little Italy will be available for purchase so come hungry!
+
+### 2026-11-04 · Woodrow Cummins Elementary (id 13695338)
+
+Hello Parents,  I want to personally thank all the families who have already participated in our SchoolStore program!  We are on our way to reaching our goal, but we need everyone's help to make sure our teachers get the essential tools they need to help our students succeed.  If your family has not participated, there's still time!  This safe and easy program is 100% online so there is no face-to-face selling, collecting money, or delivering products.  Your child will receive a prize just for participating, and more prizes will be awarded when goals are reached.  Please help now. It really will make a difference.  Go to https://www.schoolstore.net/sid.t?0000363727 to show our valued teachers your support.  Thanks,Mrs. Jones  P.S. Family participation is the key to our success, and we are counting on you!
+
+### 2026-11-05 · Woodrow Cummins Elementary (id 13728108)
+
+Kindergarten had a blast celebrating 50s Day! From poodle skirts and rockin’ outfits to yummy Coke floats, we had a soda-lightful day learning and making memories for the 50th Day of school!
+
+### 2026-11-05 · Woodrow Cummins Elementary (id 13730107)
+
+Mr. Smith's class went on a virtual field trip to kick off their next reading/writing unit about animals!  The Lionhearts had fun “taking photos” of all of the animals they saw on their safari adventure together!
+

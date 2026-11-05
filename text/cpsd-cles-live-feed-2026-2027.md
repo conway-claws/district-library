@@ -1913,3 +1913,72 @@ CLE Little Cats yard signs and stickers are available to order! Get a sticker fo
 
 Let’s show off our Little Cat pride! 🐱💙 #WeAreCLE
 
+### 2026-10-29 · Carolyn Lewis Elementary (id 13399884)
+
+💤❤️ Reminder, Little Cats! ❤️💤
+
+Tomorrow is Pajama Day at CLE as we wrap up Red Ribbon Week! 🎉
+
+Come to school in your favorite school-appropriate pajamas and get ready for a fun day!
+ #WeAreCLE
+
+### 2026-10-30 · Carolyn Lewis Elementary (id 13556722)
+
+🎉 EXCITING NEWS, CLE! 🌱
+
+The Arkansas Department of Agriculture has selected the CLE Garden as the 2026 School Garden of the Year! 🏆🌻
+
+We are so proud of this special recognition and thankful for all of our CLE teachers, staff, students, and volunteers who have helped our garden grow over the years. This achievement belongs to all of you! 💙
+
+#WeAreCLE
+
+### 2026-10-30 · Carolyn Lewis Elementary (id 13617177)
+
+Thank you to Jeremy Fox from Grand Master Hans for coming to CLE and reading his book “The Hero Within” for Red Ribbon Week❤️ #WeAreCLE
+
+### 2026-10-30 · Carolyn Lewis Elementary (id 13666197)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-11-02 · Carolyn Lewis Elementary (id 13628746)
+
+CLE students had a great time kicking off Red Ribbon Week wearing RED! #WeAreCLE
+
+### 2026-11-02 · Carolyn Lewis Elementary (id 13628764)
+
+Hat Day is always a favorite at CLE! #WeAreCLE
+
+### 2026-11-03 · Carolyn Lewis Elementary (id 13551122)
+
+🌿🎶 Two Weeks Away! 🎶🌿
+
+Mark your calendars! Our 1st and 3rd graders will present Take a Walk! on Tuesday, November 17th, at 6:00 PM in the James H. Clark Auditorium at Conway High School. We can’t wait to see our Little Cats shine on stage! 🐾💙
+
+#WeAreCLE
+
+### 2026-11-03 · Carolyn Lewis Elementary (id 13628889)
+
+1st grade kicked off their Animal Unit in reading with two guest speakers. Brooke Moore from Vilonia’s Animal Clinic shared her experiences working with animals and how to care for them. Oscar Alvidrez, from Arkansas Game and Fish, taught the students about predators and prey. They learned how the food web is important for all animals. The students are excited to learn about animals at CLE! #WeAreCLE
+
+### 2026-11-04 · Carolyn Lewis Elementary (id 13648956)
+
+Students were proud to support CLE during Red Ribbon Week by wearing a their CLE gear! #WeAreCLE
+
+### 2026-11-04 · Carolyn Lewis Elementary (id 13685508)
+
+Mrs. White’s class wrote a narrative about someone learning to carve a pumpkin from reading a book. So of course they had to open one up to see and feel the insides! Then Mrs. White carved it for the class!  #WeAreCLE
+
+### 2026-11-05 · Carolyn Lewis Elementary (id 13709644)
+
+CLE Students loved representing their favorite sports team and super heroes during Red Ribbon Week. #WeAreCLE
+
+### 2026-11-05 · Carolyn Lewis Elementary (id 13725734)
+
+📚🎉 Mark your calendars! The CLE Scholastic Book Fair is coming November 16–20, 2026! 🎉📚
+
+Where Every Reader is a Winner! Students can shop using cash, cards, or eWallet. More information will be sent home soon about setting up an eWallet account if you prefer not to send cash to school.
+
+We can't wait for a week full of reading, fun, and BOOKS! 💙📖
+
+#WeAreCLE
+

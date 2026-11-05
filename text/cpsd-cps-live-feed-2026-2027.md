@@ -791,3 +791,39 @@ By building strong academic foundations in middle school, we are preparing our W
 
 #WeAreWampusCats #TeamConway #ChampionsForKids
 
+### 2026-10-30 · Conway Public Schools (id 13661499)
+
+Central Office was excited for some Halloween fun as the CHS Caring Cats crew made their rounds, trick-or-treating throughout the office this morning! Our team loved welcoming them, handing out treats, and enjoying a little Halloween spirit together. 👻🎃Thanks for stopping by, Caring Cats! You definitely made our day sweeter! 💙🐾#WeAreCPSD #WeAreConway #TeamConway #WampusCatNation #ChampionsforKids
+
+### 2026-10-30 · Tim McMahan (id 13665703)
+
+Good afternoon and happy Friday
+Custodians, all teachers are supposed to have their trash in a bag and in the hallway at 3 PM so that you can take party trash out before the school day is over. Please get all the trash from the building.
+
+Thanks
+
+### 2026-11-04 · Conway Public Schools (id 13713903)
+
+43 CPS teachers. Top 25% in Arkansas. One incredible impact on student learning!
+We are proud to celebrate 43 teachers whose students' growth over the past three years placed them in the top quartile of teachers across the state of Arkansas.
+
+This recognition reflects the difference these educators make every day by helping students learn, grow, and reach their full potential. Behind every score is a teacher making a meaningful difference in the lives of students.
+
+Congratulations to these outstanding educators! Your dedication to student growth and learning makes us proud!
+
+Great teaching. Meaningful growth. Incredible impact.
+
+### 2026-11-05 · Conway Public Schools (id 13377894)
+
+📐 INSIDE THE PLAYBOOK: Did You Know? 
+
+Did you know 80 CPSD teachers participated in our first annual Math ACATemy this summer?
+
+Our teachers worked alongside instructional coaches and UCA professors to dive deep into skill progressions, conceptual math understanding, and vertical alignment across grade levels. When our educators keep learning together, our students win! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-05 · Conway Public Schools (id 13726767)
+
+Good morning Team,Our Conway Public Schools chapter of HOSA – Future Health Professionals (Health Occupations Students of America) is currently hosting a Little Caesars Pizza fundraiser. Supporting our fundraiser is easy! You can simply click the link Little Caesar's Fundraiser, purchase your favorite pizzas, and help support our HOSA students and the activities, opportunities, and experiences that help prepare them for future careers in healthcare.Any support, whether through a purchase or simply sharing the link, would mean a great deal to our HOSA students.Thank you for your time and continued support of our students and CTE programs!Respectfully,Colin ShearerMedPro Instructor / HOSA AdvisorConway Public Schools CTE
+

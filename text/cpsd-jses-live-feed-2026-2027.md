@@ -1130,3 +1130,51 @@ Thursday, October 29 is Spirit Day during Spirit Week. Let’s celebrate togethe
 
 #WeAreJSE
 
+### 2026-10-29 · Barbara Clardy (id 13608377)
+
+🦸 Jim Stone Elementary School families, Friday, October 30 is Everyday Heroes Day during Spirit Week! Students can dress like an everyday hero—such as a family member, teacher, or community helper—and show them some love. 🌟💖
+
+#WeAreJSE
+
+### 2026-10-29 · Barbara Clardy (id 13654635)
+
+🎃 Celebrate fall with a friendship bracelet (or two or three)! 🍂 Fall-themed bracelets are just $1 each, starting Monday, Nov. 2, before school. Pick yours up and share a little autumn cheer! 🧡
+
+#WeAreJSE
+
+### 2026-11-04 · Barbara Clardy (id 13715284)
+
+🎃📚 Join us at **VIP Night at the Book Fair** at Jim Stone Elementary on **Tuesday, November 17, from 3:30–5:00 p.m.** Formerly Grandfriends Day, this fun evening includes choir at 4:00 in the atrium, a student art walk, cookies and bottled water from the PTO, and playtime on the playground. Support Winterfest and enter for a chance to win front-row seats to the Christmas Musical!
+
+🎃📚 ¡Acompáñenos en la **Noche VIP en la Feria del Libro** de Jim Stone Elementary el **martes 17 de noviembre, de 3:30 a 5:00 p. m.**! Antes conocido como el Día de los Grandfriends, este evento incluirá una presentación del coro a las 4:00 en el atrio, una caminata para disfrutar del arte estudiantil, galletas y agua del PTO, y juegos en el patio. Apoye a Winterfest y participe para ganar asientos en primera fila para el musical de Navidad. ¡Nos vemos en Jim Stone!
+
+#WeAreJSE
+
+### 2026-11-04 · Barbara Clardy (id 13722028)
+
+Picture Make-Up Day is scheduled for Monday,  November 9th,  beginning promptly at 8:30 AM.  Please make sure your child arrives on time if they need their picture taken.  Order forms are available in the main office.
+
+#WeAreJSE
+
+### 2026-11-05 · Barbara Clardy (id 13726933)
+
+THAB fun! 
+
+#WeAreJSE
+
+### 2026-11-05 · Barbara Clardy (id 13726863)
+
+Our Winter musicals are coming up on December 1st! Enter to win 5 front-row seats while supporting JSE!
+
+Raffle tickets are $5 each and available now through our Zeffy link or at VIP Night on November 17th.
+
+Two winners will be drawn—one for each performance—1st–2nd grade and 3rd–4th grade. (*Our kindergarten musical will be in the spring.)
+
+Every ticket is one entry. The more you buy, the more chances you have to win!
+
+Winners announced November 20th!
+
+https://www.zeffy.com/en-US/ticketing/jse-christmas-musical-front-row-raffle
+
+#JSE
+

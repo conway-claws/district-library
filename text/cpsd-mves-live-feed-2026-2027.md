@@ -1823,3 +1823,98 @@ We can't wait to see everyone cozy and ready to learn! ❤️💙
 
 #MVEProud #RedRibbonWeek #BrightFutures #HealthyChoices
 
+### 2026-10-29 · Audrey Cooper (id 13656235)
+
+🌟💙 Building Confidence, Character, and Leadership at MVE! 💙🌟
+
+Our 4th grade Boys Mentorship Club and Sparkle Club met this month to fo
+
+### 2026-10-29 · Audrey Cooper (id 13656328)
+
+❤️🛏️ Pajama & Comfy Day for the WIN! 💤✨
+
+Our MVE students and staff enjoyed a cozy day while celebrating Red Ribbon Week! We loved seeing everyone in their pajamas and comfy clothes! 💙
+
+❤️🔴 Tomorrow is our FINAL day of Red Ribbon Week, and we're going RED OUT!🔴❤️
+
+Wear as much RED as you can as we wrap up a fun week of celebrating healthy choices and a bright future! ❤️
+
+Let's fill the halls of Marguerite Vann with RED! ❤️❤️❤️
+
+#MVEProud #RedRibbonWeek #LevelUp
+
+### 2026-10-30 · Audrey Cooper (id 13672190)
+
+🎃👻 MONSTER MASH IS TONIGHT! 👻🎃
+
+Get ready for a SPOOKTACULAR evening at Marguerite Vann! 🧡🖤
+
+🗓️ TONIGHT, October 30!
+⏰ 5:30–7:00 PM
+💵 $5 CASH per family
+🚪 Please enter through the cafeteria doors.
+
+🎶 Music, 💃 dancing, 🎯 games, and lots of Halloween FUN!
+
+🎃 Costumes are encouraged! Remember, all students must be accompanied an adult.
+
+We can't wait to see our MVE families for a  MONSTER-sized good time! 🕸️👻🎉
+
+### 2026-10-30 · Audrey Cooper (id 13672334)
+
+❤️🔴 RED OUT for Red Ribbon Week! 🔴❤️
+
+We ended Red Ribbon Week in STYLE today by wearing ALL RED! ❤️🎉
+
+Our MVE students and staff had a blast celebrating a week filled with fun, school spirit, and important reminders about making healthy choices! 🌟
+
+❤️ Healthy Choices. Bright Futures. ❤️
+
+Thank you to everyone who participated and helped make Red Ribbon Week a success! Together, we're building a brighter, healthier future—one choice at a time! 🐾❤️
+
+#RedRibbonWeek #RedOut #HealthyChoices #WeAreMVE
+
+### 2026-10-30 · Audrey Cooper (id 13672490)
+
+🦁🐒🐘 Wild About Learning! 🦒🐯🌿
+
+Our first graders had a WILD time exploring animals and their habitats at the Little Rock Zoo! 🐾🌎
+
+What a wonderful way to kick off our Arts & Letters Module 2: Creature Features! 📚 Students had the opportunity to see animals up close, observe their unique characteristics, and learn more about the habitats they call home.
+
+As we explore our essential question, “What can people learn by studying animals?”, this hands-on experience brought our classroom learning to LIFE! 🦓🔍
+
+We love making real-world connections and creating unforgettable learning experiences for our students! 💙🤍
+
+#WeAreMVE #ArtsAndLetters #LearningBeyondTheClassroom
+
+### 2026-10-30 · Audrey Cooper (id 13672888)
+
+🏛️📚 Bringing Greek Myths to Life! 🎭✨
+
+Our students brought Greek mythology to life through Readers' Theater! After reading and performing Greek myths, they put their creativity and comprehension skills to work by designing posters to represent their stories! 🎨🖍️
+
+Each poster included the story title, the lesson learned, and illustrations that brought the myth to life.
+
+What a fun way to combine reading comprehension, creativity, and collaboration while exploring the lessons behind these timeless tales! 💙🤍
+
+#WeAreMVE #ArtsAndLetters
+
+### 2026-11-04 · Audrey Cooper (id 13720453)
+
+⚡💡 4th Grade is Sparking New Learning! 💡⚡
+
+Our 4th graders are kicking off an exciting new science unit on Electricity!🔌
+
+Students explored our school on a mission to discover everyday things that light up, produce heat, make sounds, or create movement.🔍💡
+
+After their exploration, students journaled their discoveries and shared their findings with classmates, making connections between what they're learning in science and the world around them! 📝🌎
+
+We love seeing curiosity come to life as students discover that science is everywhere! 💙🤍
+
+#WeAreMVE #ScienceInAction #LearningBeyondTheClassroom
+
+### 2026-11-05 · Audrey Cooper (id 13725816)
+
+Hello Everyone, This is a friendly reminder that we will have our monthly PTO meeting this Friday morning, November 6th from 7:30-8:00am in the counselor’s room 116 at MVE. It is completely free to join, and we would love to have you involved! Whether you can make in-person meetings or not, please join our GroupMe to stay informed and involved: https://groupme.com/join_group/116475754/E5aWMdvO Also, if you would like to help our teachers by making copies, sign up here to volunteer:  https://www.signupgenius.com/go/10C0E48AAAA2AA4FDCF8-65580111-help Hope to see you soon! Kindly,Leah Stauffer and MVE PTO
+

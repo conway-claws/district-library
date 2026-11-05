@@ -1018,3 +1018,69 @@ Keep reading and roaring, Wampus Cats! 📖💙
 🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
 🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!📣 MARK YOUR CALENDAR!Our food distribution day will be Friday, November 20, from 10 a.m. to noon at the Conway High School Roundabout.CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
 
+### 2026-10-29 · Angel Moix (id 13649191)
+
+Join Simon Middle School in supporting our nation’s heroes!
+
+As a Purple Star School, we are committed to our military and their familes. We are raising funds for Disabled American Veterans (DAV) through our Field of Flags campaign to honor the brave men and women who have served and sacrificed for our country.
+
+Every donation helps provide vital, life-changing services to veterans and their families.
+
+❤️ How you can help:
+
+Donate to our fundraiser page.
+
+Share this post to spread the word!
+
+👉 Support our campaign here: https://support.dav.org/participants/Janie-Walburn
+
+Thank you for helping us honor our veterans! 💙
+
+#WeAreSimon #PurpleStarSchool
+
+### 2026-11-03 · Angel Moix (id 13704503)
+
+🎉 Big congratulations to our 6th Grade Students of the Month! 🌟
+
+We are so proud to celebrate two outstanding students who truly embody the Simon Standard:
+
+👏 Lillian S. — Lillian consistently goes above and beyond in the classroom! She takes immense pride in her work, takes initiative, and always looks for ways to help without being asked. Her hard work and dependability make a difference every day!
+
+👏 Emmett M. — Emmett is a true leader who exemplifies respect, integrity, and excellence. No matter the challenge, he stays positive and lifts those around him with his kindness and strong character.
+
+Thank you, Lillian and Emmett, for setting such a wonderful example for our school community! Keep shining! 💙📚
+
+#WeAreSimon #SimonStrong
+
+### 2026-11-04 · Angel Moix (id 13718085)
+
+🎉 Incentive Period Dance is Coming! 🎉
+
+Get ready to celebrate on Friday, November 20th during the school day! 🎟️💃 Concessions will be available for purchase, so bring some cash for snacks!
+
+How to qualify (Nov 2nd – Nov 20th):
+✅ No more than 2 classroom referrals (disrespect, disruption, or defiance)
+✅ Zero ISS, OSS, or Saturday School
+
+Keep making great choices and finish strong—see you on the dance floor! 🙌🕺
+
+### 2026-11-04 · Angel Moix (id 13704551)
+
+🎉 Congratulations to our 7th Grade Students of the Month! 🌟
+
+We are so proud to celebrate two outstanding 7th graders who bring dedication, positive energy, and excellence to Simon Middle School!
+
+👏 Athena M. — Athena sets a wonderful example through her quiet leadership and exceptional work ethic. Day in and day out, she gives her full attention to her work while showing kindness and patience toward peers and staff alike. She stays focused, encourages her classmates to do their best, and leads with genuine integrity. Athena, your steady dedication does not go unnoticed—we see you!
+
+👏 Kevin Z. — Kevin has had a standout year in Art Class! He consistently demonstrates a strong work ethic, takes immense pride in his projects, and stays focused on his goals. Respectful, well-mannered, and proactive, Kevin is never afraid to ask questions to deepen his learning and stays clear of classroom distractions. His positive attitude and creativity make our school bright!
+
+Thank you, Athena and Kevin, for upholding the Simon Standard every single day! Keep up the amazing work! 💙📚🎨
+
+### 2026-11-05 · Angel Moix (id 13718192)
+
+📸 School Picture Retake Day is Coming! 📸
+
+Did your student miss picture day, or do you need a do-over? Picture retakes will take place on Wednesday, November 11.
+
+Don't forget to send your student with their best smile (and their original picture package if they are taking retakes)!
+
