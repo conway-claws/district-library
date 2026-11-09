@@ -11,11 +11,11 @@ drive_kind:
 rights: public-web
 text:
 retrieved:
-verified: 2026-11-02
+verified: 2026-11-09
 status: current
 tags: [school-board, meeting-stream]
 date: 2025-06-29
-last_check: 2026-11-02
+last_check: 2026-11-09
 fail_since:
 fail_reason:
 ---

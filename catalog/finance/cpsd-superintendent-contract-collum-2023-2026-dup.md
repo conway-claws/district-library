@@ -11,11 +11,11 @@ drive_kind:
 rights: public-record
 text:
 retrieved:
-verified: 2026-11-02
+verified: 2026-11-09
 status: superseded
 tags: [finance, employee-contracts, state-required, 2023-2024]
 superseded_by: cpsd-superintendent-contract-collum-2023-2026
-last_check: 2026-11-02
+last_check: 2026-11-09
 fail_since:
 fail_reason:
 ---

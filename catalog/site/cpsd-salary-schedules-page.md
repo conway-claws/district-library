@@ -11,10 +11,10 @@ drive_kind:
 rights: public-record
 text:
 retrieved:
-verified: 2026-11-02
+verified: 2026-11-09
 status: current
 tags: [finance, salary-schedules, state-required]
-last_check: 2026-11-02
+last_check: 2026-11-09
 fail_since:
 fail_reason:
 ---

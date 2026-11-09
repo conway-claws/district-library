@@ -14,7 +14,7 @@ retrieved:
 verified: 2026-10-19
 status: current
 tags: [federal-law, us-code, api-pointer]
-last_check: 2026-11-02
+last_check: 2026-11-09
 fail_since: 2026-10-26
 fail_reason: HTTP Error 404: Not Found
 ---
