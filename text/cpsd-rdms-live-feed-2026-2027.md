@@ -1365,3 +1365,92 @@ Event Details
 
 About the Arkansas Excellence in Teaching FellowshipStatewide Recognition: Awarded by the Arkansas Department of Education, selecting only 30 teachers across the entire state. Mr. Campbell is the only teacher in Faulkner County to be selected.Honoring Student Growth: Recognizes educators who have demonstrated strong student growth in their subject areas.Elevating Teacher Leadership: Fellows meet bimonthly to share effective instructional practices, shape state-level education conversations, and collaborate with educational leaders across Arkansas.A Quarter-Century of Excellence: Highlights Mr. Campbell’s 25 years of dedicated service and leadership within Conway Public Schools.Please join us on November 10th at 6:00 PM in the Conway High School Lecture Hall to honor Mr. Campbell and celebrate this outstanding statewide achievement together!
 
+### 2026-11-05 · Conway Public Schools Athletics (id 13732045)
+
+The countdown is on,  RDMS Basketball is 12 days away from the start of the season! 
+
+Get to know this year's athletes and check out our 2026-27 game schedule! 
+
+It's a great day to be a Wampus Cat! 🚾
+
+### 2026-11-06 · Conway Athletics (id 13749673)
+
+Ruth Doyle Girls Basketball  hustlers of the week are Elaina Hammers, Jada Jackson, and Camille McVay.
+
+### 2026-11-09 · Rachel Fowler (id 13768727)
+
+☕️❄️ A little creativity and a whole lot of cozy!
+
+Today, we put our writing skills to work by creating our own fear/phobia stories! From brainstorming our fears to bringing our imaginations to life on paper, our students had fun putting their creative writing skills to the test.
+
+And what better way to spend a chilly day than sipping on some warm hot cocoa while we write! ❤️📖☕️
+
+A little learning, a little imagination, and a whole lot of cozy memories! 🐾
+
+### 2026-11-09 · Rachel Fowler (id 13769214)
+
+📸Makeup Picture Day: For anyone who missed the original picture day
+
+📅Thursday, November 12
+
+🚨Need a retake?
+Your original package MUST be returned on picture day. Include a note stating what you would like done differently.
+
+### 2026-11-10 · Rachel Fowler (id 13773331)
+
+Monday during WIN time, Mrs. Daniel and Mrs. Willcutt's students put their engineering skills to the ultimate test and built their very own turkey traps! 🦃🍂
+
+### 2026-11-10 · Rachel Fowler (id 13779272)
+
+REMINDER: TONIGHT’S BOARD MEETING – MR. CAMPBELL’S PRESENTATION
+
+📅Date: Tuesday, November 10th
+⌚Time: 6:00 PM
+📍School Board Meeting Location: Conway Schools Central Administration Building - Board Room - 2220 Prince Street, Conway, AR, 72034
+📍Overflow Board Meeting Location: Conway High School - Lecture Hall - 2300 Prince Street, Conway, Ar, 72034
+
+We are looking forward to celebrating one of our own! A quick reminder for guests attending the board meeting:
+
+Guests may enter the east side of Conway High School near the Wampus Cat Statue Roundabout and park in the east-side parking lot.
+
+Please remember that the high school lecture hall is the overflow location for tonight’s meeting. The board meeting will be live-streamed into the lecture hall so guests can watch and listen to the proceedings.
+
+Mr. Campbell’s presentation is a little farther down on the meeting agenda, so don’t worry if you arrive a few minutes late. There will still be an opportunity to hear his presentation!
+
+If you are planning to attend, thank you for coming out to support Mr. Campbell and celebrate his 25 years of making a difference in the lives of students and our community. We hope to see you tonight!
+
+### 2026-11-10 · Rachel Fowler (id 13784187)
+
+🇺🇸Join us as we honor the bravery, sacrifice, and service of the veterans in our community. 🇺🇸
+
+📅Date: Wednesday, November 11th
+⌚Time: 9:45 am
+📍Ruth Doyle Middle School Cafetorium - Please enter through the Cafe doors that are located in the bus loop.
+
+We look forward to celebrating our local heroes together and hope to see you there.
+
+### 2026-11-10 · Rachel Fowler (id 13787164)
+
+☃️It’s the most wonderful time of the year!🧑‍🎄
+
+🐾🎄Show your Conway Wampus Cat spirit with a Christmas shirt. Order by Wednesday, November 18, and pick it up at Jingle Mingle on December 7. 
+
+Shop now: https://rdmsholidays26.itemorder.com/shop/sale/
+
+### 2026-11-11 · Conway Public Schools (id 12662848)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-12 · Conway Public Schools (id 13791070)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+

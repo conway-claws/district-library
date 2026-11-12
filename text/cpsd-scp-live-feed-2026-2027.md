@@ -584,3 +584,45 @@ These fun, hands-on activities help children build problem-solving skills, creat
 
 So much learning happens when little hands get busy and curious minds get to explore! 💙🐾
 
+### 2026-11-09 · Sallie Cone Preschool (id 13765138)
+
+🍂🔎 Little Explorers, Big Discoveries! 🌿
+
+Our Right Brain friends are excited to share treasures they discovered on nature walks with their families! 🐿️🍁 As they share their finds, children are building language skills, practicing observation, growing their curiosity, and learning to listen and share ideas with friends.
+
+We love seeing learning continue beyond the classroom! 💙🐾
+
+### 2026-11-11 · Conway Public Schools (id 12662834)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Sallie Cone Preschool (id 13765295)
+
+🧱🍂 Think It, Build It, Create It! 💡
+
+We are loving our new Think It, Build It Right Brain Classroom! 
+Our friends are working together, making plans, exploring shapes, and bringing their creative ideas to life. 🏗️ They are building problem-solving skills, teamwork, creativity, and communication along the way!
+
+We are also soaking up the beautiful fall weather and enjoying time playing and learning with our friends outside! 🍁☀️💙🐾
+
+### 2026-11-11 · Marci Martin (id 13796141)
+
+Dear Sallie Cone Families,We wanted to make you aware that we have recently seen an increase in illnesses among our students and staff, with many experiencing fevers.As we work together to keep our Littlest Cats and staff healthy, we want to remind families of our school's illness guidelines.🌡️ **Students must be fever-free, vomiting-free, and diarrhea-free for at least 24 hours WITHOUT the use of medication before returning to school.**Allowing children adequate time to recover not only supports their own health but also helps prevent the spread of illness to their classmates and our staff. 💙🐾Thank you for doing your part to help us maintain a healthy learning environment for ALL of our Littlest Cats!Dr. MartinPrincipal, Sallie Cone Preschool
+
+### 2026-11-12 · Conway Public Schools (id 13791056)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+
+### 2026-11-12 · Conway Public Schools (id 13807097)
+
+Meet our November District Student of the Month! We are excited to celebrate Graysen Washington, a preschool student at Sallie Cone Preschool!  Even at such a young age, Graysen is already making a special impact and showing us what it means to be a proud Wampus Cat!Graysen was recognized at this week’s November School Board meeting, and we are so proud to shine a spotlight on this special member of #TeamConway! Being a Champion starts at every age, and we love celebrating the bright futures, big smiles, and little moments that make our students so special.Graysen is pictured with Superintedent Jason Black, Sallie Cone Preschool Principal Dr. Marci Martin, Mrs. Mar & Ms. Walker! Take a moment to watch the video and get to know Graysen! Help us celebrate this wonderful Wampus Cat!  https://youtu.be/rYdpXOgKwEk?si=8xt3HInme_fjeDIj
+

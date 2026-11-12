@@ -1446,3 +1446,84 @@ Please make sure all food items are sealed and within their expiration dates!
 
 #WINEnrichment #ScratchCoding #RaspberryPi #CSMS
 
+### 2026-11-05 · Carl Stuart Middle School (id 13728198)
+
+🍧 KONA ICE IS COMING TO CSMS! 💙
+
+Get ready for a sweet treat! Kona Ice will be at Carl Stuart on Tuesday, November 10! Prices range from $4–$7, so bring a little extra money and enjoy a refreshing treat!
+
+We can't wait for a little midweek sweetness! 🐾🍧
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-11-08 · Carl Stuart Middle School (id 13755909)
+
+CSMS is going to NEW YORK CITY! If you have a seventh grader at CSMS, you are invited to learn all about our trip! We will be leaving Conway and touring the Big Apple June 1-5, 2027! If your student is interested in going with us, please come to the parent meeting on Tuesday, November 10 at 5:30 pm in the CSMS library. We will be sharing all of the details!
+
+Please use this link to RSVP:  https://wsforms.formstack.com/forms/parent_meeting_signup?utm_campaign=+228118&utm_term=https://myprogram.worldstrides.com/custom/2027-carl-stuart-ms-ny-228118/&school_name=Carl+Stuart+Middle+School
+
+ That can earn you a $50 discount on the trip!
+
+### 2026-11-08 · Carl Stuart Middle School (id 13756268)
+
+November 9-13 Newsletter: https://conwaypublicschools.edurooms.com/newsletters/carl-stuart-middle-school/newsletters/2026-2027-newsletter-november-9-13
+
+### 2026-11-09 · Carl Stuart Middle School (id 13766366)
+
+🌟 Help us celebrate our September Teachers and Employee of the Month! 🌟
+
+We are so lucky to have these amazing ladies as part of the Carl Stuart family!
+
+💙 Mrs. Williams
+💙 Ms. Frazier
+💙 Ms. Libbie
+
+Each of these ladies goes above and beyond to make Carl Stuart the very best it can be. Their hard work, dedication, and the care they show our students and staff make a difference every single day!
+
+Join us in congratulating these three incredible ladies! We are so thankful for all they do! 🐾💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-11-09 · Carl Stuart Middle School (id 13755942)
+
+REMINDER! 
+
+Kona Ice will be at Carl Stuart tomorrow, November 10. Prices range from $4-$7.
+
+### 2026-11-10 · Carl Stuart Middle School (id 13785001)
+
+CSMS is going to NEW YORK CITY! If you have a seventh grader at CSMS, you are invited to learn all about our trip! We will be leaving Conway and touring the Big Apple June 1-5, 2027! 
+
+If your student is interested in going with us, please come to the parent meeting on TONIGHT , November 10 at 5:30 pm in the CSMS library. We will be sharing all of the details!
+
+### 2026-11-10 · Carl Stuart Middle School (id 13694507)
+
+REMINDER: Our Veteran's Day Celebration will be TOMORROW, Wednesday, November 11. If you are a veteran or have a veteran in your family, we would love for you to join your student as we honor veterans on Wednesday, November 11. We invite you to attend a special reception beginning at 9:00 AM, followed by our Veterans Day assembly at approximately 9:40 AM.
+
+### 2026-11-11 · Conway Public Schools (id 12662840)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Carl Stuart Middle School (id 13797622)
+
+Thankful Grams are on sale this week during all lunch periods! Send a little gratitude to friends, teachers, yourself, or anyone special—and they’ll be delivered before Thanksgiving Break.﻿ 🍂💌 
+
+Stop by during lunch to purchase yours this week! Thankful Grams range from $1-$5.
+
+### 2026-11-12 · Conway Public Schools (id 13791072)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+
+### 2026-11-12 · Carl Stuart Middle School (id 13800778)
+
+Attention: Bus 63 is experiencing issues and is running behind this morning.
+

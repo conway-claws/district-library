@@ -1092,3 +1092,36 @@ Note: Please remember to add your student’s name when you select their teacher
 
 Kona Ice donates a portion of all sales from this event to your student’s school
 
+### 2026-11-08 · Ida Burns Elementary (id 13754702)
+
+Here is your parent newsletter for the week of 11-9-26.
+
+https://app.smore.com/n/hn18g3
+
+### 2026-11-09 · Caroline Baker (id 13759198)
+
+We want you to join our PTO! Our main goal is working towards getting new playground equipment! We would love your input and help! We meet at 6:00 for our meetings on the third Tuesday of the month! Our next meeting will be held on Tuesday, November 17th at 5:30 in Dr. Wilchie's room.
+
+### 2026-11-11 · Conway Public Schools (id 12662835)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Caroline Baker (id 13796506)
+
+We are so thankful for our Veterans. Thank you for serving for our Country and for the sacrifices you have all made. 
+
+Click the link to see our slideshow of the Veterans that are near and dear to us at Ida Burns. https://canva.link/c1bdgd6lcmgxaqi
+
+### 2026-11-12 · Conway Public Schools (id 13791058)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+

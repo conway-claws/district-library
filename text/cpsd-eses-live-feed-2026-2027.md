@@ -640,3 +640,30 @@ Due to the weather, our fundraiser adventure run tomorrow is being rescheduled f
 
 Our fundraiser run has been cancelled for today. It is rescheduled for Nov. 30th.
 
+### 2026-11-10 · Ellen Smith Elementary (id 13782890)
+
+📚☕ ATTENTION, STARBOOKS READERS! ☕📚
+
+We're getting ready to wrap up another month of Starbooks Café! 🌟
+
+⏰ ALL reading cards are due THIS THURSDAY!
+
+Keep reading, finish filling those coffee cups, and don't forget to turn in your card so you can earn your invitation to the Starbooks Café!
+
+### 2026-11-11 · Conway Public Schools (id 12662849)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-12 · Conway Public Schools (id 13791064)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+

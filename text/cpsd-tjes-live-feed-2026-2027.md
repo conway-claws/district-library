@@ -828,3 +828,69 @@ If you are interested in participating, please reach out to Mrs. Fisher at **fis
 
 Thank you for your service, your sacrifice, and for being part of our TJE family! ❤️🤍💙
 
+### 2026-11-05 · Theodore Jones Elementary (id 13707576)
+
+Dear Parents, 
+
+This is a reminder that Kona Ice is coming tomorrow, Friday, November 6th!  The ordering deadline for this event is TONIGHT by 9:00 pm.  Please remember this is a cashless event. 
+
+Make sure to send their refillable cups in their backpack tomorrow morning to avoid dropping them off in the office. 
+
+Below is the ordering link:
+https://customer.kona-ice.com/#/K308X8982723
+
+Thank. you! 
+
+Hola, familias!
+
+Les recordamos que Kona Ice viene mañana, viernes 6 de noviembre! Para los que no lo conocen, Kona Ice es el camión que viene a la escuela y vende bebidas congeladas tipo raspado (slushies).
+
+La fecha límite para hacer sus pedidos es HOY antes de las 9:00 p. m. Recuerden que no se aceptará efectivo.
+
+Por favor, no olviden poner los vasos reutilizables de sus hijos en sus mochilas mañana por la mañana para evitar tener que llevarlos a la oficina.
+
+Aquí les dejamos el enlace para hacer sus pedidos: https://customer.kona-ice.com/#/K308X8982723
+
+Muchas gracias!!
+
+### 2026-11-06 · Theodore Jones Elementary (id 13733105)
+
+🐾 "PAWS"ITIVE FAMILY CONNECTION! 🐾
+
+It's time for another week of our Pawsitive Family Connection! Each Friday, we share a skill being taught at school and invite our families to join in on the fun with discussion starters and family challenges at home.
+
+This month, we're focusing on GRATITUDE! 💛 One way to think about gratitude is “choosing to appreciate the people and things in our lives.”
+
+Our family challenge this week is to spend some time together thinking of at least 10 small things you are grateful for! Then, make an effort to notice and appreciate those little things throughout the week. Sometimes it's the simplest things that bring us the most joy!
+
+📸 Don't forget to share pictures in the comments of the things your family is grateful for! Maybe it's the way your cat sleeps on the chair, your grandma's banana bread, or any of the little things that make your family smile!
+
+We can't wait to see what you're thankful for! Let's fill our comments with a little gratitude! 🐾💙
+
+### 2026-11-08 · Theodore Jones Elementary (id 13754518)
+
+The Paw Print Newsletter-https://conwaypublicschools.edurooms.com/newsletters/theodore-jones-elementary/newsletters/november
+
+### 2026-11-10 · Theodore Jones Elementary (id 13784863)
+
+🇺🇸 In honor of Veterans Day tomorrow, we invite all Little Cats to wear red, white, and blue as we recognize and celebrate the brave men and women who have served our country! ❤️🤍💙
+
+We know this is short notice, but we would love to see our school showing a little patriotic spirit! Participation is completely optional. Thank you for your support!
+
+### 2026-11-11 · Conway Public Schools (id 12662843)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-12 · Conway Public Schools (id 13791060)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+

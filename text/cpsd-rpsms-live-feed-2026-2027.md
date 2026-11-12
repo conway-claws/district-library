@@ -1084,3 +1084,45 @@ Did your student miss picture day, or do you need a do-over? Picture retakes wil
 
 Don't forget to send your student with their best smile (and their original picture package if they are taking retakes)!
 
+### 2026-11-06 · Karon Branch (id 13749908)
+
+November Newsletterhttps://conwaypublicschools.edurooms.com/newsletters/simon-middle-school/newsletters/november
+
+### 2026-11-06 · Karon Branch (id 13750322)
+
+Good afternoon! This is a friendly reminder that PTO will be hosting an open concession stand for 6th-grade students on Monday during WIN. Snacks will range in price from $1–$2. Thank you!
+
+### 2026-11-07 · Karon Branch (id 13750461)
+
+https://docs.google.com/document/d/1bzhQuYe7t6Th4bwv4qTswEBUwuXxOH-WhZd9dh4jSF8/edit?usp=sharing
+
+Event: SMS PTO Mtg.
+Date: Tuesday, November 10
+Time: 4:15 PM
+Location: School Cafeteria
+
+### 2026-11-10 · Karon Branch (id 13755817)
+
+Honoring the Heroes Who Gave All!As a Purple Star School, we are proud to honor and support our military-connected families. In remembrance of those who gave their lives in service to our country, we invite you to pay tribute to your loved one in our Field of Flags, located in front of our American flag at SMS.Each flag represents a life, a legacy, and a sacrifice we will never forget. We are honored to provide this space for our families and community to remember, reflect, and celebrate the heroes who will forever hold a place in our hearts.To all who have served, to the families who carry their legacy, and to those who made the ultimate sacrifice, we thank you. We remember you. We honor you.#SimonStrong #PurpleStarSchool #FieldOfFlags #HonorAndRemember #NeverForget
+
+### 2026-11-11 · Conway Public Schools (id 12662839)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Karon Branch (id 13798412)
+
+Dear families,We’re thrilled to announce our upcoming trip to England & France in Summer 2028, and your student is invited! This life-changing experience will help students build confidence, independence, and global perspective.We’re holding a one-time informational meeting to share everything you need to know—and spots on this trip are limited:👉 Find meeting info and RSVP here: https://rsvp.eftours.com/yy53jugWhy attend?- Learn how to save $250 with early enrollment.- Get first access to limited spots.- Learn about what we’ll see and do, academic opportunities, trip cost, and more.In the meantime, please visit EF’s website to get answers to common parent questions. EF Tours is our trusted travel partner, and they have 60 years of experience helping students explore the world safely and affordably.I hope to see you there and look forward to sharing how this trip can be a powerful and unforgettable chapter in your child’s life!Best,Janie WalburnPlease note this is a non-school sponsored trip.Lily MaikkulaTour Consultant, Educational ToursEF(501) 287-4842https://www.eftours.com/1221 S Congress AveSuite 400Austin TX, 78704
+
+### 2026-11-12 · Conway Public Schools (id 13791071)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+

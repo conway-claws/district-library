@@ -827,3 +827,53 @@ Our teachers worked alongside instructional coaches and UCA professors to dive d
 
 Good morning Team,Our Conway Public Schools chapter of HOSA – Future Health Professionals (Health Occupations Students of America) is currently hosting a Little Caesars Pizza fundraiser. Supporting our fundraiser is easy! You can simply click the link Little Caesar's Fundraiser, purchase your favorite pizzas, and help support our HOSA students and the activities, opportunities, and experiences that help prepare them for future careers in healthcare.Any support, whether through a purchase or simply sharing the link, would mean a great deal to our HOSA students.Thank you for your time and continued support of our students and CTE programs!Respectfully,Colin ShearerMedPro Instructor / HOSA AdvisorConway Public Schools CTE
 
+### 2026-11-10 · Tim McMahan (id 13779521)
+
+Happy Tuesday,
+
+### 2026-11-10 · Tim McMahan (id 13779582)
+
+Happy Tuesday,
+I pushed send too quickly last time. Let's start getting cool weather on our minds. When you have time, let's go ahead and check our thermostats to make sure the heat is going to work and anything else that you feel needs to be looked at before freezing temperatures get here please put in a work order.
+Thanks 
+T-Mac
+
+### 2026-11-11 · Conway Public Schools (id 13377116)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Conway Public Schools (id 12662651)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-12 · Conway Public Schools (id 13791055)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+
+### 2026-11-12 · Conway Public Schools (id 13791101)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+
+### 2026-11-12 · Conway Public Schools (id 13807089)
+
+Meet our November District Student of the Month! We are excited to celebrate Graysen Washington, a preschool student at Sallie Cone Preschool!  Even at such a young age, Graysen is already making a special impact and showing us what it means to be a proud Wampus Cat!Graysen was recognized at this week’s November School Board meeting, and we are so proud to shine a spotlight on this special member of #TeamConway! Being a Champion starts at every age, and we love celebrating the bright futures, big smiles, and little moments that make our students so special.Graysen is pictured with Superintedent Jason Black, Sallie Cone Preschool Principal Dr. Marci Martin, Mrs. Mar & Ms. Walker! Take a moment to watch the video and get to know Graysen! Help us celebrate this wonderful Wampus Cat!  https://youtu.be/rYdpXOgKwEk?si=8xt3HInme_fjeDIj
+

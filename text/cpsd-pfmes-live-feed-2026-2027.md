@@ -465,3 +465,20 @@ Dear Mattison Families,Thanksgiving is a time to reflect on all the things we ar
 
 Howdy, Mattison Families! 🤠🎀Dust off those boots and grab your bows because it's time for our Boots & Bows Fall Ball! We can't wait for an evening of dancing, music, and family fun!📅 Thursday, November 5th⏰ 5:30–6:30 PM📍 Bob & Betty Courtway GymHere's what you can look forward to:🎶 Live DJ & Family Dancing📸 Family Photo Booth🍭 Concessions for Sale ($1–$2 per item; cash preferred!)A Few Important Reminders:👢 Walking Feet Only: We want to see your best dance moves, but no running on the gym floor!🗑️ Keep It Clean: Help us take care of the middle school gym by placing all trash in the trash cans.💵 Concessions: Snacks and drinks will be available for purchase. Cash is preferred!👨‍👩‍👧‍👦 Family Event: Each student must have at least one parent or guardian attend and remain with them throughout the event.We can't wait to see our Little Cats and their families dressed in their best boots and bows! It's going to be a boot-scootin' good time!See y'all at the Fall Ball! 🤠🎀
 
+### 2026-11-11 · Conway Public Schools (id 12662845)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-12 · Conway Public Schools (id 13791062)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+

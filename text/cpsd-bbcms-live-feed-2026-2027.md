@@ -712,3 +712,96 @@ Shop here: https://courtwaymerchandiseonlinestore.itemorder.com/shop/home/
 
 #WeAreCourtway #TeamConway #WeAreWampusCats
 
+### 2026-11-05 · Courtway Middle School (id 13734932)
+
+Hearing and Vision screenings for all 6th graders will be conducted tomorrow, November 6th. If your student wears glasses or contacts, please make sure they bring them. Thank you!
+
+### 2026-11-06 · Courtway Middle School (id 13748825)
+
+Congratulations to our October CMS Students of the Month! 🎉💙🐾
+
+We are excited to recognize Dezonni C., Amiya L., Diesel R., Ramey H., Caysen H., and Kimberly C.! These students stand out for their hard work, positive attitudes, and kindness toward others. They lead by example, make good choices, and help make Courtway a great place to learn!
+
+We are so proud of each of you and the positive example you set for others! Keep up the great work and continue showing that Wampus Cat pride! 💙🐾
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-11-07 · Courtway Middle School (id 13749145)
+
+Makeup Picture Day is Tuesday, November 10! 📸 If your student missed our original Picture Day or needs a retake, this is their chance to get those pictures taken.
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-11-08 · Courtway Middle School (id 13749239)
+
+Don’t miss your chance to grab a copy of the yearbook and keep all of this year’s Courtway memories in one place. Orders can be placed online, and there’s even an option to pay in three monthly installments at no extra cost.
+
+Order your yearbook here:
+http://jostensyearbooks.com?ref=A01047635
+
+Not sure if you already ordered? You can check your order here:
+https://www.jostens.com/customer-service/yearbook-order-tracking
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-11-09 · Courtway Middle School (id 13761210)
+
+Makeup Picture Day is tomorrow, Tuesday, November 10! 📸
+
+Students who missed our original Picture Day or need a retake will have another chance to have their picture taken.
+
+If your student needs a retake, please make sure they bring their original picture package back with them along with a note explaining what you would like done differently.
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-11-11 · Conway Public Schools (id 12662847)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Courtway Middle School (id 13796712)
+
+Congratulations to our October Sonic Teacher of the Month, Mrs. Horton! 🎉💙🐾
+
+Mrs. Horton does so much for CMS! From heading up our 5th grade Outdoor School field trip to her continued work with literacy intervention, she puts in so much time and effort to help our students succeed. We appreciate her hard work and all the ways she helps make Courtway a great place to learn!
+
+We are so thankful to have Mrs. Horton on our team! Congratulations on this well-deserved recognition! A special thank you to Sonic for sponsoring this honor and helping us celebrate our amazing teachers! 💙🐾
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-11-11 · Reigha Smith (id 13796747)
+
+💙🐾 More Than Athletes! 🐾💙
+
+Today, we are proud to recognize some of our Lady Cat student-athletes who represented Courtway Middle School at our Veterans Day Assembly! 🇺🇸
+
+⭐ Myla Vann – Student Council President
+
+⭐ Taryn Nunn – Poetry Reading
+
+⭐ Karliegh Richards – Flute
+
+⭐ Trinity Tutt – French Horn
+
+⭐ Harper Beacham – Flute
+
+We love seeing our athletes shine beyond the court through leadership, service, and their many talents!
+
+🇺🇸 A special thank you to all of our veterans! Your courage, sacrifice, and service to our country will never go unnoticed. We are forever grateful! ❤️🤍💙
+
+### 2026-11-11 · Courtway Middle School (id 13768751)
+
+Progress reports went home with students today, November 11. Students received them during 4th period, so be sure to check backpacks this evening!
+
+### 2026-11-12 · Conway Public Schools (id 13791068)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+

@@ -1178,3 +1178,40 @@ https://www.zeffy.com/en-US/ticketing/jse-christmas-musical-front-row-raffle
 
 #JSE
 
+### 2026-11-09 · Barbara Clardy (id 13770619)
+
+Our Winter musicals are coming up on December 1st! Enter to win 5 front-row seats while supporting JSE!Raffle tickets are $5 each and available now through our Zeffy link or at VIP Night on November 17th.Two winners will be drawn—one for each performance—1st–2nd grade and 3rd–4th grade. (*Our kindergarten musical will be in the spring.)Every ticket is one entry. The more you buy, the more chances you have to win!Winners announced November 20th!https://www.zeffy.com/en-US/ticketing/jse-christmas-musical-front-row-raffle
+
+### 2026-11-10 · Barbara Clardy (id 13786017)
+
+School is open tomorrow, but some daycares will be closed for Veterans Day. 
+
+Please make any needed arrangements, and let your child’s teacher know (via email or note) if this changes how your child will go home in the afternoon.
+
+Thank you! 
+
+#WeAreJSE
+
+### 2026-11-11 · Conway Public Schools (id 12662844)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Barbara Clardy (id 13796232)
+
+📣 Jim Stone Elementary families, you’re invited to our PTO meeting this Friday, November 13, at 2:00 p.m. in the PD Lab! All parents are welcome. 💙 Come join us and be part of the conversation—hope to see you there! 
+
+#WeAreJSE
+
+### 2026-11-12 · Conway Public Schools (id 13791065)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+

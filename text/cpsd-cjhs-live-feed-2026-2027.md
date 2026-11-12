@@ -1845,3 +1845,132 @@ A few reminders before the big night:
 
 Grab your friends, get ready to dance, and join us for a fun night! We can't wait to see you there! 💃🕺
 
+### 2026-11-06 · Conway Junior High (id 13745890)
+
+Our Fall Dance is happening TONIGHT from 6:00–8:00 p.m. in the Conway Junior High North Gym!
+
+A few reminders before the big night:
+🚗 Drop-Off: Mitchell Street, in front of the North Gym.
+
+🚗 Pickup:
+- 8th Grade: In front of the North Gym.
+- 9th Grade: In front of the South Gym off.
+
+👗 Please remember that the CJHS dress code still applies!
+
+🍿 Concessions will be available for purchase!
+
+### 2026-11-06 · Conway Junior High (id 13748982)
+
+📸 Help Us Capture the Season, Wampus Cats! 
+
+While our yearbook staff does its best to attend games, meets, matches, and competitions, we can't be everywhere at once! We need YOUR help capturing all the exciting moments of our athletic seasons.
+
+Parents and families are encouraged to submit photos of our student-athletes, including action shots, team pictures, celebrations, huddles, group photos, and more! You don't have to submit pictures of only your own child—we would love to see photos of teammates and entire teams, too!
+
+A few things to keep in mind:
+
+Photos from any CJHS athletic event are welcome.
+
+Please submit original photos that you took or have permission to share.
+
+Clear, high-quality photos are preferred.
+
+Photo submission does not guarantee publication in the yearbook.
+
+Help us celebrate our Wampus Cats and preserve these special memories from the school year!
+
+📷 Submit your photos here: https://forms.gle/9AfbhiryHiNi8QAM8
+
+### 2026-11-06 · Conway Junior High (id 13746056)
+
+💙🤍 A special night for our CJHS Wampus Cats! 🤍💙
+
+This week, our 8th and 9th grade Beta members participated in the National Beta Club Induction Ceremony! We are so proud of these students and their commitment to academic achievement, leadership, service, and character. Congratulations to all of our new Beta members! We can't wait to see all the great things you accomplish! 🐾
+
+### 2026-11-06 · Conway Junior High (id 13685892)
+
+Get into the Christmas spirit, Cat Nation! Join us on Friday, November 13th for a festive day of Christmas pajamas and hats!
+
+❤️ $1 to wear one item (PJ pants or a Christmas hat)
+💚 $2 to wear both!
+
+🎟️ Tickets will be sold Monday, November 9th, through Thursday, November 12th, during all lunch periods.
+
+Let's make it a holly jolly day at CJHS! We can't wait to see everyone join in on the fun! 🎅🎄
+
+### 2026-11-09 · Conway Junior High (id 13165760)
+
+Dear Parents,Here are the important CJHS updates and announcements for the upcoming week.Link to Announcements: https://docs.google.com/document/d/1QS3gQyOpt0Bqqbk4PwislhZhA94dERIWr7XeCh6JJjo/edit?usp=sharing
+
+### 2026-11-09 · Conway Junior High (id 13686007)
+
+REMINDER, CAT NATION! 🐾🎄
+
+Our Christmas PJ Pant & Hat Fundraiser is coming up this Friday, November 13th!
+
+Don't forget to grab your tickets during lunch this week!
+
+❤️ $1 to wear one item (PJ pants or a Christmas hat)
+💚 $2 to wear both!
+
+Let's bring some Christmas cheer to CJHS
+
+### 2026-11-09 · Conway Junior High (id 13730405)
+
+📅 Here's what's happening this week at CJHS! From Girls Basketball and Wrestling to Fall Play and our Cat Nation Christmas fundraiser, it's a busy week ahead! Be sure to check out the schedule and mark your calendars. 
+
+Have a great week, Wampus Cats!
+
+### 2026-11-09 · Conway Junior High (id 13748522)
+
+Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
+
+### 2026-11-09 · Conway Athletics (id 13765720)
+
+Mandatory meeting this WEDNESDAY morning for students interested in Junior High girls track!
+
+### 2026-11-10 · Conway Junior High (id 13768684)
+
+Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
+
+### 2026-11-11 · Conway Public Schools (id 12662841)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Conway Junior High (id 13783040)
+
+Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
+
+### 2026-11-11 · Conway Junior High (id 13769656)
+
+Conway Junior High is proud to recognize and thank the veterans in our Wampus Cat family for their service and sacrifice.
+
+A special thank-you to our CJHS veterans:
+- Kay Graham-Blake: Air Force, Army & Navy
+- Lacy Patterson: Army
+- Travis Tabor: United States Marine Corps
+- Jacob Beagley: U.S. Army
+- SRO Wheeler: United States Marine Corps
+
+Thank you for your courage, dedication, and commitment to protecting our freedom. We are grateful for you today and every day!
+
+Happy Veterans Day!
+
+### 2026-11-12 · Conway Public Schools (id 13791074)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+
+### 2026-11-12 · Conway Junior High (id 13795584)
+
+Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
+

@@ -1627,3 +1627,65 @@ Kindergarten had a blast celebrating 50s Day! From poodle skirts and rockin’ o
 
 Mr. Smith's class went on a virtual field trip to kick off their next reading/writing unit about animals!  The Lionhearts had fun “taking photos” of all of the animals they saw on their safari adventure together!
 
+### 2026-11-05 · Woodrow Cummins Elementary (id 13730177)
+
+Congratulations to these third grade students who leveled up in Lexia in the month of October!
+
+### 2026-11-06 · Woodrow Cummins Elementary (id 13738797)
+
+Check out this Little Cat Chronicle!
+
+### 2026-11-06 · Jenna Havlik (id 13748243)
+
+Our 1st graders really enjoyed the beautiful weather at recess today! The new playground equipment from our PTO fundraiser last year adds even more fun things to play on!
+
+### 2026-11-08 · Woodrow Cummins Elementary (id 13754207)
+
+WCE Makeup Picture Day is coming up on Thursday, November 12th!If your child missed our original picture day or would like a retake, this is their opportunity!Need a retake?
+Please be sure to:Return your child's original picture package on makeup day.Include a note stating what you would like done differently (if applicable).📸 For more information, visit www.strainschoolpics.com.Questions? Contact Strain Photography at info@strainphotography.info.We look forward to seeing all those smiling faces!
+
+### 2026-11-08 · Jenna Havlik (id 13755184)
+
+Pokémon Club is canceled for Monday, Nov. 9.
+
+### 2026-11-09 · Woodrow Cummins Elementary (id 13688038)
+
+We hope you will make plans to attend our 3rd and 4th grade Musical Nov. 10! 6:30 at James H. Clark Auditorium.
+
+### 2026-11-09 · Woodrow Cummins Elementary (id 13767607)
+
+Dear WCE Families,The holiday season is a time for giving, kindness, and coming together as a community. This Christmas, we are asking for your help in making the season a little brighter for some of our Little Cats!We have several students at WCE who may otherwise go without gifts this Christmas. If you are able, we invite you to help by sponsoring a child or family, donating gift cards to assist with gift purchases, or providing wrapping supplies. Your generosity can make a meaningful difference in the lives of our students and their families.Substitute Santa Gift Guidelines:To help ensure that each child receives a similar number and variety of gifts, we ask that all Substitute Santas follow the shopping guidelines below when purchasing gifts for their assigned student.Each student should receive:1 Clothing Item – Shirt, pants, sweatshirt, coat, or outfit2 Toys or Fun Gifts – Based on the child's age, interests, and wish list1 Book – Age-appropriate book, activity book, or graphic novel1 Cozy or Practical Item – Pajamas, blanket, socks, shoes, or winter accessories1 Stocking Stuffer – Small game, art supplies, fidget toy, or similar itemThese guidelines help us provide a consistent and meaningful Christmas experience for each child. We kindly ask that volunteers purchase an item from each category rather than substituting additional items from another category. This ensures that every student receives a thoughtful balance of necessities and fun gifts.A few important reminders:Please do NOT wrap gifts. Our team will take care of wrapping and organizing them.Clearly label all gifts with the assigned student number provided to you to ensure they are distributed correctly.How to Participate:If you would like to help make Christmas special for a WCE student or family, please complete this Substitute Santa Volunteer Form by Tuesday, November 17, 2026.Once you sign up, we will share additional details, including your assigned student's wish list and gift drop-off instructions.Thank you for the incredible kindness and generosity you continue to show our school community. Your willingness to give helps ensure that our Little Cats feel loved, supported, and remembered this holiday season.Together, we can make Christmas a little brighter for our WCE families!With gratitude,Jenna Havlik and Brooke JonesWoodrow Cummins Elementary
+
+### 2026-11-09 · Jenna Havlik (id 13769497)
+
+4th grade students worked in groups during library class to create a bridge for Mr.Turkey! He's trying to get away from the farmer. Run, Turkey, Run!
+
+### 2026-11-10 · Woodrow Cummins Elementary (id 13784844)
+
+We hope you will join us Thursday, Nov. 12 at Taziki's for Spirit Night.  Make sure you mention Woodrow Cummins when ordering to benefit our school!
+
+### 2026-11-10 · Morgan Roberts (id 13786692)
+
+Mrs. Roberts' class went on a safari to help the animals solve math problems!
+
+### 2026-11-10 · Morgan Roberts (id 13786375)
+
+Talk about a WILD way to kick off our Arts & Letters unit, Creature Features! Our first graders got up close and personal with a REAL LIVE alligator and even got the chance to touch it!
+
+### 2026-11-11 · Conway Public Schools (id 12662836)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-12 · Conway Public Schools (id 13791059)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+

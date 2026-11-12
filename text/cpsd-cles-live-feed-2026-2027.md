@@ -1982,3 +1982,58 @@ We can't wait for a week full of reading, fun, and BOOKS! 💙📖
 
 #WeAreCLE
 
+### 2026-11-06 · Carolyn Lewis Elementary (id 13709651)
+
+CLE students loved finishing Red Ribbon Week with Pajama Day!#WeAreCLE
+
+### 2026-11-06 · Carolyn Lewis Elementary (id 13726074)
+
+💙🐾 We love seeing our CLE pride out in full force! Lincoln and his mom showed their Little Cat spirit by wearing their CLE gear on Team CLE Day during Red Ribbon Week! 
+
+#WeAreCLE
+
+### 2026-11-06 · Carolyn Lewis Elementary (id 13739057)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-11-09 · Carolyn Lewis Elementary (id 13739246)
+
+Our CLE 4th graders enjoyed a day filled with learning, laughter, and fun!  Arkansas Game & Fish kicked off our morning with an exciting learning experience, followed by an obstacle course, bounce houses, bubbles, and so much more! We wrapped up our amazing day in the garden, making memories and celebrating a wonderful day together.  #WeAreCLE
+
+### 2026-11-10 · Carolyn Lewis Elementary (id 13762295)
+
+Kindergarten had fun showing off their super hero shirts and favorite sports teams during Red Ribbon Week. #WeAreCLE
+
+### 2026-11-10 · Carolyn Lewis Elementary (id 13551152)
+
+🌿🎶 ONE WEEK AWAY! 🎶🌿
+
+We’re just one week away from our 1st and 3rd graders performing Take a Walk! 🐾💙 Join us next Tuesday, November 17th, at 6:00 PM in the James H. Clark Auditorium at Conway High School. We can’t wait to see our Little Cats shine on stage!
+
+#WeAreCLE
+
+### 2026-11-11 · Conway Public Schools (id 12662837)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Carolyn Lewis Elementary (id 13792013)
+
+Poppy fields and poppies to celebrate our veterans today and everyday! CLE loves and appreciates those who are currently serving and those who have graciously served. #WeAreCLE
+
+### 2026-11-12 · Conway Public Schools (id 13791061)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+
+### 2026-11-12 · Carolyn Lewis Elementary (id 13792128)
+
+Second grade kicked off their new unit in Arts and Letters. Mrs Stanfield read a story, the students experienced an authentic Native American drum, they got to feel of an elk hide, and learned what Tribes lived in Arkansas. We are excited to learn about the American West! #WeAreCLE
+

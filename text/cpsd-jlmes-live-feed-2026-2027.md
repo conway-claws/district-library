@@ -1205,3 +1205,100 @@ Our JLM Jam Glow Party was packed with so many glowing smiles! 💫✨ We loved 
 
 JLM Fitness Club is CANCELED for TODAY, November 5th. Please make arrangements for regular student dismissal. Thank you!
 
+### 2026-11-06 · Julia Lee Moore Elementary (id 13700732)
+
+These fourth graders had a lot of fun learning about chemical reactions during their pumpkin experiment! 🎃🧪
+
+#JuliaLeeMoore #WeAreJLM #FourthGrade #FutureScientists
+
+### 2026-11-06 · Julia Lee Moore Elementary (id 13738913)
+
+A huge shoutout and thank you to the Conway High School Dance Team for helping out with morning drop-off today! 💙
+
+#JuliaLeeMoore #WeAreJLM #ThankYou #GoWampusCats
+
+### 2026-11-06 · Julia Lee Moore Elementary (id 13739073)
+
+A huge thank you to the Gibson family for the delicious coffee and pies in the lounge today! Your generosity made everyone's day so much sweeter. ☕️🥧❤️
+
+#JuliaLeeMoore #WeAreJLM #ThankYou
+
+### 2026-11-08 · Julia Lee Moore Elementary (id 13754382)
+
+The JLM Book Fair will be open this Monday, November 9th to Friday, November 13th. Please visit the book fair site for more information: https://literati.com/a/store?srsltid=AYCX9vKbgCG0LsRFnelrYKq_Ntv7lFWKF8wGgWGDDNIeb5vVUxqL8bgJ&school=01836175-2a80-5695-675b-6ee41850722b
+
+Remember to email Mrs. Epps at eppsj@conwayschools.info or send a message in Rooms if you need any additional information or help. Thank you for supporting our students at Julia Lee Moore Elementary.
+
+#Literati #LiteratiBookFairs
+
+### 2026-11-09 · Julia Lee Moore Elementary (id 13621518)
+
+Our 3rd grade students stepped into a "Book Tasting" to preview Module 2 and explore all things Space! 🌌✨
+
+Before diving into reading, they sampled each book, made predictions, asked big questions, and decided which space adventures were on their must-read list. 📚🪐
+
+#JuliaLeeMoore #WeAreJLM #ThirdGrade #BookTasting
+
+### 2026-11-09 · Julia Lee Moore Elementary (id 13767737)
+
+Say cheese! 📸 JLM Picture Makeup & Retake Day is scheduled for November 17th.
+
+If you missed your original slot or need a retake, please:
+
+1. Mark your calendar for November 17th.
+
+2. Return your original picture package on that day.
+
+3. Include a note explaining exactly what you would like done differently this time.
+
+Check out www.strainschoolpics.com for more details or email info@strainphotography.info with any questions!
+
+### 2026-11-10 · Julia Lee Moore Elementary (id 13607949)
+
+Learning and creating in the library! From 3D printing and hands-on crafts to festive felt-board stories, our students are always busy exploring new ideas. 📚✨
+
+#JuliaLeeMoore #WeAreJLM #LibraryLife
+
+### 2026-11-10 · Julia Lee Moore Elementary (id 13782508)
+
+FYI: The Book Fair will be open TODAY until 4:30!
+
+### 2026-11-10 · Julia Lee Moore Elementary (id 13779428)
+
+Reminder: If you would still like to purchase a 4th-grade yearbook ad, the final deadline is coming up on November 20th. Thank you!
+
+### 2026-11-11 · Julia Lee Moore Elementary (id 13773914)
+
+Last week's Book Fair preview gave students a chance to explore all the amazing titles and fill out their ultimate wish lists. Now it's time to bring those lists to life!
+
+Stop by this week to stock up on new adventures, favorite series, and great reads! 📚✨
+
+#JuliaLeeMoore #WeAreJLM #LiteratiBookFairs
+
+### 2026-11-11 · Conway Public Schools (id 12662838)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Julia Lee Moore Elementary (id 13794954)
+
+JLM Parents- The book fair will NOT be open today after school. Please email Mrs. Epps if you have any questions. Thank you!
+
+### 2026-11-12 · Julia Lee Moore Elementary (id 13607817)
+
+To wrap up the first Arts & Letters module, 4th grade 'scrubbed in' to build models of the heart and label all the parts! 🫀🥼
+
+#JuliaLeeMoore #WeAreJLM #FourthGrade
+
+### 2026-11-12 · Conway Public Schools (id 13791063)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+

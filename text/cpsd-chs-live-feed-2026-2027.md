@@ -3499,3 +3499,256 @@ We are so grateful for a community that believes in and supports girls’ athlet
 Congratulations to Braylin Merritt on being selected to play in the 2026 ARVCA All Star game!! 
 The All Star game will take place on November 21st at 4:00pm at Greenbrier High School. Way to go, Braylin!
 
+### 2026-11-06 · Marcelle Goins (id 13740695)
+
+❗️Wampus Cats fans, please be aware of the information below❗️
+
+REMINDER... ALL TICKETS must be purchased digitally via smartphone.
+Ticket price will be $7.00.  AAA and Bryant District passes ONLY will be accepted for admittance.  Please see the ticket link for Friday's game below.
+
+https://gofan.co/event/6756943?schoolId=AR4648
+
+
+Visiting Team Fans: Once on Reynolds Road drive through several stoplights (4).  At the 5th stop light, you will be at NW 4th Street.  Turn right onto NW 4th Street.  You will then turn right on Wise Street or Elaine Street.  Visitor parking will be in Lot B (Hornet Arena/Tennis Court).
+ 
+To access the stadium, you will walk down T Wood Way, past the two grass practice fields.  Use the road to the back of the stadium.  ALL VISITOR SPECTATORS will enter the stadium from this ticket gate.  ANY visiting spectator trying to enter the stadium from the Home/Concession Ticket gates will be directed to walk around the Indoor Practice Building to access the visiting teams fan entrance.
+
+### 2026-11-06 · Conway High School (id 13745578)
+
+💙 Congratulations to our October Employee of the Month, Nurse Amy Kordsmeier! 💙
+
+From her kindness and compassion to her amazing energy and ever-present smile, Nurse Amy makes a difference in the lives of our students every single day. Whether she's caring for a student who isn't feeling well, offering a listening ear, or simply brightening someone's day, her warmth and dedication make her an essential part of the CHS family.
+
+Our students and parents said it best: she's kind, she's the best, and she's the GOAT! 🐐
+
+Thank you, Nurse Amy, for the care, positivity, and heart you bring to our campus. We are so lucky to have you!
+
+#WampusCats #EmployeeOfTheMonth #CHSProud
+
+### 2026-11-06 · Conway High School (id 13745629)
+
+🎉 ¡Felicidades to our October Teacher of the Month, Mr. Micah Escalante!
+
+Making Spanish fun is just the beginning! Students and parents consistently praised Mr. Escalante for his humor, enthusiasm, and ability to make learning engaging. But what truly sets him apart is the genuine care he shows for his students. From checking in on their well-being to challenging them to think about their futures, he goes above and beyond to make sure every student feels seen, heard, and encouraged to reach their full potential.
+
+One student shared that Mr. Escalante makes the classroom a place they actually want to be, while another said he's motivated them to become better at Spanish because they don't want to let him down. That's the kind of impact that reaches far beyond the classroom!
+
+Between the laughter, the life lessons, and the Spanish, Mr. Escalante has clearly mastered the art of making an impact!
+
+Thank you, Mr. Escalante, for bringing laughter, encouragement, and a whole lot of heart to CHS. We're proud to have you on our team!
+
+#WampusCats #TeacherOfTheMonth #CHSProud
+
+### 2026-11-07 · Conway Athletics (id 13753368)
+
+Conway wrestling wrapped up preseason wrestling today in Rogers with the Mountie Open! Congrats to Dexter Francis, Brandi Russell, and Elijah Jaco on winning their divisions. And congrats to all the other medalist! Come out and see our Intersquad duals on Tuesday November 17th!
+
+### 2026-11-09 · Canaan Groesbeck (id 13759848)
+
+Swim and Dive results from last week's meet on Thursday, November 5th! 
+Girls and Boys finished 1st place overall! Way to go, Wampus Cats! 
+Congratulation's to our High Point athletes! Keep working hard!
+
+### 2026-11-09 · Conway High School (id 13746301)
+
+📖 Every reader has a story, and every student deserves the opportunity to become a confident one!
+
+Meet Conway High School's Reading Interventionists, Ms. Taylor Long and Ms. Emily Zamora! Through data-driven instruction and individualized support, these educators help students strengthen their reading skills while creating a safe, encouraging environment where they feel understood and supported.
+
+A big part of their work is helping students change the way they see themselves as learners. By building awareness of dyslexia characteristics and how they affect learning, Ms. Long and Ms. Zamora help students move past feelings of failure and recognize their own potential.
+
+Because reading is part of nearly everything we do, stronger reading skills can open doors to academic opportunities, career goals, and greater independence. Their message to Wampus Cats? Reading intervention isn't for students who can't be successful readers. It's for students who are more than capable of success but may simply need a different approach!
+
+We're grateful for these two advocates who help students build confidence, discover their strengths, and see what's possible. ❤️💙
+
+#WampusCats #ConwayHighSchool #ReadingIntervention #EveryStudentCanGrow
+
+### 2026-11-09 · Conway High School (id 13760989)
+
+Congratulations to Andrea Sheppard from Conway High School for being named CPS Foundation’s Teacher of the Week. 
+
+“Mrs. Sheppard creates a warm room where every child feels safe and cared for. Her patience is a gift. Her laughter is contagious. I feel seen and heard as a parent of a child with special needs. She’s so inclusive and intentional with her students. She cares and it shows in the way she shows up every day. This is the Conway Way!”
+
+Congratulations and thank you for all that you do for so many.  Pictured with Mrs. Sheppard is CHS Principal Dr. Worley and Foundation members Morgan Lefler and Morgan Drayton.
+
+### 2026-11-09 · Canaan Groesbeck (id 13761253)
+
+Congratulations to Emmy Booy on being named All Prep Dig Freshman team!!! Way to go, Emmy!
+
+### 2026-11-09 · Conway Athletics (id 13763705)
+
+Weekly Athletic Events!
+
+### 2026-11-09 · Conway High School (id 13765100)
+
+🌎💚 Making a Difference, One Good Deed at a Time!
+
+The Conway High School Black Student Union rolled up their sleeves and got to work alongside the Conway Morning Optimist Club for a community environmental cleanup project! Together, our students helped make Conway a cleaner, greener place, proving that even the smallest acts of service can make a big difference. 💪🌱
+
+A little community appreciation goes a long way, too! A huge thank-you to the Conway Morning Optimist Club for generously providing pizza for Saturday's game night and for their continued commitment to supporting our youth. 🍕 We'd also like to thank Mama & Me Acai for recognizing our students' hard work and treating them to some delicious smoothies! 🥤
+
+Service, teamwork, community, and a little fun along the way — what a great day to be a Wampus Cat! 🐾💙
+
+#WampusPride #CommunityService #BlackStudentUnion #BetterTogether
+
+### 2026-11-09 · Conway High School (id 13764762)
+
+🦷 Learning by doing!
+
+Mr. Shearer’s Patient Care Technician (PCT) students are getting hands-on experience with one of the most important aspects of patient care: personal hygiene!
+
+As they practiced teeth-brushing skills on one another, students not only learned the proper techniques but also gained a better understanding of what it feels like to be on the receiving end of care. Experiencing both sides helps build empathy, confidence, and a greater appreciation for patient comfort and dignity.
+
+Because great patient care is about more than knowing how — it’s about understanding how it feels! 💙
+
+#PatientCareTechnician #HandsOnLearning #FutureHealthcareProfessionals
+
+### 2026-11-10 · Joseph Moon (id 13773992)
+
+Game Day is here! The Cats play a benefit game vs. Rogers Heritage today. Come get your first look at this team!
+
+### 2026-11-10 · Six-leg media (id 13775052)
+
+Six-Leg Media has officially released its first news show of the school year!
+
+In this episode, our student journalists take you inside Conway High School with stories featuring HOSA, Spirit Week, Mrs. Kordsmeier, and Mrs. Branscum. Plus, go behind the scenes with the Wampus Cat Marching Band as they prepare for their competitions leading up to State!
+
+Catch up on what's happening around CHS and see the stories our students have been working hard to tell!
+
+**Watch the full show at the link below!**
+
+https://youtu.be/2FcpFIJnbqY
+
+### 2026-11-10 · Conway High School (id 13764819)
+
+💙❤️ Our CHS HOSA leaders recently attended the Fall Leadership Conference, where they developed valuable leadership skills, connected with fellow students from across Arkansas HOSA, and gained new ideas to bring back to our chapter!
+
+We’re proud of these students for investing in their leadership and their future in healthcare! 🩺👏
+
+#WampusCats #CHSHOSA #ArkansasHOSA
+
+### 2026-11-10 · Conway High School (id 13780552)
+
+✨ Magic, Mischief, and a Whole Lot of Puffs! 🪄Conway High School Theatre proudly presents PUFFS: Or, Seven Increasingly Eventful Years at a Certain School of Magic and Magic by Matt Cox!Ever wonder what happened to the students who weren't destined to save the world? Join the Puffs, a group of lovable misfits, as they navigate seven years of magical mishaps, unexpected friendships, and hilarious adventures. Full of heart, humor, and a little bit of magic, PUFFS is a laugh-out-loud celebration of the underdogs who just want to matter!📅 November 12–14, 2026
+🕖 7:00 PM
+📍 Conway Junior High Auditorium🎟️ Tickets: $10 Adults | $5 StudentsTickets can only be purchased through GoFan! Search for Conway High School, then click on the black GoFan icon, or purchase directly here:
+https://gofan.co/app/school/AR4663_2Come cheer on the underdogs and discover that sometimes being a hero means simply being yourself!💛 Third or nothing! ✨#WampusCats #CHSTheatre #PUFFS
+
+### 2026-11-10 · Conway Athletics (id 13781269)
+
+🏀THE NEXT CHAPTER STARTS HERE! 🖊️
+
+Once a Lady Cat, always a Lady Cat! 💙
+
+Join us tomorrow as we celebrate three of our Lady Cats taking the next step in their basketball careers!
+
+🎓 Libby Counts – Hendrix College
+
+🎓 Mi’Raiyh Wilson – Three Rivers College
+
+🎓 Traniyah Weston – Three Rivers College
+
+📅 Wednesday, November 11th
+
+⏰ 4:00 PM
+
+📍 Buzz Bolding Arena
+
+### 2026-11-10 · Joseph Moon (id 13786928)
+
+Wampus Cats win! Big games from KJ Johnson (25 points) and Zae Patrick (17 points).  On to Fayetteville on Thursday!
+
+### 2026-11-11 · Conway Public Schools (id 12662842)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Conway Athletics (id 13791658)
+
+Wrestling will host their Blue/White Dual on Nov 17 at 6pm in the Old Gym. Tickets are only available on GoFans! Come see the work this program has put in! 
+
+https://gofan.co/event/7062359?schoolId=AR4663
+
+### 2026-11-11 · Conway High School (id 13792462)
+
+🌎 Exploring Hispanic Culture, History, and Heritage!
+
+Ms. Dunn’s World History students took a journey through Central and South America as they explored the geography, traditions, and cultural highlights of several Hispanic countries. Students traveled virtually to a country of their choice, gathered interesting facts, and created their own postcards showcasing what they learned. Along the way, they even got to sample some Hispanic candy!
+
+The learning continued with a look back at the ancient Aztec and Mayan civilizations. Students explored the history of these Indigenous societies, examined cultural artifacts, and investigated the significance of each artifact to the people and societies that created them.
+
+From modern-day cultural exploration to the ancient civilizations that helped shape the Americas, students discovered the rich history and diverse influences behind Hispanic heritage! 🌎📚
+
+#ConwayWampusCats #WorldHistory #CulturalExploration #HistoryInAction #LearningBeyondTheClassroom
+
+### 2026-11-11 · Conway High School (id 13793032)
+
+👑 All you need is a few Burger King crowns and some props from the Theatre department, and you’re set for a Hamlet reenactment! 🎭
+
+Ms. Wood and Mrs. Knapp’s 12th grade English students got to switch the dynamic of the classroom and take on teaching their classmates. In groups, they were responsible for teaching a scene from Act 3 of Shakespeare’s Hamlet with a condensed skit and a brief follow-up lesson.
+
+To be or not to be... the teacher? These students got to do both! 📚👏
+
+#ConwayWampusCats#Shakespeare #LearningInAction #StudentLedLearning
+
+### 2026-11-11 · Conway High School (id 13451525)
+
+📣 Attention, Juniors!
+
+The ASVAB test is coming up on Thursday, November 12! Please remember to bring your fully charged Chromebook and student ID on test morning so you’re ready to go.
+
+Be prepared and ready to do your best, Wampus Cats! 💙
+
+#WampusCats #ConwayHighSchool
+
+### 2026-11-11 · Conway Athletics (id 13798639)
+
+SIGNING DAY! 🚾🏀
+
+A special day for Lady Cat Basketball as THREE of our seniors signed to play at the next level!
+
+🎓 Libby Counts – Hendrix College
+🎓 Traniyah Weston – Three Rivers College
+🎓 Mi’Raiyh Wilson – Three Rivers College
+
+So proud of these young ladies and all they’ve accomplished! We can’t wait to see what the future holds!
+
+Once a Lady Cat, Always a Lady Cat! 💙🤍
+
+### 2026-11-12 · Joseph Moon (id 13800257)
+
+The Cats are NWA bound to face off with the Fayetteville Bulldogs!
+
+### 2026-11-12 · Conway Public Schools (id 13791075)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+
+### 2026-11-12 · Canaan Groesbeck (id 13768281)
+
+Meet day today for our Wampus Cat Swim and Dive team! They are heading to Russellville. Good luck, Cats!
+
+### 2026-11-12 · Conway Athletics (id 13798950)
+
+🚨🏀 IT’S GAME DAY! 🏀🚨
+
+The wait is OVER! Your Lady Cats tip off the 2026-27 season TODAY! 🔥💙
+
+🐾 Lady Cats vs. Jacksonville
+📍 Buzz Bolding Arena
+📅 Thursday, November 12
+⏰ 7:00 PM
+
+🎟️ Tickets:
+https://gofan.co/event/6970039?schoolId=AR4663
+
+📺 Livestream:
+https://www.youtube.com/live/2a-3iLt3DTk?is=JN5P7sP8q3ApD-ai
+

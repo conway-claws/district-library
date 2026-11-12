@@ -1918,3 +1918,146 @@ We love seeing curiosity come to life as students discover that science is every
 
 Hello Everyone, This is a friendly reminder that we will have our monthly PTO meeting this Friday morning, November 6th from 7:30-8:00am in the counselor’s room 116 at MVE. It is completely free to join, and we would love to have you involved! Whether you can make in-person meetings or not, please join our GroupMe to stay informed and involved: https://groupme.com/join_group/116475754/E5aWMdvO Also, if you would like to help our teachers by making copies, sign up here to volunteer:  https://www.signupgenius.com/go/10C0E48AAAA2AA4FDCF8-65580111-help Hope to see you soon! Kindly,Leah Stauffer and MVE PTO
 
+### 2026-11-06 · Audrey Cooper (id 13743812)
+
+Attention parents of students who are in Vann Voices.
+
+Vann Voices  will be at Conway Arbor Day on Saturday, November 7, 2026. Please note the updated time!
+Please arrive at 10:45. Performance starts at 11:00. 
+
+Location: Laurel Park
+
+### 2026-11-06 · Audrey Cooper (id 13744124)
+
+🎨🌳🎶 It's a BIG Weekend for MVE! 💙🤍
+
+Our Vann Maker Club and Vann Voices will be representing Marguerite Vann Elementary at two exciting Conway community events this weekend, and we would LOVE your support!
+
+🎨 TONIGHT – Conway Art Walk!
+📅 Friday, November 6
+⏰ 5:00–8:00 PM
+📍 Chestnut Street
+
+Stop by and support our talented Vann Maker Club  students as they sell their creative 3D prints and slime! 🛍️✨
+
+🌳🎶 TOMORROW – Conway Arbor Day Celebration!
+📅 Saturday, November 7
+⏰ Event: 11:00 AM–1:00 PM
+📍 Laurel Park
+🎤 Vann Voices performs at 11:00 AM!
+
+Come cheer on our amazing Vann Voices students as they share their musical talents with our community!
+
+We are so proud of our students for sharing their creativity and talents beyond the classroom! 💙
+
+Come out, show your support, and help us celebrate our MVE students! 🐾
+
+#WeAreMVE #VannMakerClub #VannVoices #CreateConway #CommunityConnections
+
+### 2026-11-06 · Audrey Cooper (id 13746803)
+
+💙🐾 STACK UP FOR A CAUSE! 🐾💙
+
+At Marguerite Vann Elementary, we believe that small acts of kindness can make a BIG difference! ❤️
+
+We are excited to partner with CAPCA and the Wampus Cat Pantry to help support families and community members in need!
+
+📅 November 16–20
+
+🥫 We are collecting the following items:
+🌽 Canned Corn
+🫛 Canned Green Beans
+🥔 Boxes of Instant Mashed Potatoes
+🧀 Boxes of Mac & Cheese
+🍫 Boxes of Brownie Mix
+
+Every donation, big or small, helps us spread kindness and make a positive impact in our community!
+
+💙 Let's STACK UP those donations, MVE! Together, we can make a difference, one item at a time!
+
+#WeAreMVE #LevelUp
+
+### 2026-11-08 · Audrey Cooper (id 13756184)
+
+🌳🍂 Celebrating Arbor Day with Vann Voices!🎶💙
+
+Our talented Vann Voices students had a wonderful time participating in Conway's Arbor Day celebration at Laurel Park! 🌳
+
+What a great opportunity for our students to share their voices with the community while celebrating the beauty of nature and the importance of caring for our environment! 🍁🌎
+
+We are so proud of our students for representing Marguerite Vann Elementary!
+
+💙🤍 #VannVoices #ArborDay #WeAreMVE
+
+### 2026-11-08 · Audrey Cooper (id 13756418)
+
+📸💙 MVE PICTURE MAKEUP DAY!💙📸
+
+Mark your calendars! Picture Makeup Day is Wednesday, November 18th!
+
+📷Need a retake? Please remember:
+
+✅ Your original picture package must be returned on picture day.
+
+✅ Include a note explaining what you would like done differently.
+
+We want to make sure everyone has a picture-perfect smile! 😁
+
+📸 Strain Photography
+🌐 www.strainschoolpics.com
+
+### 2026-11-10 · Audrey Cooper (id 13780161)
+
+🦃📚 Gobbling Up Reading Comprehension! 🍁🧡
+
+Mrs. Brown’s and Mrs. Cardin’s classes had a turkey-rific  time combining reading and creativity! After listening to Thanksgiving-themed stories, students identified important story elements and used what they learned to create their very own Comprehension Turkeys! 🦃✂️
+
+What a fun and engaging way to strengthen reading comprehension while celebrating the Thanksgiving season!
+
+💙🤍 #ReadingIsFun #WeAreMVE
+
+### 2026-11-11 · Conway Public Schools (id 12662846)
+
+Today, Conway Public Schools honors and remembers all veterans who have served our country. We are profoundly grateful for your sacrifice, bravery, and dedication to our freedom. You are the ultimate champions of service! Thank you, Veterans. ❤️🤍💙
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-11 · Audrey Cooper (id 13797515)
+
+🎄🎁 The November 3D Print Shop is OPEN! 🎁🎄
+
+Looking for a fun and unique holiday gift? Our Marguerite Vann PTO  is sponsoring a 3D Print Shop this month, and we have some exciting items for students to choose from! 💙🤍
+
+🛍️ This Month's Items:
+- 🦌 Reindeer or Snowman Bookmark – $1
+- 🎄 Holiday Pencil Toppers – $2
+- 🎂 Tree Cake Clicker Keychain – $5
+- 🥟 Mystery Dumpling – $6
+- ⭐ Star Fidget (Random Color) – $7
+
+📝 How to Order:
+Complete the order form and return it to your child's teacher with payment.
+
+💵 Payment Options: Cash or Cash App ($mvespto86). Please include your student's name with all Cash App payments.
+
+📅 Order Deadline: Friday, November 20
+
+🎁 Delivery Date:  Friday, December 4
+
+📸 Check out the pictures to see all the fun items available!
+
+Thank you for supporting our **Vann PTO**! We can't wait to see which items our students choose! 💙
+
+#WeAreMVE
+
+### 2026-11-12 · Conway Public Schools (id 13791067)
+
+💙 Happy National School Psychology Week! 💙
+
+This week, we take time to recognize and celebrate our exceptional CPSD school psychologists and the essential support they provide to students, families, and staff every day.
+
+School psychologists play a crucial role in creating positive, supportive learning environments where every child can grow. From championing student mental health and resilience to partnering with teachers and families to overcome learning barriers, their expertise ensures that our students have the tools and support they need to succeed both in school and in life. 🌟
+
+Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
+#NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
+
