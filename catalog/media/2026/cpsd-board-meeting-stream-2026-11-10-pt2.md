@@ -11,9 +11,12 @@ drive_kind:
 rights: public-web
 text:
 retrieved:
-verified: 2026-11-11
+verified: 2026-11-16
 status: current
 tags: [school-board, meeting-stream, transcript-pending]
+last_check: 2026-11-16
+fail_since:
+fail_reason:
 ---
 Live stream on the district's YouTube channel, discovered by stream-watch.
 Transcript pending: bin/seed_youtube.py (host-side) fills it.
