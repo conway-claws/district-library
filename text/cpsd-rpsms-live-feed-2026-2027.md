@@ -1126,3 +1126,52 @@ School psychologists play a crucial role in creating positive, supportive learni
 Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
 #NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
 
+### 2026-11-13 · Angel Moix (id 13820948)
+
+Congratulations to Mrs. Boyd! Our Sonic Teacher of the Month!
+
+She goes above and beyond to help her students succeed not only in her math class but in all their classes!
+
+Please help us congratulate Mrs. Boyd! #SimonStrong #WeAreSimon #RaisingTheStandard
+
+### 2026-11-14 · Angel Moix (id 13820262)
+
+🎉 Celebrating Our Simon Staff of the Month! 🎉Join us in giving a huge round of applause to two incredible members of the Simon family who go above and beyond every single day!🍎 Teacher of the Month: Ms. Cochran Ms. Cochran is always on the move, making a difference in our students' lives every step of the way! Whether she is crafting engaging, thought-provoking science lessons or supporting students’ social-emotional needs, she is intentional about reaching every single child. Her dedication goes far beyond the classroom, and we are so fortunate to have her exemplifying the Simon Standard!🌟 Employee of the Month: Ms. Clemmons Ms. Clemmons is always looking out for the safety and security of our students. She has a special gift for meeting students right where they are and giving them exactly what they need in the moment. By collaborating closely with staff and always offering a warm smile and a kind word, she helps ensure our students succeed and thrive!Thank you, Ms. Cochran and Ms. Clemmons, for everything you do to make Simon shine! Drop a 👏 or ❤️ in the comments to help us celebrate them!#WeAreSimon #SimonStrong #RaisingTheStandard
+
+### 2026-11-16 · Karon Branch (id 13841877)
+
+Dear Simon families,A quick friendly reminder! Our England & France informational meeting is tomorrow evening, and I don’t want your family to miss out. This trip could be a turning point in your child’s life—building confidence, curiosity, and global awareness.RSVP to the meeting for the chance to win a scholarship! You must be RSVP'd 'YES' and be present at the meeting to win! 👉 Find meeting info and RSVP here: https://rsvp.eftours.com/yy53jugReminder:- $250 discount available for early enrollees.- Enrollment opens at the meeting—first come, first served.- Learn more about our travel partner, EF Educational Tours, at www.eftours.com.I can’t wait to share how this journey can shape your child’s future. See you there!Best,Janie WalburnPlease note this is a non-school sponsored trip.
+
+### 2026-11-17 · Conway Public Schools (id 13849243)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Angel Moix (id 13855540)
+
+🎄✨ Holiday Magic is Coming to Simon Middle School! ✨🎄
+
+We are thrilled to announce that our students have the opportunity to attend the Nutcracker Spectacular Student Matinee at the Robinson Center in Little Rock! 🩰❄️
+
+Event Details:
+📅 Date: Friday, December 11, 2026
+📍 Location: Robinson Center (Little Rock, AR)
+🎟️ Cost: $8 per student
+
+How to Qualify:
+We want every student to enjoy this special pre-break treat! To be eligible to attend, students must demonstrate positive behavior from November 12 – December 10:
+✅ Zero In-School Suspensions (ISS)
+✅ Zero Out-of-School Suspensions (OSS)
+✅ Fewer than 3 minor behavior incidents
+
+Let’s kick off the holiday season with a trip to the theater! 🌟👏
+Permission slips will come home after Thanksgiving break!
+

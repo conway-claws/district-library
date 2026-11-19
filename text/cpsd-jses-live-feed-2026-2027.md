@@ -1215,3 +1215,86 @@ School psychologists play a crucial role in creating positive, supportive learni
 Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
 #NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
 
+### 2026-11-15 · Barbara Clardy (id 13829407)
+
+Big cheers for our October and November Staff Members of the Month! 🎉👏
+
+Shoutout to our amazing paraprofessionals—Mr. B and Mrs. Z—for bringing endless patience, heart, and support to our students and teachers every day. JSE wouldn't run without you! 💙✏️
+
+### 2026-11-15 · Barbara Clardy (id 13831372)
+
+JSE Families,Please check your student’s folder or backpack for the second permission slip Mr. Sorrells sent home last Thursday. It is needed for your student to ride the bus to the high school for musical practice. Please return it as soon as possible.Practice dates are November 30 for grades 3–4 and December 1 for grades 1–2. Mr. Sorrells wants to ensure everyone can participate. If you have already returned the slip, please disregard this reminder.Thank you!
+
+### 2026-11-16 · Barbara Clardy (id 13836435)
+
+JSE Families,
+
+Our Literati Campfire Magic Book Fair is open! Come explore new books and games, celebrate nature and campfire stories, and support our school! Every purchase benefits Jim Stone Elementary. Parents may come and shop any time during our open hours.
+
+This year’s fair is changeless, which means we will round up to the nearest dollar at checkout. Money earned will be used to purchase books for the library. Please pay with a Literati gift card, which is strongly encouraged, or bring the exact amount. Students who redeem a gift card in person receive a free mini-poster. When you purchase a gift card, I will see it on my end, so there is no need to print it.
+
+The fair is open Monday, Wednesday, and Thursday from 8:00 a.m. to 4:00 p.m.; Tuesday from 8:00 a.m. to 5:00 p.m.; and Friday until 10:00 a.m. On Tuesday, join us for our VIP Family Event! We will be open until the event is over.
+
+The online fair is open now at [LITERATI.COM/STORE], with a larger selection of books and games. You can also purchase digital gift cards and support teachers by fulfilling their wish lists with a personalized message.
+
+We look forward to seeing you at the fair!
+
+Thank you so much for all you do to support our library!
+Kristy Bentley
+Jim Stone Elementary
+
+https://literati.com/a/store?school=jim-stone-elementary-school-conway-ar
+
+#WeAreJSE
+
+### 2026-11-16 · Barbara Clardy (id 13829477)
+
+Don't forget to join us tomorrow after school for VIP NIGHT from  3:30 PM - 5:00 PM.
+
+Shop
+Play
+Enjoy art
+
+We can't wait to host our VIP Guests!
+
+#WeAreJSE
+
+### 2026-11-17 · Barbara Clardy (id 13829483)
+
+Tonight is the night for our VIP Guests!
+
+We'll see you at 3:30 PM!
+
+#WeAreJSE
+
+### 2026-11-17 · Conway Public Schools (id 13849239)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Barbara Clardy (id 13850800)
+
+Important afternoon dismissal information for VIP Night!
+
+We’ll follow normal dismissal procedures this afternoon. You may re-enter with your students at 3:30 PM for VIP Night. Choir students will report to after-school choir as normal. If parents need to change their child's transportation for this afternoon, please email their child's teacher.
+
+### 2026-11-18 · Barbara Clardy (id 13860515)
+
+Another round of THAB and look at those smiles!
+
+#WeAreJSE
+
+### 2026-11-18 · Barbara Clardy (id 13860622)
+
+A MESSAGE FROM PTO:
+
+Hi Jim Stone families! Our Christmas musicals are coming up on December 1st! Enter to win 5 front-row seats while sup
+

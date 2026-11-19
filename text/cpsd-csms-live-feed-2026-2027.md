@@ -1527,3 +1527,87 @@ Please join us in thanking our school psychologists for their tireless dedicatio
 
 Attention: Bus 63 is experiencing issues and is running behind this morning.
 
+### 2026-11-12 · Carl Stuart Middle School (id 13807755)
+
+🌮🎻 Mark your calendars! The Conway Orchestra students are hosting their annual Taco Supper & Concerts on Thursday, November 19!
+
+Enjoy a delicious dinner and an evening filled with music as our talented orchestra students take the stage!
+
+🌮 Taco Supper: 5:00–8:00 PM
+Dinner tickets available for purchase at the door in the CHS Cafeteria.
+
+🎶 Concert Schedule:
+• 5:30 PM – Intermediate Orchestra
+• 6:15 PM – Conway HS Concert & Chamber Orchestras
+• 7:30 PM – Beginner Orchestra
+• 8:15 PM – Conway JH 8th & 9th Graders
+
+All performances are FREE and open to the public and will be held in the James H. Clark Auditorium on the CHS campus.
+
+Come enjoy some tacos, support our student musicians, and hear some wonderful music! 💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-11-13 · Abby Smith (id 13824698)
+
+Makeup Picture Day is Wednesday, November 18! 📸
+
+Students who missed our original Picture Day or need a retake will have another chance to have their picture taken.
+
+### 2026-11-15 · Carl Stuart Middle School (id 13829784)
+
+November 16-20 Newsletter: https://conwaypublicschools.edurooms.com/newsletters/carl-stuart-middle-school/newsletters/2026-2027-newsletter-november-16-20
+
+### 2026-11-15 · Carl Stuart Middle School (id 13829650)
+
+🏀 TWO CHANCES TO CATCH THE CATS ON THE COURT THIS WEEK! 💙
+
+Come out and cheer on our Carl Stuart basketball teams!
+
+📅 Monday, November 16
+🕟 4:30 PM
+📍 @ Greenbrier
+
+📅 Thursday, November 19
+🕟 4:30 PM
+📍 @ Carl Stuart vs. Courtway
+
+Let's pack the stands and cheer our teams on to victory! Go Cats! 🐾💙
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-11-16 · Carl Stuart Middle School (id 13829657)
+
+👑 We had a special guest visit our G3 groups on November 9! Current Miss Arkansas, Ava Weeks, stopped by to share words of wisdom with our students about respect, handling negative comments, and her journey to becoming Miss Arkansas!
+
+We are so proud to call Ava a Carl Stuart alum and are so grateful she took the time to come back and pour into our students. Once a Cat, always a Cat! 💙🐾
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+
+### 2026-11-17 · Conway Public Schools (id 13849244)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Carl Stuart Middle School (id 13857261)
+
+Make up Picture Day is Wednesday, November 18. Students who missed our original Picture Day or need a retake will have another chance to have their picture taken.
+
+If your student needs a retake, please make sure they bring their original picture package back with them, along with a note explaining what you would like done differently. 
+
+Original picture packages came home with students on Friday, November 13 OR Monday, November 16.
+
+### 2026-11-17 · Carl Stuart Middle School (id 13857285)
+
+🎨✨ CSMS FBLA is spreading some holiday cheer! We’re packing craft kits for Arkansas Children’s Hospital and need YOUR help. Consider donating: word search books, friendship bracelet thread, colored beads, Q-tips, 4-pack crayons, or mini tempera paints. Drop off your donations at the front office by December 14! Let’s get creative and make a difference together! 💛🖌️
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+

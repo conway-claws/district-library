@@ -894,3 +894,40 @@ School psychologists play a crucial role in creating positive, supportive learni
 Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
 #NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
 
+### 2026-11-13 · Theodore Jones Elementary (id 13793979)
+
+🐾 "PAWS"ITIVE FAMILY CONNECTION! 🐾
+
+Each Friday, we share a skill being taught at school, and we invite our families to join in on the fun by using our discussion starters and family challenges at home!
+
+This Week’s Family Challenge: The Gratitude Jar! 💙
+
+Find a special place in your home to display a glass jar. Cut up small slips of paper and place them next to the jar. Use the jar to collect special people, places, events, and memories that your family is thankful for.
+
+Having a gloomy day or going through a challenging time as a family? Pull out those slips of gratitude and read them aloud together as a reminder of all your grateful moments!
+
+Don't forget to share pictures of what your family is grateful for in the comments below! We would love to see what makes your family smile and share in your joy! Our TJ family is grateful for YOU! 💙🐾
+
+### 2026-11-17 · Conway Public Schools (id 13849234)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-19 · Theodore Jones Elementary (id 13873402)
+
+🏡 Responsibility starts at home! 💙
+
+Teaching children responsibility doesn't have to start with big expectations. It starts with the little things we do every day! From helping with chores and caring for pets to lending a helping hand with younger siblings, these everyday moments help children build confidence, accountability, and consideration for others.
+
+We love hearing from parents about the ways they encourage responsibility at home. Every small task is an opportunity to learn, grow, and understand the importance of doing their part.
+
+Little responsibilities today help build responsible adults tomorrow! 💙
+

@@ -805,3 +805,28 @@ School psychologists play a crucial role in creating positive, supportive learni
 Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
 #NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
 
+### 2026-11-17 · Conway Public Schools (id 13849241)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Courtway Middle School (id 13856537)
+
+Proof you can read anywhere! 📚 Students in Mrs. Horton's ELA Open Box class found cozy spots to settle in with the novel Crash by Jerry Spinelli. There's nothing quite like getting comfortable with a good book!
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+
+### 2026-11-18 · Courtway Middle School (id 13856664)
+
+A little mystery makes learning fun! 🔍 Students in Ms. Camargo's and Mrs. Wicker's classes explored mystery boxes, using their senses to practice writing descriptive sentences that bring imagery to life. What a fun, hands-on way to build their writing skills!
+
+#WeAreCourtway #TeamConway #WeAreWampusCats
+

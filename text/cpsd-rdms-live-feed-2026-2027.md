@@ -1454,3 +1454,131 @@ School psychologists play a crucial role in creating positive, supportive learni
 Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
 #NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
 
+### 2026-11-12 · Erika Easley (id 13809550)
+
+🦃🥞 Breakfast for Lunch, Thanksgiving Style! 🥓🍁
+
+Our RDMS family gathered for a delicious Thanksgiving potluck with a breakfast twist! There’s nothing better than good food, and a little time to connect with the people who make Ruth Doyle so special. ❤️
+
+A HUGE thank you to everyone who brought food and helped make today so wonderful! We are thankful for YOU!
+
+### 2026-11-12 · Rachel Fowler (id 13812285)
+
+In Mrs. Willcutt’s class today, our very own SRO visited our classroom to share about his job, demonstrate the tools and equipment he uses, and teach us important ways to stay safe in our school and community. 
+
+We appreciate him taking the time to visit and help us learn. Thank you Officer Flowers.
+
+### 2026-11-13 · Conway Athletics (id 13824880)
+
+Ruth Doyle Girls Basketball  hustlers of the week are Amiya Jones and Harper Casteel.
+
+### 2026-11-15 · Rachel Fowler (id 13830449)
+
+Full STEAM ahead! Our 6th-grade GT students enjoyed an inspiring field trip to the UCA Planetarium and the Windgate Museum of Art at Hendrix. Their adventure began with a guided nature walk, followed by an exploration of the stars and planets, and wrapped up with a hands-on look at Pablo Picasso and printmaking. It was a fantastic day of discovery for everyone!
+
+### 2026-11-15 · Rachel Fowler (id 13830509)
+
+Our fifth-grade GT students had an amazing adventure at the Little Rock Zoo! 🦁🐒 They spent the day exploring different exhibits and studying animals and their unique habitats up close. To wrap up a day of hands-on learning, everyone enjoyed a spin on the historic carousel! 🎠✨ #GiftedAndTalented #FieldTripFun #LittleRockZoo #HandsOnLearning #FifthGrade
+
+### 2026-11-15 · Rachel Fowler (id 13830629)
+
+🎄Make this holiday season extra special with a Merry Wampus family ornament!
+
+💲Choose the 2026 featured RDMS ornament for $10 or a custom kitten ornament for $20. A $30 rush fee guarantees the custom ornament arrives before Christmas.
+
+✨All proceeds support RDMS students’ STEAM experience. Order by December 7 at Jingle and Mingle. Send payment to the front office or Mr. Martinazzi. Scan the QR code on the flyer to order!
+
+### 2026-11-16 · Rachel Fowler (id 13836242)
+
+Mrs. Daniel’s science class has officially gone green, growing their own seedlings right in the classroom. Way to grow, future scientists! 🌿
+
+### 2026-11-16 · Rachel Fowler (id 13838693)
+
+7th grade students, Elliot Smith and Max Melton, demonstrate the snare drum and xylophone for 5th grade general music students as they explore the percussion family.
+
+### 2026-11-16 · Rachel Fowler (id 13841801)
+
+🚨Reminder: Tomorrow is the last day to drop off donations for our CATS in Community Food Drive!🥫
+
+💙🐾 LET’S MAKE A DIFFERENCE 🐾💙
+
+Together, we can support Conway Public Schools families by providing food and resources to those in need this Thanksgiving season.
+
+📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools
+
+🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast bars
+
+Please ensure all food items are sealed and within their expiration dates!
+
+### 2026-11-16 · Rachel Fowler (id 13842466)
+
+🎄✨ Save the date: RDMS’s 2nd Annual Jingle & Mingle! 
+
+Join us December 7, from 5–7 p.m. in the RDMS cafeteria and gym for photos, food, crafts, student performances, and a holiday raffle. 
+
+🎟️Raffle tickets start at $1. Cash only, please. 
+
+We hope to see you there! 🎁
+
+#WeAreRDMS #TeamConway
+
+### 2026-11-17 · Conway Public Schools Athletics (id 13843625)
+
+🏀 GAMEDAY ALERT: Ruth Doyle Basketball! 
+
+Come out and support our teams on the road as we take on Bryant Middle! 
+Let’s bring the energy and cheer on our players!
+
+*Upper Case Letter = A Game
+*Lower Case Letter = B Game
+
+### 2026-11-17 · Conway Public Schools (id 13849242)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Rachel Fowler (id 13842153)
+
+🚨Reminder: Tomorrow is the last day to order!
+
+🐾🎄Show your Conway Wampus Cat spirit with a Christmas shirt. Order by Wednesday, November 18, and pick it up at Jingle Mingle on December 7. 
+
+Shop now: https://rdmsholidays26.itemorder.com/shop/sale/
+
+### 2026-11-18 · Rachel Fowler (id 13865949)
+
+Reminder: Beta Club State Convention
+Any student attending the Beta Club State Convention in January must submit the following items by the final deadline of November 30, 2026 (though we encourage turning them in before Thanksgiving break):
+Signed permission slip
+Signed behavior agreement
+A $130 check made out to Ruth Doyle (please include your child's name and "Beta Convention" in the memo line)
+
+### 2026-11-19 · Conway Public Schools Athletics (id 13854258)
+
+🏀GAME DAY!🏀
+
+Ruth Doyle Basketball is on the road as they take on the Benton Panthers . 
+
+📍 Location:
+ 211 N Border St
+ Benton, AR 72015
+
+⏰ First Tip-off: 4:00 PM (CST)
+

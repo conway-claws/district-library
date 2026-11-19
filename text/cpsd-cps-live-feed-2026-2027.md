@@ -877,3 +877,106 @@ Please join us in thanking our school psychologists for their tireless dedicatio
 
 Meet our November District Student of the Month! We are excited to celebrate Graysen Washington, a preschool student at Sallie Cone Preschool!  Even at such a young age, Graysen is already making a special impact and showing us what it means to be a proud Wampus Cat!Graysen was recognized at this week’s November School Board meeting, and we are so proud to shine a spotlight on this special member of #TeamConway! Being a Champion starts at every age, and we love celebrating the bright futures, big smiles, and little moments that make our students so special.Graysen is pictured with Superintedent Jason Black, Sallie Cone Preschool Principal Dr. Marci Martin, Mrs. Mar & Ms. Walker! Take a moment to watch the video and get to know Graysen! Help us celebrate this wonderful Wampus Cat!  https://youtu.be/rYdpXOgKwEk?si=8xt3HInme_fjeDIj
 
+### 2026-11-13 · Conway Public Schools (id 13377905)
+
+💙 INSIDE THE PLAYBOOK: Did You Know? 
+Did you know our Special Education Department hosted a series of Community Collaborative Professional Development sessions this summer to strengthen support for our students and families?
+
+A big thank you to our outstanding community partners for sharing their expertise with our educators:
+🔹 Pediatrics Plus
+🔹 Arkansas Transition Services
+🔹 Community Connections
+🔹 Arisa Health
+
+When our schools and community partners join forces, we build a stronger network of care and success for every child on Team Conway! 🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-13 · Conway Public Schools (id 13815753)
+
+Even while waiting for students to load the bus, Bus Driver Ms. Lynn is finding ways to make every moment count! She was spotted practicing spelling bee words with students, turning an ordinary morning into another opportunity for learning.It's the little moments, the extra effort, and the dedication of our entire team that make a BIG difference!Thank you, Ms. Lynn, for going above and beyond and for helping our Wampus Cats grow, learn, and succeed! 💙#WeAreCPSD #TeamConway #ChampionsforKids #WeAreWampusCats #BrickbyBrick
+
+### 2026-11-13 · Conway Public Schools (id 13816565)
+
+"La Fiesta Orquesta” Thursday, November 19, 5-9 pmFeaturing the nearly 300 students of the orchestra program in free concerts throughout the night in the James H. Clark Auditorium! Taco Supper fundraiserConway High School Cafeteria, 5-8 pmWe are once again partnering with Make-a-Meal to cater our event!$15 Adult taco salad plate$10 Child soft taco plateTickets to the dinner can still be purchased at the door. Donations can also be made online at conwayorch.square.site. We hope you’ll support these amazing students by donating, purchasing tickets, and especially coming to hear us play!! Concert Times:5:30 pm Intermediate Orchestra (city-wide)6:15 pm Conway High School Orchestra7:30 pm Beginner Orchestra (city-wide)8:15 pm Conway Junior High 8th and 9th Grade Orchestras
+
+### 2026-11-16 · Conway Public Schools (id 13834160)
+
+We are still celebrating! Carolyn Lewis Elementary was recognized at the November School Board meeting for housing the BEST OVERALL SCHOOL GARDEN in Arkansas! They Recently had the honor of hosting the Arkansas School Garden Awards celebration, recognizing schools across our state for their outstanding garden and agricultural education programs. We were honored to welcome Arkansas Secretary of Agriculture Wes Ward, Representative Mary Bentley, and other special guests. We also want to recognize Leslee Tell, Farm to School Coordinator with the Arkansas Department of Agriculture's Food and Nutrition Division, who played an important role in helping coordinate the event and awards. Leslee joined us at the board meeting, and we appreciate her partnership and support!During the celebration, Secretary Ward read a proclamation from Governor Sarah Huckabee Sanders declaring October as Farm to School Month in Arkansas.A special congratulations to Carolyn Lewis Elementary for receiving the overall state award! We also want to recognize Mr. Richard Klerk, master gardener, who received the Heart of the Garden Award for his dedication and contributions.The celebration showcased the incredible work happening through their school garden, including garden-to-table tastings prepared by the school garden team.We are grateful to Principal Mrs. Sturdivant, Assistant Principal Mr. Smith, former principal Tina Antley, Ms. Sarah Tyler, our Master Gardeners, teachers, staff, families, and students who have helped make this program such a success.Congratulations to everyone at Carolyn Lewis Elementary for growing opportunities for our students beyond the classroom! Pictured:
+Superintendent Jason Black, Master Gardener Richard Klerk, CLE Principal Yvonne Sturdivant, CLE Asst. Principal Josh Smith, ADA Leslee Tell
+
+### 2026-11-16 · Conway Public Schools (id 13834274)
+
+Ellen Smith Elementary and teacher Mr. Ryan Raup was recognized at our November School Board meeting for an exciting opportunity to further support agricultural education on campus. Through the Arkansas Department of Agriculture's Child Nutrition Nature's Classroom Professional Development Program, Mr. Raup successfully completed the program and earned a $1,000 stipend. This funding can be used to enhance the school's garden program and provide additional agricultural education projects and hands-on learning experiences for students. We appreciate Mr. Raup's commitment to professional growth and his efforts to create meaningful learning opportunities for our Little Wampus Cats!
+
+### 2026-11-17 · Conway Public Schools (id 13849230)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Conway Public Schools (id 13851424)
+
+As a Wampus Cat  tradition, we take time to recognize and celebrate the service of our outgoing School Board members. At our November School Board meeting, we had the honor of recognizing Mrs. Linda Hargis for her leadership, commitment, and dedication to Conway Public Schools.Mrs. Hargis has served on the Conway School Board since 2022, including two and a half years as Board Secretary. We are grateful for the time, care, and thoughtful leadership she has given to our students, staff, families, and community.During her remarks, Mrs. Hargis expressed her gratitude to her family, the Conway community, and district staff for their support throughout her service.Thank you, Mrs. Hargis, for your years of service and for being part of Team Conway. Your contributions to our district are appreciated, and we wish you all the best!
+
+### 2026-11-17 · Conway Public Schools (id 13856545)
+
+Four schools. Four Unified teams. ONE Conway family! 🎳💙
+
+What a special day at Professor Bowl! Ellen Smith Elementary, Simon Middle School, Ruth Doyle Middle School, and Conway High School showed up and showed out at today's Unified Bowling competition! So proud of our athletes and partners for showcasing teamwork, sportsmanship, and the true meaning of inclusion. 🧩💚
+
+### 2026-11-18 · Conway Public Schools (id 13866159)
+
+🏆 Celebrating excellence in mathematics education! 💙Congratulations to John Allison, CPSD Mathematics Specialist, and Shiloh Harder, CPSD Math Instructional Coach, who were recognized with awards this week at the Arkansas Council of Teachers of Mathematics!We are proud to see their dedication, expertise, and passion for mathematics education recognized across our state. Their work makes a difference in supporting our teachers and helping students grow as mathematicians.Help us congratulate Mr. Allison and Mr. Harder on this well-deserved recognition! We are proud to have you on Team Conway!#WeAreCPSD #WeAreConway #TeamConway #ChampionsforKids
+
+### 2026-11-18 · Tim McMahan (id 13866931)
+
+Your time sheet will be at your school tomorrow. Please sign by end of day Friday.
+If you get a paper check we will let you know when you can pick up your bonus.
+Thanks
+T-Mac
+
+### 2026-11-18 · Conway Public Schools (id 13792258)
+
+Thanksgiving Break is right around the corner! Conway Public Schools will be closed next week, November 23rd through November 27th, so our students and staff can enjoy time with family and friends.
+
+We are incredibly thankful for our students, staff, and community. There’s no team quite like Team Conway! Have a safe and happy Thanksgiving break, Wampus Cats! 🥧🍁🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-18 · Conway Public Schools (id 13792272)
+
+Thanksgiving Break is right around the corner! Conway Public Schools will be closed next week, November 23rd through November 27th, so our students and staff can enjoy time with family and friends.
+
+We are incredibly thankful for our students, staff, and community. There’s no team quite like Team Conway! Have a safe and happy Thanksgiving break, Wampus Cats! 🥧🍁🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-19 · Conway Public Schools (id 13377915)
+
+🎉 INSIDE THE PLAYBOOK: Did You Know? 🌭
+Did you know that over 1,200 attendees joined us for the Wampus Cat Welcome Back Bash to kick off the school year?
+
+Together, we served over 800 hot dogs, gave away a free iPad, played games, and reconnected with families from across the district. Thank you to everyone who came out to celebrate. One District. One Community. One Team Conway! 💙🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-19 · Tim McMahan (id 13874194)
+
+Good morning,
+If you receive a paper, check your bonus will be available at the maintenance office starting at 9:30 this morning. Thanks.
+T-Mac
+
+### 2026-11-19 · Conway Public Schools (id 13879865)
+
+SHOW YOUR WAMPUS CAT PRIDE!Our 2026 Conference Champs T-shirts are here! Help us celebrate the Wampus Cats and support the Six Legs Nation!👕 Adult T-shirts:
+• Small–XL: $20
+• 2XL–3XL: $25These shirts are available in limited quantities, so get yours while supplies last!📍 Available for purchase at the Community Pep Rally TODAY at 5 PM at the Fieldhouse and Friday night at the game.Proceeds benefit the Conway Booster Club!GO CATS! 💙#WeAreCPSD #WeAreConway #TeamConway #WampusCatNation #ChampionsforKids
+

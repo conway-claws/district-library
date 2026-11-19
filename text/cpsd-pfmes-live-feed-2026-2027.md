@@ -482,3 +482,42 @@ School psychologists play a crucial role in creating positive, supportive learni
 Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
 #NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
 
+### 2026-11-17 · Conway Public Schools (id 13849236)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-18 · Melissa Spence (id 13866206)
+
+Dear Mattison Families,We are excited to announce our PFME School Spirit Ornament Fundraiser! 🎄🐾This year, we are offering two festive ornament designs featuring our Little Cats and Wampus Cats! These ornaments are a wonderful way to show your school spirit, decorate your Christmas tree, or give a special gift to family and friends!🎁 Ornament Details:- Price: $10 each- Design A: Little Cats 2026- Design B:  Wampus Cats 2026- Size: Approximately 3.5 inches- Each ornament includes a hook and a red bow and comes individually wrapped in a cellophane bag, making it ready for gifting!📅 Important Dates:- Order Deadline:  Wednesday, November 25, 2026- Orders Ready for Pickup: Monday, December 7, 2026🛍️ How to Order:Orders can be placed online using the link below or by scanning the QR code on the attached flyer.Order Here:  https://pfme-fundraiser.cacherivercreative.com/shop/📦 Delivery and Pickup Information:If your child attends PFME, please include your student's name, grade, and teacher when placing your order. This will allow us to send the ornaments home with your child.All other orders will be available for pickup in the PFME office on Monday, December 7.Thank you for supporting Preston and Florence Mattison Elementary! We appreciate your continued support of our Little Cat family and our school fundraising efforts.Go Little Cats! 💙🐾
+
+### 2026-11-19 · Melissa Spence (id 13872414)
+
+Good morning, Mattison families! Due to limited space and parking, today’s parade and Thanksgiving lunch are for students only. We’ll share photos and a video on our school Facebook page on Thanksgiving Day. Have a wonderful break! 💙🐾
+
+### 2026-11-19 · Melissa Spence (id 13808199)
+
+📸 **SMILE, LITTLE CATS!** 💙🐾
+
+**Picture Makeup Day is TOMORROW, Friday, November 20!**
+
+Strain Photography will be at Mattison for students who missed our original picture day or need a retake!
+
+📷 **Need a retake?** Please send your child's original picture package back to school along with a note explaining what you would like done differently.
+
+For more information, visit www.strainschoolpics.com.
+
+Let's see those Little Cat smiles! 💙🐾
+
+### 2026-11-19 · Melissa Spence (id 13808180)
+
+Good afternoon, Mattison Families!📸 Picture Makeup Day is tomorrow!If your child was absent on our original picture day or needs a retake, Strain Photography will be at Mattison tomorrow!If your child needs a retake:Please return your child's original picture package.Include a note explaining what you would like done differently.For additional information, please visit www.strainschoolpics.com.If you have questions, you may contact Strain Photography at info@strainphotography.info.We can't wait to see those Little Cat smiles! 💙📸
+

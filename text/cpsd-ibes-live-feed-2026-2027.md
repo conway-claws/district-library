@@ -1125,3 +1125,37 @@ School psychologists play a crucial role in creating positive, supportive learni
 Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
 #NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
 
+### 2026-11-13 · Ida Burns Elementary (id 13817133)
+
+Papa John's Pizza Day is Nov 17th. Ida Burns PTO receives 20% of all sales. The guest will receive 30% off their order.
+***CODE DOUGH MUST BE USED DURING ONLINE ORDERING, OVER THE PHONE, OR IN PERSON TO RECEIVE CREDIT FOR SALES***
+
+### 2026-11-15 · Ida Burns Elementary (id 13829385)
+
+Here is our parent newsletter for the week of November 16.
+
+https://app.smore.com/n/3edsy
+
+### 2026-11-16 · Ida Burns Elementary (id 13817199)
+
+Papa John's Pizza Day is TOMORROW!!!!!!  Ida Burns PTO receives 20% of all sales. The guest will receive 30% off their order.
+***CODE DOUGH MUST BE USED DURING ONLINE ORDERING, OVER THE PHONE, OR IN PERSON TO RECEIVE CREDIT FOR SALES***
+
+### 2026-11-17 · Conway Public Schools (id 13849232)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Ida Burns Elementary (id 13817250)
+
+Papa John's Pizza Day is TODAY!!!!  Ida Burns PTO receives 20% of all sales. The guest will receive 30% off their order.
+***CODE DOUGH MUST BE USED DURING ONLINE ORDERING, OVER THE PHONE, OR IN PERSON TO RECEIVE CREDIT FOR SALES***
+

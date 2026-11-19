@@ -2061,3 +2061,103 @@ School psychologists play a crucial role in creating positive, supportive learni
 Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
 #NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
 
+### 2026-11-12 · Audrey Cooper (id 13811443)
+
+🍁Sunshine Fall Fun Adventures!!🐾🍂
+
+Today, Mrs. Payne’s and Ms. Decesaro's classes enjoyed a wonderful fall celebration filled with fun, laughter, and hands-on learning at Ellen Smith Elementary! 🍁
+
+Students participated in a variety of exciting activities, including a Story Walk, pumpkin bowling, and so much more! 🎃📚
+
+A HUGE shoutout to The Short Legged Petting Zoo  for giving our students the opportunity to meet and interact with different animals! 🐐🐰❤️
+
+We also want to extend a special  THANK YOU to Schaefer Pumpkin Patch  for generously donating a pumpkin for every student! 🎃🧡
+
+We are so thankful for our amazing community partners who help create memorable experiences for our students!
+
+🍂  #FallFun #CommunityPartners #MakingMemories#WeAreMVE
+
+### 2026-11-15 · Audrey Cooper (id 13829919)
+
+💙🐾 THIS WEEK AT VANN!🐾💙
+
+We have a busy week ahead at Marguerite Vann Elementary! Here are a couple of important reminders for our Wampus Cat families!
+
+📸 Tuesday, November 18 – Picture Makeup Day!
+Need a retake? Be sure to return your original picture package on picture day with a note explaining what you would like done differently.
+
+🥫 November 16–20 – Stack Up for a Cause!
+We are partnering with CAPCA and Wampus Cat Pantry to help families in our community! We are collecting:
+- Canned Corn
+- Canned Green Beans
+- Instant Mashed Potatoes
+- Mac & Cheese
+- Brownie Mixes
+
+💙 Every donation makes a difference! Let's show what it means to be a caring Wampus Cat community!
+
+🐾 Thank you for your continued support of MVE!
+
+#VannPride #StackUpForACause#WeAreMVE
+
+### 2026-11-17 · Conway Public Schools (id 13849240)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-19 · Audrey Cooper (id 13872471)
+
+🥧🍎🎃 A Little Math, Science, and Sensory Fun!🎃🍎🥧
+
+Learning has never been so sweet! Mrs. Payne's class combined math, science, and sensory exploration as they made apple pies and pumpkin pies! 🥧
+
+Through hands-on learning, students explored, compared, and used their senses to decide which pie tasted the best! What a fun and delicious way to bring learning to life! 🍁❤️
+
+💙🤍 #VannPride #HandsOnLearning #LearningIsFun #FallFun
+
+### 2026-11-19 · Audrey Cooper (id 13874323)
+
+🌟💙 Growing Leaders at Vann Elementary!
+
+Our 4th Grade Mentoring Clubs met this week for some meaningful conversations about leadership, character, and personal growth!
+
+⚾ Jordan Wicks, Chicago Cubs pitcher,  spoke with students about the importance of self-discipline and responsibility, encouraging them to make good choices and take ownership of their actions.
+
+🌱 Karen Walker led a discussion on growth mindset and learning from our mistakes, reminding students that challenges and setbacks are opportunities to learn, improve, and grow!
+
+We are so thankful for these special guests who took the time to invest in our students! 💙
+
+At Vann, we are growing more than great students—we are growing tomorrow's leaders!🌟
+
+#WeAreMVE#GrowingLeaders #MentoringMatters #GrowthMindset
+
+### 2026-11-19 · Audrey Cooper (id 13874398)
+
+🎄🎁 The MVE PTO Holiday Shop is Coming Soon!🎁🎄
+
+Get ready for some holiday shopping fun! Our Marguerite Vann Elementary PTO Holiday Shop will be open December 7–10, 2026!❤️💚
+
+🐧 Students will have the opportunity to shop independently for special gifts for their family members! Students may bring cash or check to make their purchases.
+
+🎅 The best part? This is a fundraiser sponsored by our amazing MVE PTO, and all proceeds go right back to supporting our school! 💙
+
+🙋‍♀️ We Need Volunteers!
+Interested in helping make this event special for our students? Please contact Sarah Moore!
+
+📧 moores@conwayschools.info
+📞 501-450-4870
+
+📬 More information will be sent home after Thanksgiving break!
+
+🦃🍂 Until then, we hope all of our Vann families enjoy a wonderful Thanksgiving break filled with love, laughter, and time together!
+
+💙🤍 #WeAreMVE
+

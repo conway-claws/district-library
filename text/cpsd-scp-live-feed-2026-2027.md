@@ -626,3 +626,79 @@ Please join us in thanking our school psychologists for their tireless dedicatio
 
 Meet our November District Student of the Month! We are excited to celebrate Graysen Washington, a preschool student at Sallie Cone Preschool!  Even at such a young age, Graysen is already making a special impact and showing us what it means to be a proud Wampus Cat!Graysen was recognized at this week’s November School Board meeting, and we are so proud to shine a spotlight on this special member of #TeamConway! Being a Champion starts at every age, and we love celebrating the bright futures, big smiles, and little moments that make our students so special.Graysen is pictured with Superintedent Jason Black, Sallie Cone Preschool Principal Dr. Marci Martin, Mrs. Mar & Ms. Walker! Take a moment to watch the video and get to know Graysen! Help us celebrate this wonderful Wampus Cat!  https://youtu.be/rYdpXOgKwEk?si=8xt3HInme_fjeDIj
 
+### 2026-11-13 · Sallie Cone Preschool (id 13765459)
+
+🚲🎶 “I want to ride my bicycle, I want to ride my bike!” is what you’ll hear as our little ones cruise around the playground! 💙
+
+Riding tricycles is more than just fun! Our children are building important skills while enjoying time outdoors with their friends. 🌞
+
+Skills we are developing:
+- 🚴 Gross Motor Skills: Strengthening leg muscles and building coordination.
+- 🧠 Problem-Solving: Learning how to steer, navigate, and move around obstacles.
+- 👀 Spatial Awareness: Understanding personal space and watching where they are going.
+- ⏳ Self-Regulation: Practicing patience, taking turns, and following playground rules.
+- 🤝 Social Skills: Sharing space, playing alongside friends, and encouraging one another.
+- 💪 Confidence: Building independence as they practice new movements.
+At Sallie Cone Preschool, we know that some of the best learning happens through play! 💙🐾
+
+#SallieConePreschool #LearningThroughPlay #GrowingAndLearning
+
+### 2026-11-16 · Sallie Cone Preschool (id 13832013)
+
+Who says you need a bus for an unforgettable field trip? Today, our students became junior paleontologists on a virtual dinosaur adventure! We took a virtual field trip to the Museum of Discovery to learn all about dinosaurs🦖✨
+
+We didn't just watch, we got moving and dug right in! Students learned how scientists study dinosaur movement, comparing how massive plant-eaters and fast predators got around. 
+We even put our knowledge to the test by practicing our best low-to-the-ground ankylosaur walks! To wrap up our adventure, everyone got hands-on with our very own dinosaur dig, learning how paleontologists carefully uncover and examine fossils to piece together the past and classified different dinosaurs based on their traits. 🦴🔍 So proud of our curious explorers!
+
+### 2026-11-17 · Sallie Cone Preschool (id 13844017)
+
+🐾🩺 Our little veterinarians are hard at work in the Right Brain Room! 🐶🐱
+
+Through pretend play, children are learning how to care for animals while building communication, problem-solving, teamwork, and empathy skills. ❤️
+
+They are using their imaginations, taking turns, and practicing kindness as they care for their furry friends. So much learning happens through play! 🐾💙
+
+#SallieConePreschool #LearningThroughPlay
+
+### 2026-11-17 · Conway Public Schools (id 13849231)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-18 · Sallie Cone Preschool (id 13869740)
+
+🍁💙🐾 NOVEMBER STAFF MEMBER OF THE MONTH! 🐾💙🍁
+
+Help us celebrate and congratulate our November Staff Member of the Month! 🎉
+
+We are so thankful for the dedicated team members who go above and beyond each day to make a difference in the lives of our students, families, and coworkers. Your hard work, kindness, and commitment do not go unnoticed!
+
+Thank you for being such an important part of our Sallie Cone Preschool family. We appreciate all that you do! 💙
+
+🐾 Congratulations! We are so glad you're part of our team! 🐾
+
+### 2026-11-18 · Sallie Cone Preschool (id 13869786)
+
+💙🐾 NOVEMBER STUDENT OF THE MONTH! 🐾💙
+
+Help us celebrate our November Student of the Month! 🎉 We are so proud of this little learner and all the wonderful ways they are growing, learning, and shining each day! 🌟
+
+Keep up the great work! We are cheering you on! 💙🐾
+
+### 2026-11-19 · Sallie Cone Preschool (id 13878079)
+
+all
+🥦🍎 Happy Me, Healthy Me! 🥕🥗
+Our students are learning about making healthy meals for their families! 
+From exploring nutritious foods to thinking about balanced meals, our little learners are discovering how healthy choices help our bodies grow strong. 💪❤️
+We are building healthy habits, practicing decision-making, and learning that taking care of ourselves can be fun! 🌟👩‍🍳👨‍🍳
+#SallieConePreschool #HappyMeHealthyMe #HealthyHabits🐾
+

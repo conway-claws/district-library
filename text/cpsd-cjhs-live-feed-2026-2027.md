@@ -1974,3 +1974,127 @@ Please join us in thanking our school psychologists for their tireless dedicatio
 
 Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
 
+### 2026-11-12 · Conway Junior High (id 13808566)
+
+The Conway Junior High Cat Nation Christmas Tree is officially up in our cafeteria!
+
+The CJHS Cat Nation Christmas Crew works to provide clothing and hygiene items to CJHS students in need during the Christmas season. We invite our Cat Nation families and community to help make the holidays a little brighter for our students!
+
+Here's how you can help:
+
+1. Students can select a paw print ornament from the Cat Nation Christmas Tree and take it home.
+
+2. Parents can scan the QR code on the back of the ornament to view the wish lists or access them here: 
+
+https://docs.google.com/document/d/1_o3RSMRKb0qcazuLYUMUDo57S6fb6p-YY6enWagmbc4/edit?usp=sharing
+
+3. Choose one or more items from the list to purchase.
+
+4. Return all items UNWRAPPED to the front office or Room 2032 by December 2nd.
+
+🎁 Want to help in another way? If you or a local business would like to donate money or items for our student hygiene boxes, please contact Jennifer Barnett at barnettj@conwayschools.info.
+
+Every donation makes a difference, and we are so grateful for a community that continues to show up for our students. Thank you for helping make Christmas a little brighter at CJHS! ❤️💚
+
+### 2026-11-13 · Conway Athletics (id 13812830)
+
+The Conway Junior High Boys Basketball team defeated Blytheville last night in the Batesville Junior High Invitational. They will now advance to play Jonesboro - Annie Camp on Saturday afternoon in the consolation game.
+
+### 2026-11-13 · Marquis Rogers (id 13816902)
+
+It's popcorn Friday!  Stop by the front office during your lunch.
+
+### 2026-11-13 · Conway Junior High (id 13808532)
+
+Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
+
+### 2026-11-13 · Conway Public Schools (id 13816567)
+
+"La Fiesta Orquesta” Thursday, November 19, 5-9 pmFeaturing the nearly 300 students of the orchestra program in free concerts throughout the night in the James H. Clark Auditorium! Taco Supper fundraiserConway High School Cafeteria, 5-8 pmWe are once again partnering with Make-a-Meal to cater our event!$15 Adult taco salad plate$10 Child soft taco plateTickets to the dinner can still be purchased at the door. Donations can also be made online at conwayorch.square.site. We hope you’ll support these amazing students by donating, purchasing tickets, and especially coming to hear us play!! Concert Times:5:30 pm Intermediate Orchestra (city-wide)6:15 pm Conway High School Orchestra7:30 pm Beginner Orchestra (city-wide)8:15 pm Conway Junior High 8th and 9th Grade Orchestras
+
+### 2026-11-14 · Conway Athletics (id 13827968)
+
+The Conway Junior High Boys' basketball team defeated  Annie Camp today in the consolation game of the Batesville Invitational Tournament.
+
+### 2026-11-16 · Conway Junior High (id 13165773)
+
+Dear Parents,Here are the important CJHS updates and announcements for the upcoming week.Link to Announcements: https://docs.google.com/document/d/1QS3gQyOpt0Bqqbk4PwislhZhA94dERIWr7XeCh6JJjo/edit?usp=sharing
+
+### 2026-11-16 · Conway Junior High (id 13809713)
+
+Here’s a look at what’s happening this week at CJHS!
+
+We have another busy week ahead for our Wampus Cats! Be sure to check out this week’s schedule and come support our students at their upcoming events!
+
+Go Wampus Cats! 💙
+
+### 2026-11-16 · Conway Junior High (id 13834371)
+
+The Conway Junior High Chess Team competed last Saturday at a Grand Prix tournament in Cabot against several other schools from around the state—with just over 100 players! One junior high team member,  place in the top 25! They had lots of fun and learned a lot! Go Chess Cats! ♟️
+
+### 2026-11-16 · Conway Junior High (id 13824375)
+
+Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
+
+### 2026-11-16 · Conway Athletics (id 13837591)
+
+GAME DAY!
+
+### 2026-11-16 · Conway Junior High (id 13833918)
+
+Mrs. Mahan's Accelerated Biology students got hands-on in the lab exploring cellular respiration and fermentation! Using yeast and sugar, students observed how yeast breaks down glucose and produces carbon dioxide as a byproduct. A little science, a little experimentation, and lots of learning happening in the lab!
+
+### 2026-11-16 · Conway Athletics (id 13846093)
+
+Conway Junior High Boys' basketball opens conference play with a win over Pine Bluff.
+
+### 2026-11-17 · Conway Public Schools (id 13849245)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Conway Athletics (id 13848673)
+
+CJHS Lady Cats open up conference play with a win over Pine Bluff!  Great job Lady Cats! 🏀🚾🏀
+
+### 2026-11-17 · Conway Junior High (id 13848603)
+
+Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
+
+### 2026-11-17 · Conway Junior High (id 13852094)
+
+Kona Ice will be at CJHS on Friday, November 20, during all four lunches. Students can purchase a refreshing treat using cash or card only. No tap-to-pay will be accepted.
+
+### 2026-11-18 · Conway Junior High (id 13862810)
+
+Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
+
+### 2026-11-18 · Conway Junior High (id 13864931)
+
+There are only 2 days left to preorder your 2026–2027 CJHS yearbook for $42.00 + tax! After Friday, November 20, the price will increase to $47.00 + tax for the remainder of the school year.
+
+Don't miss your chance to save $5 and make sure you have a copy of this year's memories! ❤️
+
+📸 Ready to order?
+Visit jostensyearbooks.com to place your order!
+
+💳 Payment can be made in three monthly installments at no additional cost!
+
+Order yours today!
+
+### 2026-11-18 · Conway Junior High (id 13865471)
+
+Just a friendly reminder that our Thanksgiving Potluck is THIS FRIDAY! 🍂 If you would like to bring something to share, please take a moment to sign up using the link below. We appreciate everyone who is helping make this a special time to gather and enjoy a meal together! ❤️📝 Thanksgiving Potluck Sign-Up:https://docs.google.com/document/d/19rAvMfS9REU_ryoB_PjpSn6VTDtxP3tbgf2A9uxh4TE/edit?usp=sharing
+
+### 2026-11-19 · Conway Junior High (id 13862867)
+
+Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
+

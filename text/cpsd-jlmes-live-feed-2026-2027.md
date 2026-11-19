@@ -1302,3 +1302,93 @@ School psychologists play a crucial role in creating positive, supportive learni
 Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
 #NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
 
+### 2026-11-13 · Julia Lee Moore Elementary (id 13801228)
+
+Honoring Our Veterans Through STEM! 🇺🇸 Students combined history, science, and engineering as they designed and built simple light-based telegraph circuits to send messages using Morse code. Through hands-on learning, they explored how communication technology has evolved while honoring the courage, service, and sacrifices of our nation's veterans. A meaningful way to connect the past with innovation and bring learning to life!
+
+#JuliaLeeMoore #WeAreJLM #HonoringOurVeterans #STEM
+
+### 2026-11-16 · Julia Lee Moore Elementary (id 13663054)
+
+Our students had so much fun making music outdoors! Bucket drumming brought out all the rhythm, energy, and big smiles! 🥁🎶✨
+
+#JuliaLeeMoore #WeAreJLM #Music #OutdoorFun
+
+### 2026-11-16 · Julia Lee Moore Elementary (id 13833721)
+
+Congratulations to our Teacher of the Month Mrs. Attwood and Employee of the Month Mrs. Ulmer! Thank you both for your incredible dedication to our school. 🍎👏
+
+A special thank you to Sonic and Misty Givens Agency, LLC for sponsoring these awards and supporting our team! 💙
+
+#JuliaLeeMoore #WeAreJLM #TeacherOfTheMonth #EmployeeOfTheMonth
+
+### 2026-11-16 · Julia Lee Moore Elementary (id 13834211)
+
+Reminder: JLM Picture Makeup & Retake Day is Tomorrow (Nov. 17)!
+
+If you missed your original slot or need a retake, please remember to:
+
+-Bring your original picture package back to school tomorrow.
+-Include a note explaining exactly what you would like done differently this time.
+
+For more details, visit www.strainschoolpics.com or email info@strainphotography.info with any questions!
+
+### 2026-11-17 · Julia Lee Moore Elementary (id 13621410)
+
+Math is more fun when we work together! 💙 Our kindergarten mathematicians are learning, problem-solving, and helping one another grow one number at a time! ✏️🌟
+
+#JuliaLeeMoore #WeAreJLM #Kindergarten
+
+### 2026-11-17 · Conway Public Schools (id 13849237)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Julia Lee Moore Elementary (id 13849663)
+
+Kona Ice is coming to JLM this Friday, November 20th. Please return the Kona Ice envelope with exact cash or a check made payable to Kona Ice if you wish to have your child participate. Thank you for supporting JLM!
+
+#JuliaLeeMoore #WeAreJLM #KonaIce
+
+### 2026-11-18 · Julia Lee Moore Elementary (id 13848902)
+
+First grade kicked off their next Arts & Letters unit,“Creature Features”, by making some fun animal headbands to spark interest about the new unit’s topic!
+
+#JuliaLeeMoore #WeAreJLM #FirstGrade
+
+### 2026-11-18 · Jalon Hughes (id 13862517)
+
+Attendance Notification – Julia Lee Moore Elementary
+
+Dear Parent/Guardian,
+
+If you are receiving this message, our records indicate that your student has accumulated 5 unexcused absences this school year.
+
+This is a friendly reminder to submit any documentation regarding these absences to the school office as soon as possible.
+
+We encourage families to monitor attendance closely to prevent additional unexcused absences. Students who reach 8 unexcused absences may require an in-person parent meeting to discuss attendance concerns and develop a plan to prevent reaching 10 unexcused absences.
+
+If you have already submitted documentation or have questions regarding your student's attendance, please contact our front office.
+
+Thank you for your attention to this matter and your partnership in supporting regular school attendance.
+
+Julia Lee Moore Elementary Administration
+
+### 2026-11-18 · Julia Lee Moore Elementary (id 13842693)
+
+JLM Fitness Club is canceled for tomorrow, November 19. Please make arrangements for regular student dismissal. Thank you!
+
+### 2026-11-19 · Julia Lee Moore Elementary (id 13849087)
+
+Big smiles, great stories, and special connections! Our older students enjoyed reading to our kindergarten friends, sharing their love of reading while building friendships across grade levels. There’s nothing better than learning and growing together! 🥰📖
+
+#JuliaLeeMoore #WeAreJLM #Kindergarten #LearningTogether
+

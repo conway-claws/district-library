@@ -1689,3 +1689,87 @@ School psychologists play a crucial role in creating positive, supportive learni
 Please join us in thanking our school psychologists for their tireless dedication, guidance, and heart for our school community!
 #NationalSchoolPsychologyWeek #SchoolPsychWeek #StudentWellbeing #WeAreWampusCats #TeamConway #ThankYou
 
+### 2026-11-12 · Woodrow Cummins Elementary (id 13809722)
+
+We hope you will join us tonight at Taziki's for Spirit Night. Make sure you mention Woodrow Cummins when ordering to benefit our school!
+
+### 2026-11-12 · Jenna Havlik (id 13812189)
+
+Thank you to our Wampus Cat golf team and Taxikis for greeting our students this morning!
+
+### 2026-11-13 · Woodrow Cummins Elementary (id 13815245)
+
+Kindergarten is building reading skills one word at a time! We love watching our kiddos grow in confidence as they practice reading and become little bookworms! 🥰
+
+### 2026-11-13 · Woodrow Cummins Elementary (id 13817815)
+
+Dear WCE Families,Looking for a special keepsake this holiday season? 🎄The Ruth Doyle Middle School STEM Club is selling festive Wampus Family Ornaments to raise money for STEAM experiences for RDMS students!Ornament Options:2026 Featured RDMS Ornament – $10 (Guaranteed before Christmas)2026 Custom Kitten Ornament – $20 (Not guaranteed before Christmas)Custom Ornament with Rush Fee – $30 (Guaranteed before Christmas)How to Order:Simply scan the QR code on the attached flyer to place your order. Payments can be sent to the RDMS front office or Mr. Martinazzi.Order Deadline: December 7, 2026, at the Jingle and Mingle event.All proceeds will help provide exciting, hands-on STEAM learning experiences for RDMS students!Thank you for supporting our future Wampus Cats and helping make learning fun!
+
+### 2026-11-13 · Woodrow Cummins Elementary (id 13817954)
+
+Check out our Little Cat Chronicle!
+
+### 2026-11-13 · Woodrow Cummins Elementary (id 13822450)
+
+It's time to spread some holiday cheer! 🎄🎶Join our WCE staff on SUNDAY, December 6, from 4:00–6:00 PM, as we travel through our community spreading Christmas joy through caroling!Want to join the fun? Everyone is welcome! We invite our Little Cats, families, and friends to come along and help us make spirits bright!Here's the plan:When: December 6 | 4:00–6:00 PMWhere: Meet at WCE by 3:50 PMWhat to Wear: Come DECKED OUT in your most festive holiday attire! Bring your Christmas hats, lights, bells, and all the holiday goodies!We can't wait to sing, celebrate, and spread a little Christmas magic throughout our community!We hope you'll join us for this fun holiday tradition!WCE Staff
+
+### 2026-11-13 · Jenna Havlik (id 13824710)
+
+Enrichment had a fun lesson this week with Mystery Science learning about the skeletal system. The students had so much fun making an X-ray of their hand!
+
+### 2026-11-13 · Jenna Havlik (id 13824757)
+
+What an honor it was to celebrate and recognize the brave men and women who have served our country and are cherished family members of our students! We are so grateful for their service, sacrifice, and the opportunity to honor them! 🇺🇸 #veteransday
+
+### 2026-11-14 · Woodrow Cummins Elementary (id 13815315)
+
+Learning all about shapes in kindergarten! Our little mathematicians are identifying, building, and exploring shapes through hands-on activities! Learning is always more fun when we get to be creative!
+
+### 2026-11-16 · Woodrow Cummins Elementary (id 13843172)
+
+We want to remind all families that in order to participate in Walk-Up Pick-Up (WUPU), adults MUST park in a DESIGNATED PARKING SPOT and walk to pick up their student.
+
+Stopping or parking in driving lanes, along curbs, or in any area that is not a designated parking spot is NOT permitted.
+
+These procedures are in place to ensure the safety of our students, families, and staff.
+
+If these rules cannot be followed consistently, we will have no choice but to discontinue Walk-Up Pick-Up as a dismissal option.
+
+We appreciate your cooperation in keeping dismissal safe, organized, and efficient for everyone!
+
+Thank you,
+WCE Administration
+
+### 2026-11-17 · Conway Public Schools (id 13849233)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Jenna Havlik (id 13854786)
+
+Houston, we have teamwork! 🚀 Our Third Graders teamed up to create a timeline of Apollo 11’s historic journey to the moon.
+
+### 2026-11-19 · Woodrow Cummins Elementary (id 13874031)
+
+Dear WCE Families,The holiday season is a time for giving, kindness, and coming together as a community. We are so thankful for the families who have already stepped up to help make Christmas a little brighter for our Little Cats!We still have a couple of students who are waiting to be matched with a Substitute Santa! If you have been considering participating, we would love your help in making sure every child experiences a little extra Christmas magic this year.There are several ways to help! Families can sponsor a child or family, donate gift cards to assist with gift purchases, or provide wrapping supplies. Every contribution, big or small, helps us make a difference.Substitute Santa Gift GuidelinesTo help ensure each student receives a similar number and variety of gifts, we ask that volunteers follow these shopping guidelines.Each student should receive:1 Clothing Item – Shirt, pants, sweatshirt, coat, or outfit2 Toys or Fun Gifts – Based on the child's age, interests, and wish list1 Book – Age-appropriate book, activity book, or graphic novel1 Cozy or Practical Item – Pajamas, blanket, socks, shoes, or winter accessories1 Stocking Stuffer – Small game, art supplies, fidget toy, or similar itemWe kindly ask that volunteers purchase an item from each category to help provide a balanced and meaningful Christmas experience for every student.Important Reminders:Please DO NOT wrap gifts. Our team will take care of wrapping and organizing them.Clearly label all gifts with the assigned student number provided to you.Ready to Help?If you would like to sponsor a student or contribute to our Substitute Santa program, please complete the Substitute Santa Sign Up.Already signed up to be a Substitute Santa? Thank you! Please keep an eye on your email, as we will be sending out student assignments, wish lists, and additional instructions soon!We are incredibly grateful for the generosity and kindness of our WCE community. Together, we can make sure our Little Cats feel loved, supported, and remembered this Christmas season!With gratitude,Jenna Havlik and Brooke JonesWoodrow Cummins Elementary
+
+### 2026-11-19 · Woodrow Cummins Elementary (id 13876770)
+
+Mrs. Lute's class went shopping for a Thanksgiving Meal! They practiced their addition skills by adding the cost of their meal.
+
+### 2026-11-19 · Jenna Havlik (id 13880335)
+
+🎈🎉 Our very own Macy’s Thanksgiving Day Parade! 🎉🎈
+
+Second grade brought Balloons Over Broadway to life! From creative balloon designs to our very own parade, these little learners marched with big imaginations and lots of holiday spirit! ❤️🦃
+
+A little creativity, a whole lot of learning, and memories made along the way! 🎈🍂
+

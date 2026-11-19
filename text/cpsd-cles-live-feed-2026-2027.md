@@ -2037,3 +2037,142 @@ Please join us in thanking our school psychologists for their tireless dedicatio
 
 Second grade kicked off their new unit in Arts and Letters. Mrs Stanfield read a story, the students experienced an authentic Native American drum, they got to feel of an elk hide, and learned what Tribes lived in Arkansas. We are excited to learn about the American West! #WeAreCLE
 
+### 2026-11-13 · Carolyn Lewis Elementary (id 13812611)
+
+Mrs. Liszewski and Mrs. Adams were thankful for the opportunity to learn from other leaders this week at the SPARK Conference hosted by the Conway Area Chamber of Commerce. #WeAreCLE
+
+### 2026-11-13 · Carolyn Lewis Elementary (id 13812618)
+
+❄️✨ CLE Winter Wonderland is coming! ✨❄️
+
+Join us on Thursday, December 10th, from 5:00–6:30 PM for a night of winter fun!
+
+This year, Winter Wonderland will be a WALK-THROUGH event instead of a drive-through! We can't wait to celebrate the season with our CLE families! 💙🐾
+
+#WeAreCLE
+
+### 2026-11-13 · Carolyn Lewis Elementary (id 13812614)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-11-15 · Carolyn Lewis Elementary (id 13824962)
+
+📚🏆 CLE Book Fair | November 16–20, 2026 🏆📚
+
+The CLE Book Fair is almost here! This year's theme is “Where Every Reader is a Winner!”
+
+Students may shop:
+
+Before school each day.
+
+During their scheduled class library time.
+
+With a grown-up after school on Tuesday, November 17, and Wednesday, November 18, until 4:00 PM.
+
+Payment Options: Cash, credit/debit cards, and Scholastic eWallets are accepted.
+
+To set up an eWallet:
+
+Visit https://bookfairs.scholastic.com.
+
+Find our school's Book Fair.
+
+Select “Create an eWallet.”
+
+Sign in or create a Scholastic account.
+
+Follow the instructions to set up your child's eWallet.
+
+Add money for your child to shop.
+
+Important Reminders:
+
+All items are sold on a first-come, first-served basis.
+
+The Book Fair closes Friday, November 20, at 12:00 PM.
+
+We can't wait to see our Little Cats discover some great new books! Happy reading! 📖💙
+
+#WeAreCLE
+
+### 2026-11-16 · Carolyn Lewis Elementary (id 13816079)
+
+Students in Mrs Fairchild’s class have been exploring Traditional Literature.  They researched legendary characters, designed trading card posters, and presented their projects to the class.  We love bringing literature to life!  #WeAreCLE
+
+### 2026-11-16 · Carolyn Lewis Elementary (id 13816375)
+
+CLE Picture Retake/Make-up Day will be Wednesday, December 2, 2026. #WeAreCLE
+
+### 2026-11-17 · Carolyn Lewis Elementary (id 13551242)
+
+🌿🎶 JOIN US TONIGHT! 🎶🌿
+
+It’s showtime, Little Cats! 🐾💙 Join us tonight, Tuesday, November 17th, at 6:00 PM for our 1st and 3rd graders’ musical, Take a Walk! The performance will be held at the James H. Clark Auditorium at Conway High School. We can’t wait to see you there!
+
+#WeAreCLE
+
+### 2026-11-17 · Conway Public Schools (id 13849235)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Carolyn Lewis Elementary (id 13817839)
+
+🎉 Silly String Showdown! 🎉
+
+Our top Mega Dough Fun Run fundraisers got to enjoy a VERY special reward yesterday… silly stringing some of our teachers, Mr. Smith, and Mrs. Sturdivant! 
+
+There were lots of laughs, lots of silly string, and some VERY colorful staff members by the time it was over! 
+
+Thank you to everyone who helped make our Mega Dough Fun Run such a success! We love celebrating our students and all their hard work! 🐾
+
+### 2026-11-17 · Carolyn Lewis Elementary (id 13856821)
+
+CLE Parents of CLE Running Club Students:
+CLE Running Club will be cancelled for Wednesday, November 18, 2026. Sorry for the short notice. Have a Happy Thanksgiving. #WeAreCLE
+
+### 2026-11-18 · Carolyn Lewis Elementary (id 13849248)
+
+A few UCA students visited Ms. McClain’s classroom to teach 3rd graders about coding with Bee Bots and Indi Bots! #WeAreCLE
+
+### 2026-11-18 · Carolyn Lewis Elementary (id 13849535)
+
+Our CLE Garden harvest is growing something special! 🥔🌱 Mr. Richard selected Mrs. McDaniel’s class to help harvest sweet potatoes from the garden, and they gathered an impressive 66 pounds of sweet potatoes! What a wonderful hands-on learning experience for our Little Cats! 💙
+
+#WeAreCLE
+
+### 2026-11-19 · Carolyn Lewis Elementary (id 13849585)
+
+A special lunch with the principals! 💙 Liev and Jailyn enjoyed getting the chance to have lunch with our principals. We love celebrating our students and making special memories with our Little Cats! 🐾
+
+#WeAreCLE
+
+### 2026-11-19 · Carolyn Lewis Elementary (id 13874117)
+
+🎉 4th Grade Yearbook Ads Are Now Available! 🎉
+
+Celebrate your 4th grader with a special yearbook ad they’ll treasure for years to come! ❤️
+
+Choose from:
+
+Full-page – $80
+Half-page – $45
+Quarter-page – $35
+📅 Order deadline: January 15, 2027
+
+📱 Ready to order? Scan the QR code on the flyer or visit the link below:
+
+🔗 https://yearbookforever.com/school-store/JlzHSO3zsBsdZD1cQQP5IDmg
+
+Select “4th Grade,” click “Get Started,” then fill out the information and upload your photos!
+
+Don't miss this special opportunity to celebrate your 4th grader! 💙
+

@@ -3752,3 +3752,311 @@ https://gofan.co/event/6970039?schoolId=AR4663
 📺 Livestream:
 https://www.youtube.com/live/2a-3iLt3DTk?is=JN5P7sP8q3ApD-ai
 
+### 2026-11-12 · Marcelle Goins (id 13809234)
+
+Come out and watch some good basketball!
+
+### 2026-11-12 · Marcelle Goins (id 13811671)
+
+Watch our 9th grade boys basketball play in the Batesville Tournament at 6:15. 
+
+🔗: https://fan.hudl.com/usa/ar/batesville/organization/7347/batesville-high-school/team/430020/boys-freshman-basketball/watch?b=QnJvYWRjYXN0NDgxMjQzMA%3D%3D
+
+### 2026-11-13 · Joseph Moon (id 13812571)
+
+Cats fought hard to the end. Sophomore Montae Williams had 19 points in the loss. Back at it in Springdale next Tuesday.
+
+### 2026-11-13 · Canaan Groesbeck (id 13812525)
+
+Our Conway Girl's swim team had a great meet at Russellville!! We had several ladies improve their times and compete well! 
+Girl’s 2nd place Overall 
+High point: Kellen Ogan
+
+### 2026-11-13 · Canaan Groesbeck (id 13812511)
+
+Great meet tonight for our Conway Boy's Swim & Dive! Multiple 1st place races and some great times! 
+Boys 1st place Overall 
+High Point: Jack Britt
+
+### 2026-11-13 · Conway Athletics (id 13812474)
+
+Lady Cats open the season with a 73-42 win over Jacksonville! 🚾🏀
+
+### 2026-11-13 · Canaan Groesbeck (id 13814573)
+
+Wampus Cat Swim and Dive Meet results from Russellville last night! Way to go, Cats!
+
+### 2026-11-13 · Conway Athletics (id 13815949)
+
+🏀 DAY 2 | LADY CAT INVITATIONAL 🏀
+
+Day 1 is in the books, and we’re ready for another great day of basketball!
+
+📅 Friday, November 13
+
+🏀 Today’s Matchups:
+🔹 4:00 PM | Nashville vs. LR Christian
+🔹 5:30 PM | Jacksonville vs. Parkview
+🔹 7:00 PM | Conway vs. Bentonville
+🔹 8:30 PM | Har-Ber vs. GreenlandLivestream Link: https://youtube.com/live/xEJBsaNJTCE?feature=share
+
+A big thank you to our main sponsor, Dyermark, for helping make this tournament possible!
+
+Come out, pack the stands, and enjoy another exciting day of basketball! 🔵🏀
+
+### 2026-11-13 · Conway Public Schools (id 13816570)
+
+"La Fiesta Orquesta” Thursday, November 19, 5-9 pmFeaturing the nearly 300 students of the orchestra program in free concerts throughout the night in the James H. Clark Auditorium! Taco Supper fundraiserConway High School Cafeteria, 5-8 pmWe are once again partnering with Make-a-Meal to cater our event!$15 Adult taco salad plate$10 Child soft taco plateTickets to the dinner can still be purchased at the door. Donations can also be made online at conwayorch.square.site. We hope you’ll support these amazing students by donating, purchasing tickets, and especially coming to hear us play!! Concert Times:5:30 pm Intermediate Orchestra (city-wide)6:15 pm Conway High School Orchestra7:30 pm Beginner Orchestra (city-wide)8:15 pm Conway Junior High 8th and 9th Grade Orchestras
+
+### 2026-11-13 · Conway Athletics (id 13826580)
+
+Lady Cats lose a close one! Another opportunity to bounce back tomorrow at 4:00pm! 🚾🏀
+
+### 2026-11-14 · Conway Athletics (id 13827162)
+
+🏀 CHAMPIONSHIP SATURDAY! 🏆
+
+It’s the FINAL DAY of the 2026 Dyermark Lady Cat Invitational!
+
+Four games. Eight teams. One champion. 🏆
+
+Come out and enjoy a great day of basketball as teams battle for their final tournament placement!
+
+🔹 1:00 PM | 7th Place
+🔹 2:30 PM | 5th Place
+🔹 4:00 PM | 3rd Place
+🏆 5:30 PM | CHAMPIONSHIP
+
+💙 Thank you to our main sponsor, Dyermark, for helping make this tournament possible!
+
+### 2026-11-14 · Conway Athletics (id 13827584)
+
+Game Day! 🚾🏀
+⏰ 4:00pm 
+📍 Buzz Bolding Arena 
+🆚 Greenland
+
+### 2026-11-14 · Katy Gorden (id 13828334)
+
+Conway cheer taking home first place in 6A all girl performance today in hot springs!
+
+### 2026-11-14 · Conway Athletics (id 13828421)
+
+🏆 2026 DYERMARK LADY CAT INVITATIONAL CHAMPIONS! 🏆
+
+Congratulations to Springdale Har-Ber on winning the 2026 Lady Cat Invitational! 👏🏀
+
+A huge THANK YOU to Dyermark, our main sponsor, for helping make this tournament possible! We also want to thank all of our volunteers, workers, and everyone who gave their time to make this year’s tournament a success.
+
+We appreciate all eight teams who competed and everyone who came out to support these athletes!
+
+💙🏀 Thank you for another great Lady Cat Invitational!
+
+### 2026-11-14 · Conway Athletics (id 13828435)
+
+🏆💙 TOURNAMENT CHAMPIONS! 💙🏆
+
+The CJHS Lady Cats are bringing home the hardware! 🏀
+
+Our Lady Cats defeated Batesville 62-24 in the championship game to claim the 2026 Batesville Jr. High Tournament title!
+
+Proud of this group’s hard work, energy, and teamwork! Way to represent, Lady Cats! 💪
+
+### 2026-11-15 · Conway Athletics (id 13828447)
+
+🏆 2026 DYERMARK LADY CAT INVITATIONAL ALL-TOURNAMENT TEAM 🏀
+
+Congratulations to our All-Tournament Team selections! These athletes put on an outstanding performance throughout three days of competition!
+
+🌟 A special congratulations to Makenlie Campbell on being named Tournament MVP!
+
+Thank you to all eight teams for bringing great competition to this year’s tournament. We appreciate the talent, effort, and sportsmanship displayed all week!
+
+👏 Congratulations to all of our honorees!
+
+### 2026-11-16 · Canaan Groesbeck (id 13834020)
+
+Congratulations to Addy Swindle on being selected to play in the 2026 ARVCA All Star game!!
+The All Star game will take place on November 21st at 4:00pm at Greenbrier High School. Way to go, Addy!
+
+### 2026-11-16 · Conway Athletics (id 13834240)
+
+Tomorrow Night! Wrestling will host their Blue/White Dual at 6pm in the Old Gym. Tickets are only available on GoFans! Come see the work this program has put in!
+https://gofan.co/event/7062359?schoolld=AR4663
+
+### 2026-11-16 · Conway High School (id 13796931)
+
+Step into the magic of the holiday season as CHS Choir presents their 2nd annual Home for the Holidays, an enchanting evening filled with nostalgic charm, timeless music, and festive cheer. The concert space will be transformed into a cozy holiday setting, adorned with twinkling lights, evergreen garlands, classic Christmas ornaments, and warm, inviting touches reminiscent of holidays gone by. Think vintage Christmas charm, the glow of candlelight, and the comforting beauty of traditional holiday décor that brings back memories of cherished family gatherings and Christmases past.
+
+Enjoy the beautiful voices of our talented high school singers as they perform a heartwarming blend of beloved traditional holiday carols and fresh, contemporary seasonal favorites. As the music fills the room, guests will savor a delicious selection of dessert hors d’oeuvres while soaking in the sights, sounds, and spirit of the season.
+
+Whether it’s the familiar melodies that take you back to childhood, the nostalgic decorations that stir treasured memories, or the joy of gathering together during this special time of year, this evening promises to capture the timeless magic of the holidays.
+
+Join us for a memorable celebration of music, tradition, and the simple joys of the season—an evening that reminds us there truly is no place like Home for the Holidays!
+
+📅 December 4–5, 2026 | 7:00 p.m.
+📍 Conway High School Cafeteria
+
+🎟️ Purchase your tickets for this memorable event NOW at https://gofan.co/app/school/AR4663_4
+
+Tickets are available online only through GoFan. All attendees must have a ticket purchased through GoFan.
+
+### 2026-11-16 · Conway Athletics (id 13808176)
+
+Weekly events!
+
+### 2026-11-16 · Marcelle Goins (id 13839474)
+
+The playoffs are here. Our Wampus Cats will host Bentonville West on Friday. Please purchase your tickets online using the link below. No cash will be accepted at the gates and only AAA issued passes will be accepted. Children 5 and up requires a ticket. Any media request needs to go through AAA. 
+
+🔗: https://gofan.co/event/7077162
+
+### 2026-11-17 · Joseph Moon (id 13847830)
+
+A busy week for the Wampus Cats kicks off tonight in Springdale!
+
+### 2026-11-17 · Conway Public Schools (id 13849246)
+
+CPSD family!  Our CATS in Community Food Drive is for our school families who are in need of food and resources over the Thanksgiving break. Come see us this Friday, November 20, for our food distribution from 10 a.m. to noon at the Conway High School Roundabout.📅 Collection Dates: Today, November 17, is the last day to donate for this food drive. 📍 Drop-Off Locations:
+• Conway High School
+• Kroger – Prince Street
+• Walmart – Highway 65
+• United Way – 1107 Main Street, Conway
+• Conway Junior High School
+• All Conway middle schools🥫 ITEMS WE’RE COLLECTING:
+🥜 Proteins & Soups: Peanut butter, canned tuna, soups
+🍝 Pantry Staples & Meals: Mac and cheese, pasta, pasta sauce, instant mashed potatoes, ramen noodles, boxed meal kits
+🥫 Sides & Breakfast: Canned vegetables, canned fruit, applesauce, crackers, granola bars, cereal, breakfast barsPlease ensure all food items are sealed and within their expiration dates!CATS in Community is dedicated to supporting our school families by providing food and resources to those in need. Every donation makes a difference, and together, we can help make this Thanksgiving a little brighter for our Wampus Cat families! 💙Thank you for showing what it means to be a Wampus Cat and a champion for our community!
+
+### 2026-11-17 · Conway Athletics (id 13849390)
+
+🏀 IT’S GAMEDAY 🏀
+
+The Lady Cats hit the road to take on Springdale tonight! 🚾🏀
+
+📍 At Springdale
+📅 Tuesday, November 17
+⏰ JV Girls | 4:30 PM
+⏰ Varsity Girls | 6:00 PM
+
+### 2026-11-17 · Conway High School (id 13852273)
+
+2026 Arkansas Student Congress Announcement
+
+Congratulations to the CHS Speech & Debate team’s delegation to the 58th annual Arkansas Student Congress Tournament held November 1-3, 2026 in Little Rock at the Arkansas Capitol and Episcopal Collegiate School. 
+
+Representing Conway High School were:
+
+Amelia Garrett (Senior): House II Speaker of the House; Outstanding CHS Delegate; Excellence in Committee & Parliamentary Procedure; Superior in Caucus.  
+
+Milina Michel (Senior): Excellence in Floor Debate; Superior in Committee, Caucus, & Parliamentary Procedure. 
+
+Brooke Simpson (Senior): Excellence in Caucus, Floor Debate & Parliamentary Procedure.
+
+Hugh Lamey (Junior): Excellence in Committee & Floor Debate; Superior in Caucus & Parliamentary Procedure. 
+
+Roseli Pineda (Junior): Excellence in Committee, Caucus & Floor Debate.
+
+Zenna Dean (Junior): Excellence in  Committee. Superior in Caucus & Floor Debate.
+
+Sierra Moses (Junior): Outstanding Page
+Mason Rollans (Senior): Outstanding Page
+
+Amelia Garrett & Milina Michel: Outstanding Delegation House II, 3rd place
+
+Authoring pieces of legislation which passed out of committees:
+
+Amelia Garrett & Milina Michel: SHORT TITLE: EXTEND POSTPARTUM MEDICAID TO 12 MONTHS IN ARKANSAS
+
+Hugh Lamey: SHORT TITLE: ABOLISH SALES TAX ON USED VEHICLES SOLD IN THE STATE OF ARKANSAS
+
+Roseli Pineda & Zenna Dean: SHORT TITLE: A BILL REQUIRING ARKANSAS TO ESTABLISH CHEMICAL DISCLOSURE REQUIREMENTS IN MENSTRUAL PRODUCTS
+
+### 2026-11-17 · Conway Athletics (id 13853239)
+
+Mark your calendars!
+
+### 2026-11-17 · Conway Athletics (id 13859174)
+
+LADY CATS WIN ON THE ROAD! 🚾🏀
+
+The Lady Cats battle to a hard-fought 63-60 victory over Springdale!
+
+Proud of the fight and toughness our girls showed to get it done on the road!
+
+### 2026-11-18 · Joseph Moon (id 13859410)
+
+Your Wampus Cats travelled to Springdale and came away with a 56-34 road win! We're back in action on Thursday at Russellville. Go Cats!
+
+### 2026-11-18 · Conway High School (id 13852293)
+
+Congratulations to the Conway High School Speech & Debate Team for their success at the Cyclone Nuketown Showdown held November 12-14, 2026, at Russellville High School.
+
+The team did a wonderful job representing CHS in various debate styles and interpretation events. Bringing home awards are:
+
+Amelia Garrett (Senior) - Dramatic Interpretation: 1st place & Storytelling: 3rd place.
+
+Landon Wharton (Senior) - Dramatic Interpretation: 5th place.
+
+Luci Gutierrez (Senior) - Novice Congressional Debate Finalist
+
+Roseli Pineda (Junior) - Varsity Congressional Debate Finalist
+
+Zenna Dean (Junior) - Varsity Congressional Debate Finalist
+
+Dylan Simmons (Senior) - Varsity IPDA debate: Quarterfinalist & 5th place Speaker
+
+Seth Chesshir (Senior) - Varsity IPDA debate: Quarterfinalist & 3rd place Speaker
+
+The following competitors earned their Arkansas State Championship Tournament bid: Amelia Garrett (Dramatic Interpretation & Storytelling), Luci Gutierrez (Novice Congressional Debate), Dylan Simmons & Seth Chesshir (Varsity IPDA Debate). 
+
+Amelia Garrett also eaned her 1st bid to the University of Kentucky Tournament of Champions in Dramatic Interpretation. 
+
+Also competing at RHS were: Finn Williams, Ava Guenther, Drayton Davis, Ronald Weaver, Carson Dunlap, Charlie Barrett, and Elmina Azizova.
+
+### 2026-11-18 · Joseph Moon (id 13863154)
+
+Mark your calendars for The John Stanton Classic presented by Bank OZK!  Lots of great basketball action in Buzz Bolding Arena on Dec. 18-19. The Wampus Cats play twice as well as several other top teams from around the state. Make plans to come watch some great basketball!
+
+### 2026-11-18 · Conway High School (id 13865180)
+
+♟️ Making moves on the chessboard!
+
+The Conway High School Chess Team competed in the Cabot Grand Prix Tournament this past weekend, earning an impressive 4th-place finish out of 14 schools from across the state!
+
+Congratulations to our chess team on a great tournament and a job well done! We're proud of you! 💙🤍
+
+#WampusCats #ConwayHighSchool #ChessTeam
+
+### 2026-11-18 · Conway High School (id 13868314)
+
+From the page to the stage! 🎭 Mrs. Vinson’s seniors brought Shakespeare to life as they acted out the tragic conclusion of Hamlet. A little drama, a lot of talent, and a memorable way to bring literature to life!
+
+#ConwayHighSchool #WampusCats#Hamlet #LearningInAction
+
+### 2026-11-19 · Canaan Groesbeck (id 13835177)
+
+Meet day for our Swim and Dive teams! Go out and support this awesome group of kids at a BIG home meet at Hendrix!!
+
+### 2026-11-19 · Conway Athletics (id 13853651)
+
+Below is the ticket link for tonight's JV/V boys basketball games at Russellville. 
+
+Link: https://gofan.co/event/7028516?schoolId=AR18678
+
+### 2026-11-19 · Joseph Moon (id 13877084)
+
+Cats @ Russellville tonight!
+
+### 2026-11-19 · Conway Public Schools (id 13879866)
+
+SHOW YOUR WAMPUS CAT PRIDE!Our 2026 Conference Champs T-shirts are here! Help us celebrate the Wampus Cats and support the Six Legs Nation!👕 Adult T-shirts:
+• Small–XL: $20
+• 2XL–3XL: $25These shirts are available in limited quantities, so get yours while supplies last!📍 Available for purchase at the Community Pep Rally TODAY at 5 PM at the Fieldhouse and Friday night at the game.Proceeds benefit the Conway Booster Club!GO CATS! 💙#WeAreCPSD #WeAreConway #TeamConway #WampusCatNation #ChampionsforKids
+
+### 2026-11-19 · Conway Public Schools (id 13879879)
+
+SHOW YOUR WAMPUS CAT PRIDE!Our 2026 Conference Champs T-shirts are here! Help us celebrate the Wampus Cats and support the Six Legs Nation!👕 Adult T-shirts:
+• Small–XL: $20
+• 2XL–3XL: $25These shirts are available in limited quantities, so get yours while supplies last!📍 Available for purchase at the Community Pep Rally TODAY at 5 PM at the Fieldhouse and Friday night at the game.Proceeds benefit the Conway Booster Club!GO CATS! 💙#WeAreCPSD #WeAreConway #TeamConway #WampusCatNation #ChampionsforKids
+
