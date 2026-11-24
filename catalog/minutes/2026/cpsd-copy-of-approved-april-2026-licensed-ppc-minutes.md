@@ -18,6 +18,6 @@ date: 2026-04-30
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'Copy of Approved April 2026 - Licensed PPC Minutes' from the [cpsd-ppc-minutes-2025-2026] container; extracted with anydoc.

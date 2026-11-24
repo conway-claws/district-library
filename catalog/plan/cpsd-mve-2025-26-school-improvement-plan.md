@@ -18,6 +18,6 @@ sha256: 14bf16ae586ee08bbff3dedc1b695c5fa360c43983d0e2dce7ccd61eb0d739b6
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'MVE 2025-26 School Improvement Plan.pdf' from the [cpsd-school-action-plans-2025-2026] container; extracted with anydoc.

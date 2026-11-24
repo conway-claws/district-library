@@ -19,6 +19,6 @@ sha256: 43cf165f6c982d5a152bb89fada896e1fcde2dfb360fc6b596c4314b026daaf6
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.40 Licensed Personnel Licensure and Re-Licensure.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

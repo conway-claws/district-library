@@ -19,6 +19,6 @@ sha256: 154943f060880bf6a39badab6b26031fbfe96d7154cf6a4bdc030b59a2261dce
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.26 Licensed Personnel Supervision of Students.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

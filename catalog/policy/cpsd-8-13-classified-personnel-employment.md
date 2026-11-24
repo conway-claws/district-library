@@ -19,6 +19,6 @@ sha256: a1447ab43c09ca0298cdd1456b2eb8b68ab63d644efafc9bed0e8633d575d2c4
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '8.13 - Classified Personnel Employment.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

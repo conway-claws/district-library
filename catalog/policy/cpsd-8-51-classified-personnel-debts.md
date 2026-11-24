@@ -15,7 +15,7 @@ verified: 2026-11-23
 status: current
 tags: [school-board, policy, classified-personnel]
 sha256: 8d8fd79d198cb6ba945809888948fadf1e0f8fb3a16d06a9683cd832fe80446f
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 last_check: 2026-11-23
 fail_since:
 fail_reason:

@@ -19,6 +19,6 @@ sha256: 43be569f8f92c34b6be53a6fc78970f554d414877a3a0c5855ffaaa6c7122398
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.27.1 Licensed Personnel Email Use and Retention.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

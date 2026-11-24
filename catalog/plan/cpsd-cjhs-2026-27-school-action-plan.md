@@ -18,6 +18,6 @@ sha256: 17c528a42d9727bbd6a0f5859d4fdf9fbf5db5a5ea321914304d1ba4ac64ead0
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'CJHS 2026-27 School Action Plan.pdf' from the [cpsd-school-action-plans-2026-2027] container; extracted with anydoc.

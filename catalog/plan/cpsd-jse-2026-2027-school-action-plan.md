@@ -18,6 +18,6 @@ sha256: 25aa4de578bb91bf98253fc9235810b0d719487298b435967c97ba8424752614
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'JSE 2026-2027 School Action Plan.pdf' from the [cpsd-school-action-plans-2026-2027] container; extracted with anydoc.

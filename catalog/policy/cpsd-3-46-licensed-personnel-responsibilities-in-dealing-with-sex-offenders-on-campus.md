@@ -20,6 +20,6 @@ supersedes: cpsd-3-46-licensed-personnel-responsibilities-in-dealing-with-sex-of
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.46 Licensed Personnel Responsibilities in Dealing with Sex Offenders on Campus.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

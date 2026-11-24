@@ -19,6 +19,6 @@ sha256: 3f807fbaaf0fa614f35ebf8621aaea5fca84fda4c98716415c96f69f3037ee14
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.52 Licensed Personnel Inspeaction-Selection of Instructional Materials.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

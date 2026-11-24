@@ -18,6 +18,6 @@ sha256: 4901c374bec3ea3db6431715946fc39a4f4aa6621e596f4d90090b4b3988e450
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'Ellen Smith Elementary, 24-25 School Action Plan.pdf' from the [cpsd-school-action-plans-2024-2025] container; extracted with anydoc.

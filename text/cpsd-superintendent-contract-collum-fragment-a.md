@@ -183,10 +183,7 @@ pursuant to this paragraph may be met by the purchase of a policy of liability i
 the Superintendent.
 
 6.7 This Contract shall be binding upon and inure to the benefit of the Superintendent, his successor,
-
-assigns, heirs, executors, and personal representative and shall be binding upon and inure to the benefit of the Board.
-
-.
+assigns, heirs, executors, and personal representative and shall be binding upon and inure to the benefit of the Board,
 
 its successors, and assigns.
 
@@ -289,11 +286,11 @@ On aes , Mrs. Linda Hargis
 
 Secyétary, Board of Education
 
-By: ; Mr. Andre Acklin
-q U Uv"
+By: , Mr. Andre Acklin
+q q ( ©
 
 President, Board of Education
 
-By: SPL , Jeff 8. Collum, Ed.D.
+By: PLL , Jeff 8. Collum, Ed.D.
 
 Superintendent of Schools

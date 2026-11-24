@@ -19,6 +19,6 @@ sha256: 043298d0d914f4bb4ab3815a62ab96db370e5584cfa8899f3b2e3b76c04b70da
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.27- Licensed Personnel Technology Use Policy.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

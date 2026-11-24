@@ -18,6 +18,6 @@ sha256: 6919de2c658ae66058d58096f57eaede877ee574496bb429ea008b9c84ee7534
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'Julia Lee Moore.pdf' from the [cpsd-family-engagement-plans-2024-2025] container; extracted with anydoc.

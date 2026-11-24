@@ -19,6 +19,6 @@ sha256: 7031d992f4361699107332db22edc50b3110e967b015a6ad9b0238ba4b6ac4d7
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '8.1 - Classified Personnel Salary Schedule.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

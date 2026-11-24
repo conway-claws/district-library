@@ -18,6 +18,6 @@ sha256: 3150b749d0e807e837795f6c7e4d264d0b0be0ea64b57aa2e830c32094f01058
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'CJHS.pdf' from the [cpsd-family-engagement-plans-2024-2025] container; extracted with anydoc.

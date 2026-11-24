@@ -18,6 +18,6 @@ sha256: 51cb961710fb76a0a360d9d7858e8e0a3cdd59769c61dddc607f18b81eefbb6d
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'Conway Junior High School, 24-25 School Action Plan.pdf' from the [cpsd-school-action-plans-2024-2025] container; extracted with anydoc.

@@ -18,6 +18,6 @@ date: 2023-09-07
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '09_07_23 Classified Minutes' from the [cpsd-ppc-minutes-2023-2024] container; extracted with anydoc.

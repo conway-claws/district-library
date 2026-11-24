@@ -18,6 +18,6 @@ sha256: 7bf283ece455e98314f812caa5ee1f79b7724eb027bdd52b273c7d0a6d125872
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'Jim Stone.pdf' from the [cpsd-family-engagement-plans-2024-2025] container; extracted with anydoc.

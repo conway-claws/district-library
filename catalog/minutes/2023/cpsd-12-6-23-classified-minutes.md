@@ -19,6 +19,6 @@ sha256: c88bd66f2faa9dd01332e870084941d9955d81bef086a90436820d2a0d569462
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '12-6-23 Classified Minutes' from the [cpsd-ppc-minutes-2023-2024] container; extracted with anydoc.

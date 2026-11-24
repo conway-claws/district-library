@@ -18,6 +18,6 @@ sha256: db96490f536d1450eed089952a48d12a7770a87b4cefa211dddac73f2fcf810c
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'Jim Stone Elementary, 24-25 School Action Plan.pdf' from the [cpsd-school-action-plans-2024-2025] container; extracted with anydoc.

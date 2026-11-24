@@ -19,6 +19,6 @@ sha256: ba2035439a83cedddc13d24244b710b6c7c2e6ab2a804a091dc64a0040aca7ec
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.62 Licensed Personnel Job Abandonment.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

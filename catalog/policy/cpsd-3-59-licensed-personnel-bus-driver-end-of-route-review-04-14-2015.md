@@ -19,6 +19,6 @@ sha256: 039d799f6d41df39ee371637cec0714426bb506e0b14ffc567a0105e09bdb898
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.59 Licensed Personnel Bus Driver End of Route Review 04.14.2015.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

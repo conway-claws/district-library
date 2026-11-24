@@ -20,6 +20,6 @@ supersedes: cpsd-8-36-classified-personnel-responsibilities-in-dealing-with-sex-
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '8.36 Classified Personnel Responsibilities in Dealing with Sex Offenders on Campus.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

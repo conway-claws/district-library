@@ -18,6 +18,6 @@ sha256: ad4f2656aacb8c6f10b0f8a6ff608bd7d769b0b99b525ba6a1688f511756162e
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'Ruth Doyle Middle School School Action Plan_ 25-26.pdf' from the [cpsd-school-action-plans-2025-2026] container; extracted with anydoc.

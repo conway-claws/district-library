@@ -18,6 +18,6 @@ sha256: e9b6e67b497350ef0db89a598ce9d0346a586957ef6d2f589fa58bfb1823369b
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'Ida Burns.pdf' from the [cpsd-family-engagement-plans-2024-2025] container; extracted with anydoc.

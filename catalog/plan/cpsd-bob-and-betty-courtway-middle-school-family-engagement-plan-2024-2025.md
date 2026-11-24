@@ -18,6 +18,6 @@ sha256: 5dce930b53ee9f42cc3ec299f7a99afd6c60b0050a8254d062a4ba215c83e4d7
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'CMS.pdf' from the [cpsd-family-engagement-plans-2024-2025] container; extracted with anydoc.

@@ -18,6 +18,6 @@ sha256: d2dce3215235c21a3749008150e8da1d3dd514f23e7484b92196f151be2677c6
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'CJHS 25_26 School Improvement Plan.pdf' from the [cpsd-school-action-plans-2025-2026] container; extracted with anydoc.

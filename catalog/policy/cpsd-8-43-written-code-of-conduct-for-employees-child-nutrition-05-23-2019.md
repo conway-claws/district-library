@@ -20,6 +20,6 @@ supersedes: cpsd-8-43-written-code-of-conduct-for-employees-child-nutrition
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '8.43 Written Code of Conduct for Employees-Child Nutrition 05.23.2019.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

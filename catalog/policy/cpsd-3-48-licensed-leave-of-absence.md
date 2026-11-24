@@ -19,6 +19,6 @@ sha256: 5fa15f17075e27ae4c0068d264d8f16056be29485212df074dd3410a133321c4
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.48 - Licensed Leave of Absence.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

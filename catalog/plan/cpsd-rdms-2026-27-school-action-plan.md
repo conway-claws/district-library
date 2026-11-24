@@ -18,6 +18,6 @@ sha256: 4177fa9079bad5467255932b847071005ddb497ac08be3454e01db387c12722a
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'RDMS 2026-27 School Action Plan.pdf' from the [cpsd-school-action-plans-2026-2027] container; extracted with anydoc.

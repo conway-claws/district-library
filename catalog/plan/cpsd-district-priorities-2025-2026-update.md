@@ -18,6 +18,6 @@ sha256: 8cf3d0a2447008b7d7da911b325b7b767318bcd3fc9cbb3cfd3ea70734c0dcdd
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Extracted with anydoc from the district's published PDF.

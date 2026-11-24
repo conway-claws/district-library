@@ -19,6 +19,6 @@ sha256: 9a641e75d2e36520cfcf088f60337a5c9ca68b40feaec609dd5585189bd9ea2b
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '8.28 - Drug Free Workplace - Classified Personnel.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

@@ -18,6 +18,6 @@ sha256: 5ea6b40e23e9dbafea7d75faa113893cadcf4dc7b8cb3f789263cda9430e6ce7
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '04 Students.pdf' from the [cpsd-board-policies-folder] container; extracted with anydoc.

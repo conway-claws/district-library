@@ -19,6 +19,6 @@ sha256: 1459c167a5dd03e5c318d209e7e39bed3e993a4c92fbd066b90a3bd6c515d469
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.09 Licensed Personnel Catastrophic Sick Leave 04.13.2021.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

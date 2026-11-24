@@ -19,6 +19,6 @@ sha256: 9ad92f7d0a06db2f27e975ea890609ce11cd34679126fc459b9bc4aada1ae5ac
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.43 Licensed Personnel National Board Certification.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

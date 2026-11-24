@@ -19,6 +19,6 @@ sha256: 3defa0b6fab07d94655d92418a0716a5fa67fded20a8c521ecbef1589471ccc0
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '12_6_23 Licensed PPC Minutes.pdf' from the [cpsd-ppc-minutes-2023-2024] container; extracted with anydoc.

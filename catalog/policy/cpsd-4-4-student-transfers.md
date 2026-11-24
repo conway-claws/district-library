@@ -14,7 +14,7 @@ retrieved: 2026-09-30
 verified: 2026-11-23
 date: 2024-06-11
 sha256: 4fef16fe70f2af45bf9ae615630d824016d897d3c27bfc1808fa6c1ed2095827
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 status: current
 tags: [school-board, policy, students]
 last_check: 2026-11-23

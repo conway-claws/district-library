@@ -18,6 +18,6 @@ sha256: 40f0c6705aa7c661f31b02db4c0ad6c1ba3a99c91cff6ab1eaca10ce52658b88
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file 'Florence Matison.pdf' from the [cpsd-family-engagement-plans-2024-2025] container; extracted with anydoc.

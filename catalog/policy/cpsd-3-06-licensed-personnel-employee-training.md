@@ -19,6 +19,6 @@ sha256: 38dbd37813833207e3fa6f9b1788685314274d0a2da659250e133ef2acaec9f7
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.06 - Licensed Personnel Employee Training.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

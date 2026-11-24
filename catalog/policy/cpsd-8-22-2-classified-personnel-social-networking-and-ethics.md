@@ -19,6 +19,6 @@ sha256: 277ddfee24614df204f2a5716ab39fb5a50c3b808346d51420a0e25e3f765296
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '8.22.2 - Classified Personnel Social Networking and Ethics.pdf' from the [cpsd-08-classified-personnel] container; extracted with anydoc.

@@ -19,6 +19,6 @@ sha256: ed064fd221fd0b0093741ffc858d729cc199503796c2e44eb377202f4b75c976
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.15 Licensed Personnel Leave-Injury from Assault.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

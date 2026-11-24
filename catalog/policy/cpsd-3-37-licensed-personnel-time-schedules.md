@@ -19,6 +19,6 @@ sha256: ac89dc347139f417380b02b295c530c1514c930749523715c9ef772f61aa615f
 last_check: 2026-11-23
 fail_since:
 fail_reason:
-extractor: anydoc@0.2.4
+extractor: anydoc@0.2.5
 ---
 Source file '3.37 Licensed Personnel Time Schedules.pdf' from the [cpsd-03-licensed-personnel] container; extracted with anydoc.

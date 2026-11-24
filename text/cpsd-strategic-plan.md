@@ -5,7 +5,7 @@ Long-Range
 STRATEGIC PIAN
 2026-2031
 
-“Sewing Students. Supporting Staff. Strengthening Community."
+“Sewing Students. Supporting Staff. Strengthening Community.”
 
 Dear Conway Public Schools Families, Teachers, Staff, Students, and Community Members,
 
