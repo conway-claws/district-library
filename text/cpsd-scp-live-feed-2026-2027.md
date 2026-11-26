@@ -702,3 +702,92 @@ From exploring nutritious foods to thinking about balanced meals, our little lea
 We are building healthy habits, practicing decision-making, and learning that taking care of ourselves can be fun! 🌟👩‍🍳👨‍🍳
 #SallieConePreschool #HappyMeHealthyMe #HealthyHabits🐾
 
+### 2026-11-19 · Sallie Cone Preschool (id 13878122)
+
+🧼🫧 Happy Me, Healthy Me! 🧸💗
+
+Learning about germs and the importance of washing our hands! This little learner is putting what she knows into practice by washing her baby’s hands to help keep those germs away. 👐🦠
+
+Through pretend play, our students are learning healthy habits, practicing self-care, and discovering how we can help keep ourselves and others healthy! 💦❤️
+
+#SallieConePreschool #HappyMeHealthyMe #HealthyHabits 🐾
+
+### 2026-11-20 · Conway Public Schools (id 12662851)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-20 · Sallie Cone Preschool (id 13878207)
+
+🧴🪮 Happy Me, Healthy Me! 🛁💗
+
+Our students are learning the importance of taking care of their hair and bodies! Through hands-on exploration and pretend play, they are practicing self-care, building independence, and learning healthy daily habits. 🌟
+
+Little steps toward big healthy habits! ❤️🐾
+
+#SallieConePreschool #HappyMeHealthyMe #GrowingHealthyHabits
+
+### 2026-11-20 · Sallie Cone Preschool (id 13853358)
+
+Thanksgiving Break is November 23-27 :) 
+Enjoy this time with family and friends, plenty of yummy food, and lots of reasons to be thankful
+
+### 2026-11-20 · Marci Martin (id 13893577)
+
+📸 **Fall Picture Reminder!** 🍁
+
+If your child took fall pictures, orders and payments are due **Monday, November 30**, when we return from Thanksgiving Break!
+
+💵 Payments sent to school must be **cash (exact amount) or check**.
+
+Questions, missing order forms, or want to pay by card? Contact Strain Photography at **(501) 358-6150**.
+
+🐾 Thank you, Littlest Cats families! 💙
+
+### 2026-11-23 · Sallie Cone Preschool (id 13878273)
+
+💙😊 Big Feelings, Little Learners! 💛
+
+Learning about our emotions is an important part of growing at Sallie Cone Preschool! Through everyday experiences and conversations, our students are learning to recognize their feelings, express themselves, and understand the feelings of others. 🥰
+
+We are building strong social-emotional skills, one feeling at a time! 🌈💕
+
+#SallieConePreschool #SocialEmotionalLearning #GrowingTogether 🐾
+
+### 2026-11-24 · Sallie Cone Preschool (id 13892294)
+
+🔧⚙️ Learning, building, and creating in our Left Brain Think It, Build It Room! 🧠💡
+
+Our little learners are counting, exploring tools and machines, and using their creativity and working memory to bring their ideas to life! 🛠️🔢
+
+Through hands-on play, they are building problem-solving skills, practicing number skills, and learning to think, plan, and create! 🌟💙
+
+#SallieConePreschool #LittleLearnersBigIdeas 🐾
+
+### 2026-11-25 · Sallie Cone Preschool (id 13905554)
+
+🦃🎨 Turkey Takeover at Sallie Cone Preschool! 🎨🦃
+
+Our preschoolers spent several days using their imaginations to disguise their turkeys! From an Elsa-inspired turkey with a 3D dress, to a colorful Fruit Loops creation and even Clifford the Big Red Dog, their creativity was on full display! ❄️❤️🌈
+
+Along the way, they practiced important skills like:
+
+🧠 Problem-solving and critical thinking
+✂️ Fine motor skills and hand-eye coordination
+🎨 Creativity and imagination
+💬 Language and communication
+⏳ Patience, focus and following through with a project
+
+We love seeing our little learners' big ideas come to life! Great job, friends! 💙🐾
+
+### 2026-11-26 · Sallie Cone Preschool (id 13931256)
+
+🎈🎶 Thanksgiving Day Parade at Sallie Cone Preschool! 🦃🍂
+
+Our Zoom & Vroom friends celebrated Macy’s Thanksgiving Day Parade preschool-style! Each child created their very own balloon and marched in a parade line to the music on their way to lunch. What a fun way to celebrate! ❤️
+
+From all of us at Sallie Cone Preschool, Happy Thanksgiving! 🧡🦃🍁 We are thankful for our wonderful students and families! 💙🐾
+

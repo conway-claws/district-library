@@ -2176,3 +2176,43 @@ Select “4th Grade,” click “Get Started,” then fill out the information a
 
 Don't miss this special opportunity to celebrate your 4th grader! 💙
 
+### 2026-11-20 · Conway Public Schools (id 12662855)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-20 · Carolyn Lewis Elementary (id 13888327)
+
+CLE is teaming up with our Wampus Cat Pantry for a Christmas Food Drive. We are excited to partner and provide meals during Christmas break! Please help us reach our goal of over 500 items!  #WeAreCLE
+
+### 2026-11-20 · Carolyn Lewis Elementary (id 13812621)
+
+❄️🎄 Don't forget! CLE Winter Wonderland is almost here! 🎄❄️
+
+Join us Thursday, December 10th, from 5:00–6:30 PM for a magical evening of winter fun!
+
+✨ Remember, this year’s Winter Wonderland will be an indoor WALK-THROUGH event instead of a drive-through!
+
+We can't wait to see our CLE families there! 💙🐾
+
+#WeAreCLE
+
+### 2026-11-20 · Carolyn Lewis Elementary (id 13888998)
+
+📢 The weekly Cat Courier is here! 🎉 Check your email, text messages, or the Conway Schools app for the link to this week’s CLE newsletter. Stay in the know with all things CLE! 💙 #WeAreCLE
+
+### 2026-11-26 · Carolyn Lewis Elementary (id 13812623)
+
+❄️🎄 TWO WEEKS AWAY! 🎄❄️
+
+CLE Winter Wonderland is just around the corner! Join us on Thursday, December 10th, from 5:00–6:30 PM for a magical evening of holiday fun!
+
+✨ Don't forget! This year will be an indoor WALK-THROUGH event instead of a drive-through!
+
+We can't wait to see our Little Cats and their families! 💙🐾
+
+#WeAreCLE
+

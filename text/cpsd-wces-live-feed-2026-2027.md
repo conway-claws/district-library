@@ -1773,3 +1773,43 @@ Second grade brought Balloons Over Broadway to life! From creative balloon desig
 
 A little creativity, a whole lot of learning, and memories made along the way! 🎈🍂
 
+### 2026-11-19 · Jenna Havlik (id 13884337)
+
+Mrs. Brown’s kindergarten class has been working hard learning all about shapes! Today, we celebrated everything we've learned with a fun Thanksgiving Shape Feast. We had a great time learning, celebrating, and putting our shape knowledge to the test!
+
+### 2026-11-20 · Conway Public Schools (id 12662853)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-20 · Jenna Havlik (id 13887824)
+
+🦃 Mrs. Kingsbury and Mrs. Moyer went all out to make morning arrival a little more gobble-worthy today! We’re stuffed with school spirit and thankful for our amazing students!
+
+### 2026-11-20 · Woodrow Cummins Elementary (id 13889698)
+
+Mrs. Wilcox' class Thanksgiving Shape Feast was full of fun, food, and learning! We celebrated by creating our own Thanksgiving shape feasts and enjoyed a little parade fun with our very own School Balloons Over Broadway!So thankful for these sweet kiddos and all the fun memories we’re making in kindergarten!
+
+### 2026-11-20 · Woodrow Cummins Elementary (id 13896704)
+
+We have the BEST PTO and we are SO THANKFUL for them.  Today they provided our staff with a delicious Thanksgiving meal.  We are so blessed with such a supportive community who constantly work to show how much they value and support our WCE staff!  Thank you!!
+
+### 2026-11-20 · Jenna Havlik (id 13900077)
+
+4th grade always enjoys a visit from Patty G. Today he experimented and taught about chemical reactions!
+
+### 2026-11-26 · Woodrow Cummins Elementary (id 13898395)
+
+Happy Thanksgiving! 🦃
+
+Today, we want to take a moment to express how truly thankful we are for our wonderful WCE families! Your support, kindness, and involvement make our school such a special place to learn and grow.
+
+We are especially grateful that you share your precious Little Cats with us each day and for the opportunity to be part of their lives.
+
+We hope your day is filled with love, laughter, delicious food, and special memories with those you love most!
+
+Happy Thanksgiving from our WCE family to yours!
+

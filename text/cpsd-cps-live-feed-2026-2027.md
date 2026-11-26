@@ -980,3 +980,68 @@ SHOW YOUR WAMPUS CAT PRIDE!Our 2026 Conference Champs T-shirts are here! Help us
 • Small–XL: $20
 • 2XL–3XL: $25These shirts are available in limited quantities, so get yours while supplies last!📍 Available for purchase at the Community Pep Rally TODAY at 5 PM at the Fieldhouse and Friday night at the game.Proceeds benefit the Conway Booster Club!GO CATS! 💙#WeAreCPSD #WeAreConway #TeamConway #WampusCatNation #ChampionsforKids
 
+### 2026-11-19 · Conway Public Schools (id 13881757)
+
+Wampus Cat Families! 
+Tomorrow (Friday November 20) is our Cats & Community Food Drive at Conway High School! 
+Join us in the Conway High School roundabout from 10 AM - 12 PM as we have approximately 170 boxes of food to help take care of our Conway families during Thanksgiving break!
+Team Conway, parents, students, and community members, we hope to see you there! https://www.youtube.com/watch?v=TAIYnd6PLPQ
+Wishing everyone a very, very, VERY Happy Thanksgiving! 🦃 
+CPSD
+
+### 2026-11-20 · Conway Public Schools (id 13376958)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-20 · Conway Public Schools (id 12662850)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-20 · Conway Public Schools (id 13889987)
+
+On Wednesday, Nov. 11th, 45 staff of CPS participated in the Wellness 5K. How fitting for this to take place on Veterans Day at the Veterans Plaza @ Pompe Park. Those participating had the opportunity to walk or run. The weather was perfect and the fellowship and camaraderie was evident among the participants. Wellness committee members were on site to assist with registration, directions for the route and cheering on participants. Thank you to all who participated, assisted and encouraged your staff to continue to work toward good health. Stay tuned for future events.
+
+### 2026-11-20 · Conway Public Schools (id 13891039)
+
+Our Cats & Community Food Drive at Conway High School is underway right now! We are here till 12:00pm or until supplies last. Come get a food box to help through the Thanksgiving break!
+
+### 2026-11-20 · Tim McMahan (id 13894138)
+
+Please make sure all water is off to your chemical dispensers before you leave today. Day shift please empty your trash to make sure food is out. Enjoy your break you deserve it!!
+Thanks
+
+### 2026-11-20 · Conway Public Schools (id 13894555)
+
+💙🐾 WHAT A SUCCESSFUL DAY FOR OUR CATS & COMMUNITY! 🐾💙Today’s Cats & Community Food Drive was a HUGE success! We are so thankful to share that all of our food boxes were given away to help take care of Conway families.It takes a TEAM to make something like this happen, and we have so many people to thank for making today possible!A BIG thank you to:
+💙 Arkansas Food Bank
+💙 United Way of Central  Arkansas
+💙 New Life Church
+💙 Phi Mu Mu Chapter of Omega Psi Phi
+💙 All of our CPSD campuses that served as collection sites
+💙 Kroger (Salem/Prince) and Walmart (Hwy. 65) for serving as collection sites
+💙 Our school staff who helped pack and distribute the food boxes
+💙 ALL of our community members who donated food and goodsYour generosity, time, and support made a difference for families right here in our community. We are grateful to be part of a community that continues to show up for one another!And we're not done yet! Be on the lookout for more information about our next Cats & Community Food Drive on December 18!Thank you, Team Conway, for showing what it means to take care of our own! 💙#WeAreCPSD #WeAreConway #TeamConway #WampusCatNation #ChampionsforKids
+
+### 2026-11-20 · Conway Public Schools (id 13896354)
+
+Officially Welcoming Tyler Moses to the Conway School Board! We are excited to officially welcome Tyler Moses, who has been certified and sworn in as the newest member of the Conway School Board, representing Zone 3! 💙📚We appreciate Mr. Moses' willingness to serve our students, families, and community and look forward to working together to continue providing opportunities for every student to succeed.Welcome to the Conway School Board and Team Conway, Mr. Moses! 💙#WeAreCPSD #WeAreConway #TeamConway #WampusCatNation #ChampionsforKids
+
+### 2026-11-20 · Conway Public Schools (id 13897356)
+
+Our CPSD principals came together for their monthly Instructional Leadership Team (ILT) meeting, collaborating around instructional priorities, sharing insights, and reflecting on practices that make a difference in student learning. Through meaningful conversations, data-driven discussions, and shared problem-solving, our leaders continue to strengthen their collective impact on teaching and learning across Conway Public Schools. Great leadership. Shared purpose. Better learning for every student! 
+#WeAreCPSD #WeAreConway #TeamConway #WampusCatNation #ChampionsforKids
+
+### 2026-11-26 · Tim McMahan (id 13930803)
+
+I just want to say happy Thanksgiving to my extended family. I'm thankful to be a part of your team and I'm thankful for each and every one of you. I hope you're able to get some great rest and spend some wonderful time making memories with family and friends. I love each and every one of you and I look forward to many years of service next to your side.
+
+TMac
+

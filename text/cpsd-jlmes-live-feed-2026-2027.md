@@ -1392,3 +1392,41 @@ Big smiles, great stories, and special connections! Our older students enjoyed r
 
 #JuliaLeeMoore #WeAreJLM #Kindergarten #LearningTogether
 
+### 2026-11-19 · Julia Lee Moore Elementary (id 13849781)
+
+Reminder: Kona Ice is coming to JLM tomorrow, November 20th. Please return the Kona Ice envelope with exact cash or a check made payable to Kona Ice if you wish to have your child participate. Thank you for supporting JLM!
+
+#JuliaLeeMoore #WeAreJLM #KonaIce
+
+### 2026-11-20 · Julia Lee Moore Elementary (id 13861697)
+
+Nothing beats seeing generations come together at JLM! 💙✨ Thank you to all the wonderful grandparents and special guests who joined us for Grandparents Night. Between browsing the book fair, snapping fun photo booth pics, playing math and literacy games, and sharing cookies and lemonade, the hallways were full of smiles and sweet memories. We love our JLM families! 📚🍪📸
+
+#JuliaLeeMoore #WeAreJLM #GrandparentsNight
+
+### 2026-11-20 · Conway Public Schools (id 12662857)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-23 · Julia Lee Moore Elementary (id 13888638)
+
+The cutest flock in town! 🦃Kindergarten gathered together in their handmade turkey vests and feather headbands for our Thanksgiving Feast. Watching them share a meal, perform their songs, and celebrate with family and friends made for the sweetest afternoon. Thank you to everyone who helped make this tradition so special! 🥧🍎
+
+#JuliaLeeMoore #WeAreJLM #Kindergarten #ThanksgivingFeast
+
+### 2026-11-24 · Julia Lee Moore Elementary (id 13890731)
+
+Move over, Macy’s—1st grade is coming through! 🎈🦃 After reading Balloons Over Broadway by Melissa Sweet, our students crafted their own colorful character balloons and held a Thanksgiving parade right down the school hallways!
+
+#JuliaLeeMoore #WeAreJLM #FirstGrade #BalloonsOverBroadway
+
+### 2026-11-25 · Julia Lee Moore Elementary (id 13925611)
+
+Operation: Save the Turkeys is officially underway! 🕵️‍♂️🎨 Our students worked hard today to help their turkeys go undercover before Thanksgiving!
+
+#JuliaLeeMoore #WeAreJLM #DisguiseATurkey
+

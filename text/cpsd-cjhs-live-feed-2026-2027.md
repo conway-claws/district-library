@@ -2098,3 +2098,38 @@ Just a friendly reminder that our Thanksgiving Potluck is THIS FRIDAY! 🍂 If y
 
 Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
 
+### 2026-11-19 · Conway Junior High (id 13883576)
+
+🩵 Pajama Pants Day is tomorrow! 
+
+Join us on Friday, November 20th by wearing your favorite school-appropriate pajama pants or a PJ onesie!
+
+### 2026-11-20 · Conway Public Schools (id 12662865)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-20 · Conway Athletics (id 13885226)
+
+Conway Junior High Boys' basketball team traveled to Jonesboro to pick up two non-conference wins tonight.
+
+### 2026-11-20 · Conway Junior High (id 13862884)
+
+Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
+
+### 2026-11-20 · Conway Junior High (id 13888496)
+
+Dear Students,Here are the important CJHS updates and announcements for the day.Link to Announcements: https://docs.google.com/document/d/1iZFTc4zNO3M0DJeR_06mEAFfO5Jqzxu9GCoOkKRnIc0/edit?usp=sharing
+
+### 2026-11-20 · Conway Junior High (id 13894380)
+
+Just a friendly reminder to grab any dishes or items you brought for our Thanksgiving potluck before heading home today! Thank you so much to everyone who brought something and helped make it special. We appreciate you all! Hope you have a wonderful Thanksgiving break!
+
+### 2026-11-20 · Conway Athletics (id 13894807)
+
+Conway 8th Grade Basketball Jamboree
+Tickets can be purchased at https://gofan.co/event/6970459?schoolId=AR4663
+

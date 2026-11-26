@@ -1611,3 +1611,23 @@ Original picture packages came home with students on Friday, November 13 OR Mond
 
 #WeAreCarlStuart #WeAreConway #ChampionsforKids
 
+### 2026-11-19 · Carl Stuart Middle School (id 13857295)
+
+Reminder: Hat day is tomorrow, November 20. Students will need to bring $1 to participate.
+
+### 2026-11-20 · Conway Public Schools (id 12662864)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-20 · Carl Stuart Middle School (id 13891595)
+
+Math class got a little sweeter! 🥤 Mrs. Arizmendi’s 5th graders created their own dirty soda recipes while practicing adding and subtracting fractions using equivalent fractions. Students chose their ingredients, mixed up their ideas, and put their math skills to work!
+
+The most popular recipe created was the Orange Dreamsicle- made up of Fanta, half and half, and vanilla syrup :)
+
+#WeAreCarlStuart #WeAreConway #ChampionsforKids
+

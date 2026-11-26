@@ -4060,3 +4060,134 @@ SHOW YOUR WAMPUS CAT PRIDE!Our 2026 Conference Champs T-shirts are here! Help us
 • Small–XL: $20
 • 2XL–3XL: $25These shirts are available in limited quantities, so get yours while supplies last!📍 Available for purchase at the Community Pep Rally TODAY at 5 PM at the Fieldhouse and Friday night at the game.Proceeds benefit the Conway Booster Club!GO CATS! 💙#WeAreCPSD #WeAreConway #TeamConway #WampusCatNation #ChampionsforKids
 
+### 2026-11-19 · Joseph Moon (id 13885027)
+
+Another road win! Catch us Saturday afternoon at LRCA. We play at 3:30 at Da Matchup Showcase vs. Fort Smith Northside!
+
+### 2026-11-20 · Conway Public Schools (id 12662866)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-20 · Canaan Groesbeck (id 13887805)
+
+Congratulations to our boy's and girl's swim and dive teams on winning 1st place overall last night! This was a very competitive meet and we came out on top! Way to go, Cats! 
+
+High Point: Riley Espinosa and Cameron Gooch 
+Results: https://www.swimcloud.com/results/396573/admin/reports/resultssheets/
+
+### 2026-11-20 · Marcelle Goins (id 13889215)
+
+Just a reminder that tonight's football playoff game is a AAA event.  Employee Badges, season passes or all sport passes are not accepted for admission.  All tickets will need to be purchased using the link below.
+
+🔗: https://gofan.co/event/7077162
+
+AAA passes are the only valid passes for entry.
+
+See you tonight!
+
+### 2026-11-20 · Conway Athletics (id 13890409)
+
+🚨 IT’S GAME DAY, LADY CATS! 🚨
+
+🏀 The Lady Cats are headed to Little Rock for the 2026 DA Matchup Showcase!
+
+🆚 Joe T. Robinson
+📍 Little Rock Christian High School
+📅 Friday, November 20
+⏰ 5:00 PM
+
+Another opportunity to compete, get better, and represent Conway! 🚾🏀
+
+### 2026-11-20 · Conway High School (id 13890621)
+
+A positive outlook can make all the difference! 🌟
+
+Members of Conway High School’s Black Student Union welcomed Rene Henderson, Rosilyn Walker, and Brandi Sharp of the Conway Morning Optimist Club for an inspiring conversation about maintaining an optimistic attitude, understanding where we come from, and having a vision for where we want to go.
+
+A special thank-you to Oracle Scholarship recipient Marty for sharing his experiences with the Optimist Club, too! We appreciate the encouragement and look forward to building our partnership through Junior Optimist International (JOI).
+
+#WampusCats #BlackStudentUnion #Optimism #BuildingBrightFutures
+
+### 2026-11-20 · Canaan Groesbeck (id 13893045)
+
+Come out and watch these two Lady Cats play in the All Star game tomorrow at 4pm at Greenbrier High School! We are so proud of you, Braylin and Addy! Way to go! 
+
+Ticket Link: https://gofan.co/event/7062592?schoolId=AR101395
+Live Stream: Greenbrier's Hudl Fan
+
+### 2026-11-20 · Conway High School (id 13896003)
+
+A little Thanksgiving goodness for the people who make CHS great! 🦃🍂 Today, our teachers and staff enjoyed a delicious Thanksgiving lunch, generously provided by Make A Meal and Vincent’s BBQ. A special thank-you to our administrators and office staff for taking the time to serve and make everyone feel appreciated. We are grateful for this wonderful school community! 💙
+
+#WampusCats #Thankful #CHSPride
+
+### 2026-11-20 · Conway High School (id 13896497)
+
+Congratulations to Mr. Brandon Null, our November Teacher of the Month! 🎉
+
+Mr. Null has a way of making students feel seen, valued, and cared for. His students describe him as kind, understanding, and encouraging, praising not only his ability to make learning meaningful but also the genuine connections he builds with those around him. Whether he's teaching in the classroom or offering a listening ear, Mr. Null makes a lasting impact on his students.
+
+Thank you, Mr. Null, for going above and beyond to help our students succeed and feel supported. We are lucky to have you! 💙
+
+#WampusPride #TeacherOfTheMonth #WeAreConway
+
+### 2026-11-20 · Conway High School (id 13896402)
+
+Congratulations to Mrs. Deborah Calvin, our November Employee of the Month! 🎉
+
+As the secretary in our Counseling Center, Mrs. Calvin makes a positive impression on everyone she encounters. Students describe her as kind, sweet, and always willing to help. Whether answering a question or lending a helping hand, she makes sure everyone feels welcome and supported.
+
+We are grateful for all she does to make Conway High School a better place. Congratulations, Mrs. Calvin! You are certainly appreciated! 💙
+
+#WampusPride #EmployeeOfTheMonth #WeAreConway
+
+### 2026-11-20 · Marcelle Goins (id 13899593)
+
+Playoff match up tonight against Bentonville West. We look forward to seeing you there. For the ones that can not be in attendance, please use the link below to support your Wampus Cats! 
+
+🔗: https://youtube.com/live/3CWBhdW79NA?feature=share
+
+### 2026-11-21 · Conway Public Schools (id 13902707)
+
+Due to a current project, the west side drive gates of the high school campus next to the baseball and softball complex will be closed today through Wednesday.
+
+### 2026-11-21 · Joseph Moon (id 13903061)
+
+Let's go ahead and play 3 this week! Cats v. Northside! 3:30 @ LRCA!
+
+### 2026-11-21 · Conway Athletics (id 13902569)
+
+Lady Cat Wrestling step up to a bigger stage and went to the Lady Bulldog tournament and wrestled well to finish with 4 of our girls winning their brackets, 2 finishing in 3rd, and 4 in 4th
+
+### 2026-11-21 · Conway Athletics (id 13903066)
+
+🏀 IT’S GAME DAY! 💙
+
+Another opportunity to compete, grow, and get better! 🚾🏀
+
+📍 Little Rock Christian HS
+🆚 Pulaski Academy
+⏰ 12:30 PM
+
+### 2026-11-21 · Joseph Moon (id 13903943)
+
+The Cats prevail in a slugfest! KJ Johnson made a free throw with 5 seconds left and Northside missed a long 3 as time expired. Cats Win!
+
+### 2026-11-23 · Conway Athletics (id 13902473)
+
+Weekly Schedule!
+
+### 2026-11-24 · Joseph Moon (id 13922351)
+
+Almost Thanksgiving, but we're gonna squeeze one more road trip in first! Cats @ Springdale Har-Ber tonight!
+
+### 2026-11-24 · Joseph Moon (id 13925801)
+
+Your Wampus Cats pull out another tight one! Big nights from seniors KJ Johnson (21 points, 8/8 FT) and Zae Patrick (19 points in 9/13) shooting. Montae Williams added 11 points and Tre Credit pitched in with 7. Senior Josh Torkornoo grabbed 4 rebounds. Heading into Thanksgiving at 5-1!
+
+#cultureiseverything
+

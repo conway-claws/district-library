@@ -1298,3 +1298,11 @@ A MESSAGE FROM PTO:
 
 Hi Jim Stone families! Our Christmas musicals are coming up on December 1st! Enter to win 5 front-row seats while sup
 
+### 2026-11-20 · Conway Public Schools (id 12662859)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

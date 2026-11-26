@@ -521,3 +521,21 @@ Let's see those Little Cat smiles! 💙🐾
 
 Good afternoon, Mattison Families!📸 Picture Makeup Day is tomorrow!If your child was absent on our original picture day or needs a retake, Strain Photography will be at Mattison tomorrow!If your child needs a retake:Please return your child's original picture package.Include a note explaining what you would like done differently.For additional information, please visit www.strainschoolpics.com.If you have questions, you may contact Strain Photography at info@strainphotography.info.We can't wait to see those Little Cat smiles! 💙📸
 
+### 2026-11-20 · Conway Public Schools (id 12662856)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-24 · Melissa Spence (id 13917106)
+
+Dear Mattison Families,Tomorrow, Wednesday, November 25, is the LAST DAY to order your School Spirit Ornaments!Both Little Cat and Wampus Cat designs are available for just $10 each and make wonderful Christmas gifts and keepsakes!Order online here:
+
+https://pfme-fundraiser.cacherivercreative.com/shop/Don’t miss out on this opportunity to show your school spirit this holiday season! Thank you to everyone who has already placed an order and supported our fundraiser! 💙🐾
+
+### 2026-11-25 · Melissa Spence (id 13916271)
+
+🎄 $10 school spirit ornaments! Last day to order! https://pfme-fundraiser.cacherivercreative.com/shop/⁠￼
+

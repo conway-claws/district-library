@@ -1175,3 +1175,39 @@ We want every student to enjoy this special pre-break treat! To be eligible to a
 Let’s kick off the holiday season with a trip to the theater! 🌟👏
 Permission slips will come home after Thanksgiving break!
 
+### 2026-11-19 · Karon Branch (id 13880902)
+
+We are excited to welcome you to our Simon Middle School basketball games!  As we enjoy an exciting basketball season together, we kindly ask for your help with a few reminders to ensure a safe and enjoyable experience for everyone:
+
+Seating: We ask that everyone enjoy the game from the stands rather than standing or gathering around the court.
+
+Photos and Videos: To help keep the sidelines and baselines clear and safe for our players and coaches, please take photos and record videos from the stands or the corners of the court.
+
+Thank you for helping us create a welcoming, safe, and enjoyable environment for all who attend our games. We appreciate your continued support of our students and Simon Middle School!
+
+Go Wampus Cats! #SimonStrong 🐾
+
+### 2026-11-20 · Conway Public Schools (id 12662863)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-20 · Karon Branch (id 13887181)
+
+Good morning! This is a friendly reminder that we are on an incentive bell schedule today. Thanks.
+
+### 2026-11-20 · Angel Moix (id 13814964)
+
+Congratulations to our November 5th Grade Students of the Month at Simon Middle School! 🎉👏Alli G. sets a positive example every day by upholding the Simon Standard through dedication to her personal and academic growth. She arrives prepared, stays focused, and takes pride in producing thoughtful work. Beyond the classroom, Alli treats classmates and staff with genuine kindness, respect, and encouragement. Thank you for being such a responsible and positive role model in our Simon family!Harrison B. is a bright and incredibly helpful student who always has his hand raised and a thoughtful idea to share! His insightful contributions and creative problem-solving strategies enrich our class discussions and help his classmates learn. Keep shining, Harrison!Way to go, Alli and Harrison! We are so proud of you both! 🌟📚#WeAreSimon #SimonStrong #RaisingTheStandard
+
+### 2026-11-22 · Angel Moix (id 13814968)
+
+Congratulations to our November 6th Grade Students of the Month at Simon Middle School! 🎉👏Fancy George brightens our classroom every single day with her infectious smile and positive attitude! Beyond her kindness and constant willingness to help her peers, she is an incredibly hardworking and responsible student who leads by example. Thank you for making our school a better place, Fancy!Daniel Hammond is a caring student who works wonderfully with others in PE and Health. He is always eager to try new activities and goes out of his way to make sure his classmates feel included and are having fun. In Health class, Daniel stays attentive and is always ready to help his classmates whenever they need a hand!Way to go, Fancy and Daniel! We are so proud of you both!#WeAreSimon #SimonStrong #RaisingTheStandard
+
+### 2026-11-24 · Angel Moix (id 13814973)
+
+Congratulations to our November 7th Grade Students of the Month at Simon Middle School! 🎉👏Joy has been an incredible asset to our school district as we launch our new Unified Bowling Team! She willingly steps up wherever she is needed—whether taking pictures, assisting classmates, or showcasing her own bowling skills. Beyond her commitment to helping make this new program a success, Joy’s compassion, friendship, and willingness to support peers with everyday skills show what it truly means to be a great teammate and an even better person. Thank you for everything you bring to our school community, Joy! 🎳Ameer brings a positive attitude that sets the tone for the entire classroom! He gives thoughtful answers and isn't afraid to ask questions when he wants a clearer explanation—often helping the whole class deepen their understanding in the process. On top of his curiosity, Ameer is always kind to his classmates and quick to share supplies or information without even being asked!Way to go, Joy and Ameer! We are so proud of you both! 🌟📚#WeAreSimon #SimonStrong #RaisingTheStandard
+

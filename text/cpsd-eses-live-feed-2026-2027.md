@@ -694,3 +694,25 @@ We are so proud of these students and can’t wait to cheer them on!
 
 Good luck, team! Go show them what ESE is all about! 💙🎳
 
+### 2026-11-20 · Conway Public Schools (id 12662858)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-20 · Matthew Coatney (id 13896234)
+
+🎳 Ellen Smith is headed to STATE!
+
+We just got the news that our Unified Champion Schools bowling team is headed to the state tournament in December! We are beyond proud of the students and teachers on this team and the way they cheer each other on, frame after frame.
+
+Congratulations, bowlers! Your Ellen Smith family will be cheering for you at State! 🐾
+
+### 2026-11-21 · Matthew Coatney (id 13903596)
+
+Congratulations to Mrs. Henderson, our Ellen Smith Elementary Staff Member of the Month! 📚
+
+Mrs. Henderson helps our students discover the joy of reading. She brings so many of our school events to life and is always looking for new ways to get kids excited to pick up a book. Thank you, Mrs. Henderson, for all the time and care you put into making reading fun for our students!
+

@@ -1159,3 +1159,11 @@ CPSD family!  Our CATS in Community Food Drive is for our school families who ar
 Papa John's Pizza Day is TODAY!!!!  Ida Burns PTO receives 20% of all sales. The guest will receive 30% off their order.
 ***CODE DOUGH MUST BE USED DURING ONLINE ORDERING, OVER THE PHONE, OR IN PERSON TO RECEIVE CREDIT FOR SALES***
 
+### 2026-11-20 · Conway Public Schools (id 12662852)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+

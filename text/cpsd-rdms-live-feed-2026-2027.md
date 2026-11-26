@@ -1582,3 +1582,40 @@ Ruth Doyle Basketball is on the road as they take on the Benton Panthers .
 
 ⏰ First Tip-off: 4:00 PM (CST)
 
+### 2026-11-19 · Rachel Fowler (id 13866801)
+
+Ruth Doyle Middle School Families, 
+
+We will be having a pep assembly at the end of the day on Friday to celebrate our Basketball Teams, Students of the Month, beginning of Thanksgiving Break, and more! 🎉🎈 
+
+Lunch times will be adjusted in order to make this happen. The updated schedule is: 
+5th Grade: 10:37–10:55 a.m. 
+6th Grade: 10:55–11:16 a.m. 
+7th Grade: 11:45 a.m.–12:10 p.m. 
+
+Thank you for your flexibility, and we look forward to a great pep assembly celebrating our students! Have a wonderful evening! 
+
+#WeAreRDMS #TeamConway
+
+### 2026-11-20 · Conway Public Schools (id 12662862)
+
+It is Substitute Educators Day! A massive thank you goes out to the wonderful guest teachers who step into our classrooms seamlessly to keep the learning going. You are essential members of Team Conway.
+
+Want to be a Wampus Cat and make a real difference for our students? Apply today at https://ess.com/ to become a substitute teacher with us! 🎒🐾
+
+#WeAreWampusCats #TeamConway #ChampionsForKids
+
+### 2026-11-20 · Conway Public Schools Athletics (id 13886469)
+
+RDMS Basketball took care of business on the road! 
+
+Great job RDMS Basketball!🚾
+
+### 2026-11-20 · Conway Athletics (id 13896108)
+
+Ruth Doyle Girls Basketball  hustlers of the week are  Aven Reibe,  Amelie Albores, Harlee Fournier (not pictured), and Ellison Charton.
+
+### 2026-11-21 · Conway Athletics (id 13896275)
+
+Ruth Doyle Girls Basketball  hustlers of the week are  Aven Reibe,  Amelie Albores, Harlee Fournier (not pictured), and Ellison Charton.
+
